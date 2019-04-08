@@ -1,5 +1,6 @@
-#### 《江峰时刻》原始字幕及文字稿
+### 《江峰时刻》原始字幕及文字稿
 
 | | | | |
 |---|---|---|---|
 
+| 曾跟王光美談對象，文革中最紅的美國造反派—李敦白（歷史上的今天20190408第321期） | [https://y2mate.com/youtube/egZR6JcXK5I](下载) | [jiangfeng/egZR6JcXK5I.srt](下载) | [jiangfeng/egZR6JcXK5I.text] (下载) | 
