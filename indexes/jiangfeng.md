@@ -2,6 +2,7 @@
 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿 |
 |---|---|---|---|
+| 清華大學投毒案 與中國人的白宮請願（歷史上的今天20190410第323期） | [下载](https://y2mate.com/youtube/o4dR2NvHgR8) | [下载](../channels/jiangfeng/o4dR2NvHgR8.srt?raw=true) | [下载](../channels/jiangfeng/o4dR2NvHgR8.text?raw=true) | 
 | 波音，中共最高級的自干五；波音737空難與家世；中國工程師怎樣當上波音之父的（歷史上的今天 20190409第322期） | [下载](https://y2mate.com/youtube/_2JizhrJRs0) | [下载](../channels/jiangfeng/_2JizhrJRs0.srt?raw=true) | [下载](../channels/jiangfeng/_2JizhrJRs0.text?raw=true) | 
 | 文革中最紅的美國造反派—李敦白（歷史上的今天20190408第321期） | [下载](https://y2mate.com/youtube/egZR6JcXK5I) | [下载](../channels/jiangfeng/egZR6JcXK5I.srt?raw=true) | [下载](../channels/jiangfeng/egZR6JcXK5I.text?raw=true) | 
 | 江峰劇場：《中央情報局的紅色鼴鼠》（十）紅色基因。文革教父康生做“乾爹” 親手培養俞強聲革命者的“優秀”品質 | [下载](https://y2mate.com/youtube/Si41TYaC0cg) | [下载](../channels/jiangfeng/Si41TYaC0cg.srt?raw=true) | [下载](../channels/jiangfeng/Si41TYaC0cg.text?raw=true) | 
