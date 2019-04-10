@@ -2,6 +2,7 @@
 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿 |
 |---|---|---|---|
+| 美國的寬容與移民應有的感恩；滿城盡是紅旗飄，為什麼華人要重溫那個逼迫你背井離鄉的邪惡（歷史上的今天 20190411 第324期） | [下载](https://y2mate.com/youtube/Aok-4ajN_Vo) | [下载](../channels/jiangfeng/Aok-4ajN_Vo.srt?raw=true) | [下载](../channels/jiangfeng/Aok-4ajN_Vo.text?raw=true) | 
 | 清華大學投毒案 與中國人的白宮請願（歷史上的今天20190410第323期） | [下载](https://y2mate.com/youtube/o4dR2NvHgR8) | [下载](../channels/jiangfeng/o4dR2NvHgR8.srt?raw=true) | [下载](../channels/jiangfeng/o4dR2NvHgR8.text?raw=true) | 
 | 波音，中共最高級的自干五；波音737空難與家世；中國工程師怎樣當上波音之父的（歷史上的今天 20190409第322期） | [下载](https://y2mate.com/youtube/_2JizhrJRs0) | [下载](../channels/jiangfeng/_2JizhrJRs0.srt?raw=true) | [下载](../channels/jiangfeng/_2JizhrJRs0.text?raw=true) | 
 | 文革中最紅的美國造反派—李敦白（歷史上的今天20190408第321期） | [下载](https://y2mate.com/youtube/egZR6JcXK5I) | [下载](../channels/jiangfeng/egZR6JcXK5I.srt?raw=true) | [下载](../channels/jiangfeng/egZR6JcXK5I.text?raw=true) | 
