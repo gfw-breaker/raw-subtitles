@@ -2,6 +2,7 @@
 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿 |
 |---|---|---|---|
+| 章天亮十分鐘概述中華五千年朝代更替 原創朝代歌訣（史海揚帆第3期20190412） | [下载](https://y2mate.com/zh-cn/youtube/TeiZNoHDHu8) | [下载](../channels/tianliang/TeiZNoHDHu8.srt?raw=true) | [下载](../channels/tianliang/TeiZNoHDHu8.text?raw=true) | 
 | 為何不同民族的歷史都以神話史詩開始？ 從基因學分析進化論該得出什麼結論？（史海揚帆第2集 20190409）天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/kYlOs3sD0m8) | [下载](../channels/tianliang/kYlOs3sD0m8.srt?raw=true) | [下载](../channels/tianliang/kYlOs3sD0m8.text?raw=true) | 
 | 不同民族的歷史都以神話史詩開始，史詩中天啟神授的智慧，進化與神創之爭，中國的神話傳說時代（史海揚帆第2集 20190409）天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/AhCug4N_NRM) | [下载](../channels/tianliang/AhCug4N_NRM.srt?raw=true) | [下载](../channels/tianliang/AhCug4N_NRM.text?raw=true) | 
 | 不同民族的歷史都以神話史詩開始，史詩中天啟神授的智慧，進化與神創之爭，中國的神話傳說時代（史海揚帆第2集 20190409）天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/ABhP2z50JWg) | [下载](../channels/tianliang/ABhP2z50JWg.srt?raw=true) | [下载](../channels/tianliang/ABhP2z50JWg.text?raw=true) | 
