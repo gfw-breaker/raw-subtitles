@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 獨家分析：楊恆均曾經是大外宣舵主，染香大五毛領袖都是他的跟班 楊恆均與司馬南誰更忠於黨（《週末漫談》第19期 | [下载](https://y2mate.com/zh-cn/youtube/oSA0qPZ4VaU) | [下载](../channels/jiangfeng/oSA0qPZ4VaU.srt?raw=true) | [下载](../channels/jiangfeng/oSA0qPZ4VaU.text?raw=true) | 
 | 江峰劇場：《中央情報局的紅色鼴鼠》（十一）風雲際會 | [下载](https://y2mate.com/zh-cn/youtube/WudFf-YLUWs) | [下载](../channels/jiangfeng/WudFf-YLUWs.srt?raw=true) | [下载](../channels/jiangfeng/WudFf-YLUWs.text?raw=true) | 
 | 教會學校培養的中國第一位留美學生和教育家--容閎（歷史上的今天 20190412第325期） | [下载](https://y2mate.com/zh-cn/youtube/Swk8-StYA_A) | [下载](../channels/jiangfeng/Swk8-StYA_A.srt?raw=true) | [下载](../channels/jiangfeng/Swk8-StYA_A.text?raw=true) | 
 | 美國的寬容與移民應有的感恩；滿城盡是紅旗飄，為什麼華人要重溫那個逼迫你背井離鄉的邪惡（歷史上的今天 20190411 第324期） | [下载](https://y2mate.com/zh-cn/youtube/Aok-4ajN_Vo) | [下载](../channels/jiangfeng/Aok-4ajN_Vo.srt?raw=true) | [下载](../channels/jiangfeng/Aok-4ajN_Vo.text?raw=true) | 
