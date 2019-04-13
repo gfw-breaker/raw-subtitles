@@ -1,3 +1,6 @@
+### 《江峰时刻》原始字幕/文字稿
+---
+#####  [最终正字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 江峰劇場：《中央情報局的紅色鼴鼠》（十一）風雲際會 | [下载](https://y2mate.com/zh-cn/youtube/WudFf-YLUWs) | [下载](../channels/jiangfeng/WudFf-YLUWs.srt?raw=true) | [下载](../channels/jiangfeng/WudFf-YLUWs.text?raw=true) | 
