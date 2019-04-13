@@ -1,8 +1,5 @@
-### 《文昭谈古论今》原始字幕/文字稿
-
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
-#####  [最终正字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 养老也爆雷，2035年中国养老基金结余耗尽！往后怎么办（20190412第558期） | [下载](https://y2mate.com/zh-cn/youtube/JqcJ3Ljs9ds) | [下载](../channels/wenzhao/JqcJ3Ljs9ds.srt?raw=true) | [下载](../channels/wenzhao/JqcJ3Ljs9ds.text?raw=true) | 
 | 中国青年失业严峻，21世纪上山下乡真的来了！“团贷网”爆雷殊途同归（20190410第557期） | [下载](https://y2mate.com/zh-cn/youtube/IHP8bLMpm8U) | [下载](../channels/wenzhao/IHP8bLMpm8U.srt?raw=true) | [下载](../channels/wenzhao/IHP8bLMpm8U.text?raw=true) | 
 | 网红大V五毛女神竟然也变节了；曹雪芹的诅咒与”无知之幕“（20190409第556期） | [下载](https://y2mate.com/zh-cn/youtube/JYnoTu-dNP8) | [下载](../channels/wenzhao/JYnoTu-dNP8.srt?raw=true) | [下载](../channels/wenzhao/JYnoTu-dNP8.text?raw=true) | 
