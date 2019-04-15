@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 賣國賊與黑社會出身的布爾什維克； 列寧歸還中國領土的真相（歷史上的今天20190416第327期） | [下载](https://y2mate.com/zh-cn/youtube/Uq92K6HavhI) | [下载](../channels/jiangfeng/Uq92K6HavhI.srt?raw=true) | [下载](../channels/jiangfeng/Uq92K6HavhI.text?raw=true) | 
 | “美國人在中國建立集中營”---中美合作所，已經真相大白為什麼還要繼續撒謊（歷史上的今天20190415第326期） | [下载](https://y2mate.com/zh-cn/youtube/tfsMbFsmr8Y) | [下载](../channels/jiangfeng/tfsMbFsmr8Y.srt?raw=true) | [下载](../channels/jiangfeng/tfsMbFsmr8Y.text?raw=true) | 
 | 獨家分析：楊恆均曾經是大外宣舵主，染香大五毛領袖都是他的跟班 楊恆均與司馬南誰更忠於黨（《週末漫談》第19期 | [下载](https://y2mate.com/zh-cn/youtube/oSA0qPZ4VaU) | [下载](../channels/jiangfeng/oSA0qPZ4VaU.srt?raw=true) | [下载](../channels/jiangfeng/oSA0qPZ4VaU.text?raw=true) | 
 | 江峰劇場：《中央情報局的紅色鼴鼠》（十一）風雲際會 | [下载](https://y2mate.com/zh-cn/youtube/WudFf-YLUWs) | [下载](../channels/jiangfeng/WudFf-YLUWs.srt?raw=true) | [下载](../channels/jiangfeng/WudFf-YLUWs.text?raw=true) | 
