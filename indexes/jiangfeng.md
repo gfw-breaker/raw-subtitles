@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 柬埔寨西哈努克親王的舌尖中國與紅色高棉的屠戮；中越“自衛反擊戰”究竟為誰而戰？（歷史上的今天20190418第329期） | [下载](https://y2mate.com/zh-cn/youtube/QsDeMT3TaUk) | [下载](../channels/jiangfeng/QsDeMT3TaUk.srt?raw=true) | [下载](../channels/jiangfeng/QsDeMT3TaUk.text?raw=true) | 
 | 美國第一公民 他用一生形成了美國性格—本傑明· 富蘭克林（歷史上的今天20190417第328期）更新版 | [下载](https://y2mate.com/zh-cn/youtube/osJuG87ShK8) | [下载](../channels/jiangfeng/osJuG87ShK8.srt?raw=true) | [下载](../channels/jiangfeng/osJuG87ShK8.text?raw=true) | 
 | 美國第一公民 他用一生形成了美國性格—本傑明· 富蘭克林（歷史上的今天20190417第328期） | [下载](https://y2mate.com/zh-cn/youtube/J5OREPrWpsU) | [下载](../channels/jiangfeng/J5OREPrWpsU.srt?raw=true) | [下载](../channels/jiangfeng/J5OREPrWpsU.text?raw=true) | 
 | 賣國賊與黑社會出身的布爾什維克； 列寧歸還中國領土的真相（歷史上的今天20190416第327期） | [下载](https://y2mate.com/zh-cn/youtube/Uq92K6HavhI) | [下载](../channels/jiangfeng/Uq92K6HavhI.srt?raw=true) | [下载](../channels/jiangfeng/Uq92K6HavhI.text?raw=true) | 
