@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中共建政後最荒唐的一場群眾運動， 美好的“願望”總是帶來民族災難—除四害 打麻雀（历史上的今天20190419第330期） | [下载](https://y2mate.com/zh-cn/youtube/WgtwyAq4krc) | [下载](../channels/jiangfeng/WgtwyAq4krc.srt?raw=true) | [下载](../channels/jiangfeng/WgtwyAq4krc.text?raw=true) | 
 | 柬埔寨西哈努克親王的舌尖中國與紅色高棉的屠戮；中越“自衛反擊戰”究竟為誰而戰？（歷史上的今天20190418第329期） | [下载](https://y2mate.com/zh-cn/youtube/QsDeMT3TaUk) | [下载](../channels/jiangfeng/QsDeMT3TaUk.srt?raw=true) | [下载](../channels/jiangfeng/QsDeMT3TaUk.text?raw=true) | 
 | 美國第一公民 他用一生形成了美國性格—本傑明· 富蘭克林（歷史上的今天20190417第328期）更新版 | [下载](https://y2mate.com/zh-cn/youtube/osJuG87ShK8) | [下载](../channels/jiangfeng/osJuG87ShK8.srt?raw=true) | [下载](../channels/jiangfeng/osJuG87ShK8.text?raw=true) | 
 | 美國第一公民 他用一生形成了美國性格—本傑明· 富蘭克林（歷史上的今天20190417第328期） | [下载](https://y2mate.com/zh-cn/youtube/J5OREPrWpsU) | [下载](../channels/jiangfeng/J5OREPrWpsU.srt?raw=true) | [下载](../channels/jiangfeng/J5OREPrWpsU.text?raw=true) | 
