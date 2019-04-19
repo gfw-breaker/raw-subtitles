@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 2019下半年中国猪肉涨价70%！通胀地雷加“螺旋通缩”愁坏李克强，（20190419第562期） | [下载](https://y2mate.com/zh-cn/youtube/rUcxcVOxbzk) | [下载](../channels/wenzhao/rUcxcVOxbzk.srt?raw=true) | [下载](../channels/wenzhao/rUcxcVOxbzk.text?raw=true) | 
 | 郭台铭参选台湾总统，马云何时参选国家主席？台版川普与取消996（20190417第561期） | [下载](https://y2mate.com/zh-cn/youtube/04TPYx4aGGo) | [下载](../channels/wenzhao/04TPYx4aGGo.srt?raw=true) | [下载](../channels/wenzhao/04TPYx4aGGo.text?raw=true) | 
 | 巴黎圣母院火灾，举世皆哭战狼笑，恨错了人与得错了病（20190416第560期） | [下载](https://y2mate.com/zh-cn/youtube/5rqKxYnY9ow) | [下载](../channels/wenzhao/5rqKxYnY9ow.srt?raw=true) | [下载](../channels/wenzhao/5rqKxYnY9ow.text?raw=true) | 
 | 张学友被政审、网红歌手李志被全网封杀；“爆料王”被捕有多黑暗？（20190415第559期） | [下载](https://y2mate.com/zh-cn/youtube/ZpG0ysDjNvc) | [下载](../channels/wenzhao/ZpG0ysDjNvc.srt?raw=true) | [下载](../channels/wenzhao/ZpG0ysDjNvc.text?raw=true) | 
