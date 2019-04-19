@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 一个存在了160年的骗局(上） （哲思心語第1集20190419）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/i7hdMojNin8) | [下载](../channels/tianliang/i7hdMojNin8.srt?raw=true) | [下载](../channels/tianliang/i7hdMojNin8.text?raw=true) | 
 | 五千年信史是如何记载下来的，慷慨赴死的史官精神（史海扬帆第4集20190417）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/OBUUjw4E-8I) | [下载](../channels/tianliang/OBUUjw4E-8I.srt?raw=true) | [下载](../channels/tianliang/OBUUjw4E-8I.text?raw=true) | 
 | 张扣扣为母复仇后该不该死？如果发生在美国会怎样？（政論天下第2集20190415）／天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/RJtcILw45_I) | [下载](../channels/tianliang/RJtcILw45_I.srt?raw=true) | [下载](../channels/tianliang/RJtcILw45_I.text?raw=true) | 
 | 章天亮十分鐘概述中華五千年朝代更替 原創朝代歌訣（史海揚帆第3期20190412） | [下载](https://y2mate.com/zh-cn/youtube/TeiZNoHDHu8) | [下载](../channels/tianliang/TeiZNoHDHu8.srt?raw=true) | [下载](../channels/tianliang/TeiZNoHDHu8.text?raw=true) | 
