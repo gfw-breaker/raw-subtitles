@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 這裡代表最高特權----解放軍301總醫院與美帝籌建的協和醫院的淵源； 忠誠於黨還是交付給神，哪個醫生更可靠——林巧稚（歷史上的今天20190422第331期） | [下载](https://y2mate.com/zh-cn/youtube/wjzdvO7XN-g) | [下载](../channels/jiangfeng/wjzdvO7XN-g.srt?raw=true) | [下载](../channels/jiangfeng/wjzdvO7XN-g.text?raw=true) | 
 | 週末漫談：奔馳女車主維權與萊卡相機的六四背景廣告片；華為與萊卡合作能學到什麼（《週末漫談》第20期20190421） | [下载](https://y2mate.com/zh-cn/youtube/L0JXvruwtMQ) | [下载](../channels/jiangfeng/L0JXvruwtMQ.srt?raw=true) | [下载](../channels/jiangfeng/L0JXvruwtMQ.text?raw=true) | 
 | 江峰劇場：《中央情報局的紅色鼴鼠》（十二）他還活著 | [下载](https://y2mate.com/zh-cn/youtube/SpvYRxf9wAs) | [下载](../channels/jiangfeng/SpvYRxf9wAs.srt?raw=true) | [下载](../channels/jiangfeng/SpvYRxf9wAs.text?raw=true) | 
 | 中共建政後最荒唐的一場群眾運動， 美好的“願望”總是帶來民族災難—除四害 打麻雀（历史上的今天20190419第330期） | [下载](https://y2mate.com/zh-cn/youtube/WgtwyAq4krc) | [下载](../channels/jiangfeng/WgtwyAq4krc.srt?raw=true) | [下载](../channels/jiangfeng/WgtwyAq4krc.text?raw=true) | 
