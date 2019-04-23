@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 薩斯病叫“非典”不為人知的原因與瘟疫背後的黑手；台灣告別世衛組織是政治綁票（歷史上的今天 20190424 第333期） | [下载](https://y2mate.com/zh-cn/youtube/y8_NIpmDjyM) | [下载](../channels/jiangfeng/y8_NIpmDjyM.srt?raw=true) | [下载](../channels/jiangfeng/y8_NIpmDjyM.text?raw=true) | 
 | “新中國”第一部禁片，為什麼對一個乞丐下手那麼狠？毛澤東與《武訓傳》（歷史上的今天20190423第332期） | [下载](https://y2mate.com/zh-cn/youtube/9j8lPeaBPsA) | [下载](../channels/jiangfeng/9j8lPeaBPsA.srt?raw=true) | [下载](../channels/jiangfeng/9j8lPeaBPsA.text?raw=true) | 
 | 這裡代表最高特權----解放軍301總醫院與美帝籌建的協和醫院的淵源； 忠誠於黨還是交付給神，哪個醫生更可靠——林巧稚（歷史上的今天20190422第331期） | [下载](https://y2mate.com/zh-cn/youtube/wjzdvO7XN-g) | [下载](../channels/jiangfeng/wjzdvO7XN-g.srt?raw=true) | [下载](../channels/jiangfeng/wjzdvO7XN-g.text?raw=true) | 
 | 週末漫談：奔馳女車主維權與萊卡相機的六四背景廣告片；華為與萊卡合作能學到什麼（《週末漫談》第20期20190421） | [下载](https://y2mate.com/zh-cn/youtube/L0JXvruwtMQ) | [下载](../channels/jiangfeng/L0JXvruwtMQ.srt?raw=true) | [下载](../channels/jiangfeng/L0JXvruwtMQ.text?raw=true) | 
