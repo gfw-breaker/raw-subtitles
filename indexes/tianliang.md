@@ -3,6 +3,8 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 從郭台銘參選總統 談中共慾統一台灣的真實目的（政論天下第1集 20190423）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/uC84TiFB0JA) | [下载](../channels/tianliang/uC84TiFB0JA.srt?raw=true) | [下载](../channels/tianliang/uC84TiFB0JA.text?raw=true) | 
+| 進化論：一個存在了160年的騙局（下） （哲思心語第2集20190421）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/ppz-sg2btcQ) | [下载](../channels/tianliang/ppz-sg2btcQ.srt?raw=true) | [下载](../channels/tianliang/ppz-sg2btcQ.text?raw=true) | 
 | 进化论：一个存在了160年的骗局(下） （哲思心語第2集20190421）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/wlP5iTxfLHM) | [下载](../channels/tianliang/wlP5iTxfLHM.srt?raw=true) | [下载](../channels/tianliang/wlP5iTxfLHM.text?raw=true) | 
 | 一个存在了160年的骗局(上） （哲思心語第1集20190419）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/i7hdMojNin8) | [下载](../channels/tianliang/i7hdMojNin8.srt?raw=true) | [下载](../channels/tianliang/i7hdMojNin8.text?raw=true) | 
 | 五千年信史是如何记载下来的，慷慨赴死的史官精神（史海扬帆第4集20190417）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/OBUUjw4E-8I) | [下载](../channels/tianliang/OBUUjw4E-8I.srt?raw=true) | [下载](../channels/tianliang/OBUUjw4E-8I.text?raw=true) | 
