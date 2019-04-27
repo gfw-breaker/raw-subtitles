@@ -3,6 +3,7 @@
 #####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 法輪功“四·二五”萬人上訪二十週年，章天亮回首來龍去脈（2）（史海揚帆第6集 20190427）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/5oyC0GraA0A) | [下载](../channels/tianliang/5oyC0GraA0A.srt?raw=true) | [下载](../channels/tianliang/5oyC0GraA0A.text?raw=true) | 
 | 法輪功425萬人上訪二十週年，章天亮回首來龍去脈（1）（史海揚帆第5集 20190425） | [下载](https://y2mate.com/zh-cn/youtube/rGxCuSkke60) | [下载](../channels/tianliang/rGxCuSkke60.srt?raw=true) | [下载](../channels/tianliang/rGxCuSkke60.text?raw=true) | 
 | 從郭台銘參選總統 談中共慾統一台灣的真實目的（政論天下第1集 20190423）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/uC84TiFB0JA) | [下载](../channels/tianliang/uC84TiFB0JA.srt?raw=true) | [下载](../channels/tianliang/uC84TiFB0JA.text?raw=true) | 
 | 進化論：一個存在了160年的騙局（下） （哲思心語第2集20190421）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/ppz-sg2btcQ) | [下载](../channels/tianliang/ppz-sg2btcQ.srt?raw=true) | [下载](../channels/tianliang/ppz-sg2btcQ.text?raw=true) | 
