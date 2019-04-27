@@ -1,6 +1,6 @@
 ### 《江峰时刻》原始字幕/文字稿
 ---
-#####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
+#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 切爾諾貝利核電站 比核輻射更有殺傷力的竟然是謊言（歷史上的今天20190426第335期） | [下载](https://y2mate.com/zh-cn/youtube/nfGt6ugUgpo) | [下载](../channels/jiangfeng/nfGt6ugUgpo.srt?raw=true) | [下载](../channels/jiangfeng/nfGt6ugUgpo.text?raw=true) | 

@@ -1,6 +1,6 @@
 ### 《老北京茶馆》原始字幕/文字稿
 ---
-#####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
+#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 大陆女战狼大闹台湾，香港占中九子获刑；郭台铭、蔡英文的两堂课！【老北京茶馆】第141集 2019-04-27 | [下载](https://y2mate.com/zh-cn/youtube/sYPpcjnEPtI) | [下载](../channels/teahouse/sYPpcjnEPtI.srt?raw=true) | [下载](../channels/teahouse/sYPpcjnEPtI.text?raw=true) | 

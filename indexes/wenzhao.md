@@ -1,6 +1,6 @@
 ### 《文昭谈古论今》原始字幕/文字稿
 ---
-#####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
+#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 2019下半年中国猪肉涨价70%！通胀地雷加“螺旋通缩”愁坏李克强，（20190419第562期） | [下载](https://y2mate.com/zh-cn/youtube/rUcxcVOxbzk) | [下载](../channels/wenzhao/rUcxcVOxbzk.srt?raw=true) | [下载](../channels/wenzhao/rUcxcVOxbzk.text?raw=true) | 

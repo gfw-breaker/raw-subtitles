@@ -1,6 +1,6 @@
 ### 《天亮时分》原始字幕/文字稿
 ---
-#####  [最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
+#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 法輪功“四·二五”萬人上訪二十週年，章天亮回首來龍去脈（2）（史海揚帆第6集 20190427）_天亮時分 | [下载](https://y2mate.com/zh-cn/youtube/5oyC0GraA0A) | [下载](../channels/tianliang/5oyC0GraA0A.srt?raw=true) | [下载](../channels/tianliang/5oyC0GraA0A.text?raw=true) | 
