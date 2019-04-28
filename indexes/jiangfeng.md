@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 別人搬家 我搬國家 “996”的企業家看看當年的盧作孚的抱負和擔當（歷史上的今天20190429第336期） | [下载](https://y2mate.com/zh-cn/youtube/r32lucPX7RQ) | [下载](../channels/jiangfeng/r32lucPX7RQ.srt?raw=true) | [下载](../channels/jiangfeng/r32lucPX7RQ.text?raw=true) | 
 | 獨家：從中共海軍秘史看海上閱兵的門道； 海軍具備了武統台灣的實力麼（《週末漫談》20190428第21期 | [下载](https://y2mate.com/zh-cn/youtube/qHGWdT2HmW0) | [下载](../channels/jiangfeng/qHGWdT2HmW0.srt?raw=true) | [下载](../channels/jiangfeng/qHGWdT2HmW0.text?raw=true) | 
 | 切爾諾貝利核電站 比核輻射更有殺傷力的竟然是謊言（歷史上的今天20190426第335期） | [下载](https://y2mate.com/zh-cn/youtube/nfGt6ugUgpo) | [下载](../channels/jiangfeng/nfGt6ugUgpo.srt?raw=true) | [下载](../channels/jiangfeng/nfGt6ugUgpo.text?raw=true) | 
 | 蘇美特異功能對抗與中國的氣功熱；法輪功與官媒口徑中“4.25”圍攻中南海的真相（歷史上的今天20190425第334期） | [下载](https://y2mate.com/zh-cn/youtube/Ud_21t6uR6M) | [下载](../channels/jiangfeng/Ud_21t6uR6M.srt?raw=true) | [下载](../channels/jiangfeng/Ud_21t6uR6M.text?raw=true) | 
