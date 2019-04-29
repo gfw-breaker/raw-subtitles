@@ -55,7 +55,7 @@ while read line; do
 	while read line; do
 		vid=$(echo $line | rev | cut -c5-15 | rev )
 		title=$(echo $line | rev | cut -c17- | rev)
-		echo "| $title | [下载](https://y2mate.com/zh-cn/youtube/$vid) | [下载](../channels/$folder/$vid.srt?raw=true) | [下载](../channels/$folder/$vid.text?raw=true) | " >> $index
+		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$vid.srt?raw=true) | [下载](../channels/$folder/$vid.text?raw=true) | " >> $index
 	done < $curDir/names.txt
 
 done < $baseDir/channels.csv
