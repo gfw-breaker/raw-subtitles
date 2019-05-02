@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 【逃犯條例】毀香港、親中媒體亂台灣，外國代理人登記清剿海外共媒---世界新聞自由日（歷史上的今天20190503第340期） | [下载](https://y2mate.com/zh-cn/search/Ee5pfk6KDB0) | [下载](../channels/jiangfeng/Ee5pfk6KDB0.srt?raw=true) | [下载](../channels/jiangfeng/Ee5pfk6KDB0.text?raw=true) | 
 | 美軍82空降師解放集中營； 德國城市中心的墳墓（歷史上的今天20190502第339期） | [下载](https://y2mate.com/zh-cn/search/63osMs38xBc) | [下载](../channels/jiangfeng/63osMs38xBc.srt?raw=true) | [下载](../channels/jiangfeng/63osMs38xBc.text?raw=true) | 
 | 中情局訓練的本拉登終於被中情局定位； 擊斃本拉登還有其他版本麼？（歷史上的今天20190501第338期） | [下载](https://y2mate.com/zh-cn/search/ZKyw38SmoI0) | [下载](../channels/jiangfeng/ZKyw38SmoI0.srt?raw=true) | [下载](../channels/jiangfeng/ZKyw38SmoI0.text?raw=true) | 
 | 民族崛起和國家發展需要的天時地利人和，從美國歷史上最大的土地買賣談起(歷史上的今天20190430第337期） | [下载](https://y2mate.com/zh-cn/search/mplcqS4xOF0) | [下载](../channels/jiangfeng/mplcqS4xOF0.srt?raw=true) | [下载](../channels/jiangfeng/mplcqS4xOF0.text?raw=true) | 
