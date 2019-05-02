@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| “四·二五”系列（4）法輪功萬人上訪二十週年，章天亮回首來龍去脈（史海揚帆第8集 20190502）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/IW4NmrE01vg) | [下载](../channels/tianliang/IW4NmrE01vg.srt?raw=true) | [下载](../channels/tianliang/IW4NmrE01vg.text?raw=true) | 
 | 法輪功“四·二五”萬人上訪二十週年 章天亮回首來龍去脈（3）（史海揚帆第7集 20190501）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/8P3bhGkaoTk) | [下载](../channels/tianliang/8P3bhGkaoTk.srt?raw=true) | [下载](../channels/tianliang/8P3bhGkaoTk.text?raw=true) | 
 | 一带一路将要死去？中國還有多少外匯可以花？（政論天下第3集 20190429）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/7dlciB7IwKw) | [下载](../channels/tianliang/7dlciB7IwKw.srt?raw=true) | [下载](../channels/tianliang/7dlciB7IwKw.text?raw=true) | 
 | 香港十三萬人抗議 “送中條例”是在為一國兩制“送終” 台灣民眾需驚醒（政論天下第2集20190428）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/q4soO5tS7cY) | [下载](../channels/tianliang/q4soO5tS7cY.srt?raw=true) | [下载](../channels/tianliang/q4soO5tS7cY.text?raw=true) | 
