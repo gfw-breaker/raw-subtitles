@@ -17,12 +17,12 @@ while read line; do
 	cd $curDir
 
 	youtube-dl -f 18 \
-		--max-downloads 2 \
+		--max-downloads 4 \
 		--playlist-end 100 \
 		-i $ytUrl/$channel
 
 	# cleanup
-	ls -t *.mp4 | sed -n '4,$p' > old.txt
+	ls -t *.mp4 | sed -n '6,$p' > old.txt
 	while read line; do
 		rm -fr "$line"
 	done < old.txt
