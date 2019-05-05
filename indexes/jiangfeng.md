@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 為什麼偏偏歧視華人？《排華法案》的深層原因和當下海外華人的危機（歷史上的今天20190506第341期） | [下载](https://y2mate.com/zh-cn/search/QS-XEnZWQLo) | [下载](../channels/jiangfeng/QS-XEnZWQLo.srt?raw=true) | [下载](../channels/jiangfeng/QS-XEnZWQLo.text?raw=true) | 
 | 美國航校中國公派學生自殺，美國企業的困境，在市場和道德之間遊走（《週末漫談》20190505第22期） | [下载](https://y2mate.com/zh-cn/search/j8p70bv82PI) | [下载](../channels/jiangfeng/j8p70bv82PI.srt?raw=true) | [下载](../channels/jiangfeng/j8p70bv82PI.text?raw=true) | 
 | 【逃犯條例】毀香港、親中媒體亂台灣，外國代理人登記清剿海外共媒---世界新聞自由日（歷史上的今天20190503第340期） | [下载](https://y2mate.com/zh-cn/search/Ee5pfk6KDB0) | [下载](../channels/jiangfeng/Ee5pfk6KDB0.srt?raw=true) | [下载](../channels/jiangfeng/Ee5pfk6KDB0.text?raw=true) | 
 | 美軍82空降師解放集中營； 德國城市中心的墳墓（歷史上的今天20190502第339期） | [下载](https://y2mate.com/zh-cn/search/63osMs38xBc) | [下载](../channels/jiangfeng/63osMs38xBc.srt?raw=true) | [下载](../channels/jiangfeng/63osMs38xBc.text?raw=true) | 
