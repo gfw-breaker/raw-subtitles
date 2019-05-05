@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 川普加稅25% 中美貿易戰局急轉直下 大陸民眾該如何應對（政論天下第4集20190505）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/Aq4e76ReYx0) | [下载](../channels/tianliang/Aq4e76ReYx0.srt?raw=true) | [下载](../channels/tianliang/Aq4e76ReYx0.text?raw=true) | 
 | 世紀悲歌 五四運動的百年回首 兼答網友問題（史海揚帆第9集 20190503）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/pCIxbkpExL4) | [下载](../channels/tianliang/pCIxbkpExL4.srt?raw=true) | [下载](../channels/tianliang/pCIxbkpExL4.text?raw=true) | 
 | 世紀悲歌 五四運動的百年回首 兼答網友問題（史海揚帆第9集 20190503）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/aD7YbNgk3II) | [下载](../channels/tianliang/aD7YbNgk3II.srt?raw=true) | [下载](../channels/tianliang/aD7YbNgk3II.text?raw=true) | 
 | “四·二五”系列（4）法輪功萬人上訪二十週年，章天亮回首來龍去脈（史海揚帆第8集 20190502）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/IW4NmrE01vg) | [下载](../channels/tianliang/IW4NmrE01vg.srt?raw=true) | [下载](../channels/tianliang/IW4NmrE01vg.text?raw=true) | 
