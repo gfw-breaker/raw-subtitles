@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中美貿易戰關鍵時刻來臨 中共對川普誤判的三個層面 美國對港台政策的重大變化-中美貿易戰局分析（3）政論天下第5集20190508 | [下载](https://y2mate.com/zh-cn/search/3ynIqBNHWuo) | [下载](../channels/tianliang/3ynIqBNHWuo.srt?raw=true) | [下载](../channels/tianliang/3ynIqBNHWuo.text?raw=true) | 
 | 中美貿易戰局分析（2）中共陣腳大亂 是否會重回“閉關鎖國”？ | [下载](https://y2mate.com/zh-cn/search/7oWV7zbKnws) | [下载](../channels/tianliang/7oWV7zbKnws.srt?raw=true) | [下载](../channels/tianliang/7oWV7zbKnws.text?raw=true) | 
 | 川普加稅25% 中美貿易戰局急轉直下 大陸民眾該如何應對（政論天下第4集20190505）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/Aq4e76ReYx0) | [下载](../channels/tianliang/Aq4e76ReYx0.srt?raw=true) | [下载](../channels/tianliang/Aq4e76ReYx0.text?raw=true) | 
 | 世紀悲歌 五四運動的百年回首 兼答網友問題（史海揚帆第9集 20190503）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/pCIxbkpExL4) | [下载](../channels/tianliang/pCIxbkpExL4.srt?raw=true) | [下载](../channels/tianliang/pCIxbkpExL4.text?raw=true) | 
