@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 頌歌與罪罰，人與國家道路的選擇—曼德拉（歷史上的今天 20190510第345期） | [下载](https://y2mate.com/zh-cn/search/swlyTucEXZw) | [下载](../channels/jiangfeng/swlyTucEXZw.srt?raw=true) | [下载](../channels/jiangfeng/swlyTucEXZw.text?raw=true) | 
 | 納粹黑暗帝國中的白玫瑰 與世界為敵的獨裁者最害怕他們兄妹倆——蕭爾兄妹（歷史上的今天20190509第344期） | [下载](https://y2mate.com/zh-cn/search/xlteVtrqb4Q) | [下载](../channels/jiangfeng/xlteVtrqb4Q.srt?raw=true) | [下载](../channels/jiangfeng/xlteVtrqb4Q.text?raw=true) | 
 | 美國對抗中共崛起的第一仗 美國輸了----美國轟炸中國駐南斯拉夫大使館（歷史上的今天20190508第343期） | [下载](https://y2mate.com/zh-cn/search/c87n8_x3PFA) | [下载](../channels/jiangfeng/c87n8_x3PFA.srt?raw=true) | [下载](../channels/jiangfeng/c87n8_x3PFA.text?raw=true) | 
 | 毛澤東無法理解的“屁大的事兒”，菜鳥記者掀翻美國總統--水門事件（歷史上的今天20190507第342期） | [下载](https://y2mate.com/zh-cn/search/Ie99CNnh93Y) | [下载](../channels/jiangfeng/Ie99CNnh93Y.srt?raw=true) | [下载](../channels/jiangfeng/Ie99CNnh93Y.text?raw=true) | 
