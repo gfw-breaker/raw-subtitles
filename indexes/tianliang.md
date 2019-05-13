@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中共關稅報復出爐 六月的川習會無簽署協議基本沒戲 國際金融大鱷可能做空中國-中美貿易戰局分析（5）（政論天下第8集20190513）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/ok7ommYo6E0) | [下载](../channels/tianliang/ok7ommYo6E0.srt?raw=true) | [下载](../channels/tianliang/ok7ommYo6E0.text?raw=true) | 
 | 中美关系惊天逆转系列 ：川普政府力阻谷歌“蜻蜓计划”的深層內幕（上）（哲思心語第3集20190508）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/ezQw04PtPTs) | [下载](../channels/tianliang/ezQw04PtPTs.srt?raw=true) | [下载](../channels/tianliang/ezQw04PtPTs.text?raw=true) | 
 | 川普加稅啟動 對中國經濟影響有多深？匯市、股市、房市走向預測-中美貿易戰局分析（4）（政論天下第7集20190510） | [下载](https://y2mate.com/zh-cn/search/sk5ijIHN_KM) | [下载](../channels/tianliang/sk5ijIHN_KM.srt?raw=true) | [下载](../channels/tianliang/sk5ijIHN_KM.text?raw=true) | 
 | 中美貿易戰：國內一杆槍指著中共的頭，中共對川普誤判的三個層面；美國對台灣、香港政策的重大變化-中美貿易戰局分析（3）政論天下第6集20190508 | [下载](https://y2mate.com/zh-cn/search/3ynIqBNHWuo) | [下载](../channels/tianliang/3ynIqBNHWuo.srt?raw=true) | [下载](../channels/tianliang/3ynIqBNHWuo.text?raw=true) | 
