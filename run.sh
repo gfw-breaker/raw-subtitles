@@ -21,11 +21,6 @@ while read line; do
 		--playlist-end 100 \
 		-i $ytUrl/$channel
 
-	# cleanup
-	ls -t *.mp4 | sed -n '5,$p' > old.txt
-	while read line; do
-		rm -fr "$line"
-	done < old.txt
 	
 	# generate subtitle
 	ls -tr *.mp4 > mp4s.txt
@@ -43,6 +38,14 @@ while read line; do
 			mv tmp.txt names.txt 		
 		fi
 	done < mp4s.txt
+
+
+	# cleanup
+	ls -t *.mp4 | sed -n '5,$p' > old.txt
+	while read line; do
+		rm -fr "$line"
+	done < old.txt
+	
 
 	# generate page
 	cd $baseDir
