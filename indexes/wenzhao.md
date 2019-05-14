@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 北京反击美国一大二小三张王牌，首先禁止对美出口一种重要资源！（20180514第568期） | [下载](https://y2mate.com/zh-cn/search/3mv43Kj-MT8) | [下载](../channels/wenzhao/3mv43Kj-MT8.srt?raw=true) | [下载](../channels/wenzhao/3mv43Kj-MT8.text?raw=true) | 
 | 刘鹤解释谈判破裂泄露重大隐情；北京反击手段背后的打算（20190513第567期） | [下载](https://y2mate.com/zh-cn/search/LKhVFh5Nppc) | [下载](../channels/wenzhao/LKhVFh5Nppc.srt?raw=true) | [下载](../channels/wenzhao/LKhVFh5Nppc.text?raw=true) | 
 | 刘鹤到美、25%关税开征、带来意外好处的“丧权辱国”（20190510第566期） | [下载](https://y2mate.com/zh-cn/search/8jE7GKzmfxE) | [下载](../channels/wenzhao/8jE7GKzmfxE.srt?raw=true) | [下载](../channels/wenzhao/8jE7GKzmfxE.text?raw=true) | 
 | 习近平谈判临门反悔的底气从哪来？中国为“一带一路”付的三份钱和两个陷阱（20190508第565期） | [下载](https://y2mate.com/zh-cn/search/qw5M3cUeTss) | [下载](../channels/wenzhao/qw5M3cUeTss.srt?raw=true) | [下载](../channels/wenzhao/qw5M3cUeTss.text?raw=true) | 
