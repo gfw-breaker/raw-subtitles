@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 殺妻還是殺諜？擊斃還是成仁？抗日英雄張靈甫(歷史上的今天20190516第348期） | [下载](https://y2mate.com/zh-cn/search/pwNK5k90nHE) | [下载](../channels/jiangfeng/pwNK5k90nHE.srt?raw=true) | [下载](../channels/jiangfeng/pwNK5k90nHE.text?raw=true) | 
 | 悠久的歷史和文化，是生命力還是枷鎖？從巴黎人的眼光，看文明的排外與包容(歷史上的今天20190515第347期） | [下载](https://y2mate.com/zh-cn/search/eEB949j3-CU) | [下载](../channels/jiangfeng/eEB949j3-CU.srt?raw=true) | [下载](../channels/jiangfeng/eEB949j3-CU.text?raw=true) | 
 | 歷史上的今天特刊 《白玫瑰傳單一》：放下怯懦，對抗極權 ，爭取自由的宣言。 最完整譯本 | [下载](https://y2mate.com/zh-cn/search/Rwz0GdrHYZA) | [下载](../channels/jiangfeng/Rwz0GdrHYZA.srt?raw=true) | [下载](../channels/jiangfeng/Rwz0GdrHYZA.text?raw=true) | 
 | 紅都女皇江青在法庭上說了什麼，被六位法官喝斥“住口” ， 從江青的自殺看中國共運禍害（歷史上的今天20190514第346期） | [下载](https://y2mate.com/zh-cn/search/maWakMK0fDY) | [下载](../channels/jiangfeng/maWakMK0fDY.srt?raw=true) | [下载](../channels/jiangfeng/maWakMK0fDY.text?raw=true) | 
