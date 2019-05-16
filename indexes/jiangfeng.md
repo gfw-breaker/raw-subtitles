@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中美貿易戰和中央救市，誰在真正傷害中國股市， 從梧桐樹協議說起（歷史上的今天20190517第349期） | [下载](https://y2mate.com/zh-cn/search/cyEdU-9CteU) | [下载](../channels/jiangfeng/cyEdU-9CteU.srt?raw=true) | [下载](../channels/jiangfeng/cyEdU-9CteU.text?raw=true) | 
 | 殺妻還是殺諜？擊斃還是成仁？抗日英雄張靈甫(歷史上的今天20190516第348期） | [下载](https://y2mate.com/zh-cn/search/pwNK5k90nHE) | [下载](../channels/jiangfeng/pwNK5k90nHE.srt?raw=true) | [下载](../channels/jiangfeng/pwNK5k90nHE.text?raw=true) | 
 | 悠久的歷史和文化，是生命力還是枷鎖？從巴黎人的眼光，看文明的排外與包容(歷史上的今天20190515第347期） | [下载](https://y2mate.com/zh-cn/search/eEB949j3-CU) | [下载](../channels/jiangfeng/eEB949j3-CU.srt?raw=true) | [下载](../channels/jiangfeng/eEB949j3-CU.text?raw=true) | 
 | 歷史上的今天特刊 《白玫瑰傳單一》：放下怯懦，對抗極權 ，爭取自由的宣言。 最完整譯本 | [下载](https://y2mate.com/zh-cn/search/Rwz0GdrHYZA) | [下载](../channels/jiangfeng/Rwz0GdrHYZA.srt?raw=true) | [下载](../channels/jiangfeng/Rwz0GdrHYZA.text?raw=true) | 
