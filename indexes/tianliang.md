@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 前證監會主席劉士余主動投案 預示高層大地震；高官都在坐等出事的末日心態，與棄船逃生的“末日方舟”計劃（政論天下第8集20190519）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/R05Hc6Dsb_s) | [下载](../channels/tianliang/R05Hc6Dsb_s.srt?raw=true) | [下载](../channels/tianliang/R05Hc6Dsb_s.text?raw=true) | 
 | 中美關係驚天逆轉系列：川普政府力阻“蜻蜓計畫”的深度內幕（下）（哲思心語第5集20190517）／天亮時分 | [下载](https://y2mate.com/zh-cn/search/z6z3_X2pC9I) | [下载](../channels/tianliang/z6z3_X2pC9I.srt?raw=true) | [下载](../channels/tianliang/z6z3_X2pC9I.text?raw=true) | 
 | 中美關係驚天逆轉系列：川普政府力阻“蜻蜓計畫”的深度內幕（中）（哲思心語第4集20190515）／天亮時分 | [下载](https://y2mate.com/zh-cn/search/W5luw2cQHgc) | [下载](../channels/tianliang/W5luw2cQHgc.srt?raw=true) | [下载](../channels/tianliang/W5luw2cQHgc.text?raw=true) | 
 | 中共關稅報復出爐 六月的川習會無簽署協議基本沒戲 國際金融大鱷可能做空中國-中美貿易戰局分析（5）（政論天下第8集20190513）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/ok7ommYo6E0) | [下载](../channels/tianliang/ok7ommYo6E0.srt?raw=true) | [下载](../channels/tianliang/ok7ommYo6E0.text?raw=true) | 
