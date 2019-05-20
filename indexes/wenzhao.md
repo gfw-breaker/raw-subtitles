@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 急速升级，谷歌和芯片商断供华为！13亿人市场是最后支柱？（20190520第570期） | [下载](https://y2mate.com/zh-cn/search/ZIniMuFBzEw) | [下载](../channels/wenzhao/ZIniMuFBzEw.srt?raw=true) | [下载](../channels/wenzhao/ZIniMuFBzEw.text?raw=true) | 
 | 逆天的发现——奴隶制竟比自由雇佣更有效率！（20190517) | [下载](https://y2mate.com/zh-cn/search/hmq6Obq4kVM) | [下载](../channels/wenzhao/hmq6Obq4kVM.srt?raw=true) | [下载](../channels/wenzhao/hmq6Obq4kVM.text?raw=true) | 
 | 川普大招，为彻底终结华为做准备？中国一近一远两个方案（20190515第569期） | [下载](https://y2mate.com/zh-cn/search/wnVB5j7KBKI) | [下载](../channels/wenzhao/wnVB5j7KBKI.srt?raw=true) | [下载](../channels/wenzhao/wnVB5j7KBKI.text?raw=true) | 
 | 北京反击美国一大二小三张王牌，首先禁止对美出口一种重要资源！（20180514第568期） | [下载](https://y2mate.com/zh-cn/search/3mv43Kj-MT8) | [下载](../channels/wenzhao/3mv43Kj-MT8.srt?raw=true) | [下载](../channels/wenzhao/3mv43Kj-MT8.text?raw=true) | 
