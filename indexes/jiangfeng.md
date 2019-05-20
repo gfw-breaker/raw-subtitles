@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 1989年，中國爆發民主革命的那一年，薩哈羅夫去世-----獨裁統治下知識分子的操守和靈魂（歷史上的今天20190521第351期） | [下载](https://y2mate.com/zh-cn/search/5dH6Hs5z4KI) | [下载](../channels/jiangfeng/5dH6Hs5z4KI.srt?raw=true) | [下载](../channels/jiangfeng/5dH6Hs5z4KI.text?raw=true) | 
 | 中美貿易戰如何應戰，習近平出高招： 毛澤東思想來武裝—從520聲明看中國人仇美是怎樣被忽悠的（歷史上的今天20190520第350期） | [下载](https://y2mate.com/zh-cn/search/pdeXZ3aAKAE) | [下载](../channels/jiangfeng/pdeXZ3aAKAE.srt?raw=true) | [下载](../channels/jiangfeng/pdeXZ3aAKAE.text?raw=true) | 
 | 川普下重手終結華為，出口管制全面斷供，華為掙扎乏力--習近平會再次求情麼？（《週末漫談》20190518第25期） | [下载](https://y2mate.com/zh-cn/search/qh-e0HAcMjI) | [下载](../channels/jiangfeng/qh-e0HAcMjI.srt?raw=true) | [下载](../channels/jiangfeng/qh-e0HAcMjI.text?raw=true) | 
 | 中美貿易戰和中央救市，誰在真正傷害中國股市， 從梧桐樹協議說起（歷史上的今天20190517第349期） | [下载](https://y2mate.com/zh-cn/search/cyEdU-9CteU) | [下载](../channels/jiangfeng/cyEdU-9CteU.srt?raw=true) | [下载](../channels/jiangfeng/cyEdU-9CteU.text?raw=true) | 
