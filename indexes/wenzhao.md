@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 海康威视也要被禁，习主席要打稀土战争！邱吉尔与习近平的“死扛”（20190522第572期） | [下载](https://y2mate.com/zh-cn/search/aFIKh9T9eOw) | [下载](../channels/wenzhao/aFIKh9T9eOw.srt?raw=true) | [下载](../channels/wenzhao/aFIKh9T9eOw.text?raw=true) | 
 | 压力急升，习近平连串动作“走毛路”抗美保党（20190521第571期） | [下载](https://y2mate.com/zh-cn/search/RRcybTklLYk) | [下载](../channels/wenzhao/RRcybTklLYk.srt?raw=true) | [下载](../channels/wenzhao/RRcybTklLYk.text?raw=true) | 
 | 急速升级，谷歌和芯片商断供华为！13亿人市场是最后支柱？（20190520第570期） | [下载](https://y2mate.com/zh-cn/search/ZIniMuFBzEw) | [下载](../channels/wenzhao/ZIniMuFBzEw.srt?raw=true) | [下载](../channels/wenzhao/ZIniMuFBzEw.text?raw=true) | 
 | 逆天的发现——奴隶制竟比自由雇佣更有效率！（20190517) | [下载](https://y2mate.com/zh-cn/search/hmq6Obq4kVM) | [下载](../channels/wenzhao/hmq6Obq4kVM.srt?raw=true) | [下载](../channels/wenzhao/hmq6Obq4kVM.text?raw=true) | 
