@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 美、德、以三國情報部聯合行動追補一名外號“屠夫”的醫生—門格勒（歷史上的今天20190524第354期） | [下载](https://y2mate.com/zh-cn/search/iTCbnDhRtfQ) | [下载](../channels/jiangfeng/iTCbnDhRtfQ.srt?raw=true) | [下载](../channels/jiangfeng/iTCbnDhRtfQ.text?raw=true) | 
 | 他用人皮做成《我的奮鬥》封面，他曾想帶領全體德軍向盟軍投降，黨性奴役下的蓋世太保頭子---希姆萊（歷史上的今天20190523第353期） | [下载](https://y2mate.com/zh-cn/search/TpXifMPoVuY) | [下载](../channels/jiangfeng/TpXifMPoVuY.srt?raw=true) | [下载](../channels/jiangfeng/TpXifMPoVuY.text?raw=true) | 
 | 他把福爾摩斯寫活了，再想把福爾摩斯寫死......柯南·道爾（歷史上的今天20190522第352期） | [下载](https://y2mate.com/zh-cn/search/JF3qJ9SkvUk) | [下载](../channels/jiangfeng/JF3qJ9SkvUk.srt?raw=true) | [下载](../channels/jiangfeng/JF3qJ9SkvUk.text?raw=true) | 
 | 1989年，中國爆發民主革命的那一年，薩哈羅夫去世-----獨裁統治下知識分子的操守和靈魂（歷史上的今天20190521第351期） | [下载](https://y2mate.com/zh-cn/search/5dH6Hs5z4KI) | [下载](../channels/jiangfeng/5dH6Hs5z4KI.srt?raw=true) | [下载](../channels/jiangfeng/5dH6Hs5z4KI.text?raw=true) | 
