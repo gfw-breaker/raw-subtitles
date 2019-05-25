@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 微軟停止支持華為 華為困境與全球化的關係，貿易戰與世界秩序的重建（政論天下第12集20190525）／天亮時分 | [下载](https://y2mate.com/zh-cn/search/szTqfLTM5R0) | [下载](../channels/tianliang/szTqfLTM5R0.srt?raw=true) | [下载](../channels/tianliang/szTqfLTM5R0.text?raw=true) | 
 | 中美貿易戰正在重塑台灣兩岸格局 兩岸經濟發展形勢將會逆轉（政論天下第11集 20190523）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/CxPc0t-rgFA) | [下载](../channels/tianliang/CxPc0t-rgFA.srt?raw=true) | [下载](../channels/tianliang/CxPc0t-rgFA.text?raw=true) | 
 | 谷歌對華為的絕殺令——“禁用安卓”；華為靠備胎芯片可以逃出生天嗎？ （政論天下第10集 20190521）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/cQeYWn21BEY) | [下载](../channels/tianliang/cQeYWn21BEY.srt?raw=true) | [下载](../channels/tianliang/cQeYWn21BEY.text?raw=true) | 
 | 前證監會主席劉士余主動投案 預示高層大地震；高官都在坐等出事的末日心態，與棄船逃生的“末日方舟”計劃（政論天下第8集20190519）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/R05Hc6Dsb_s) | [下载](../channels/tianliang/R05Hc6Dsb_s.srt?raw=true) | [下载](../channels/tianliang/R05Hc6Dsb_s.text?raw=true) | 
