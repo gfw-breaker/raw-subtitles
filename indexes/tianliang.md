@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 華為的資金鏈還能維持多久？大時代的無情選擇與華為的生存概率分析（政論天下第13集20190527）天亮時分 | [下载](https://y2mate.com/zh-cn/search/AIlqc1RSKmw) | [下载](../channels/tianliang/AIlqc1RSKmw.srt?raw=true) | [下载](../channels/tianliang/AIlqc1RSKmw.text?raw=true) | 
 | 微軟停止支持華為 華為困境與全球化的關係，貿易戰與世界秩序的重建（政論天下第12集20190525）／天亮時分 | [下载](https://y2mate.com/zh-cn/search/szTqfLTM5R0) | [下载](../channels/tianliang/szTqfLTM5R0.srt?raw=true) | [下载](../channels/tianliang/szTqfLTM5R0.text?raw=true) | 
 | 中美貿易戰正在重塑台灣兩岸格局 兩岸經濟發展形勢將會逆轉（政論天下第11集 20190523）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/CxPc0t-rgFA) | [下载](../channels/tianliang/CxPc0t-rgFA.srt?raw=true) | [下载](../channels/tianliang/CxPc0t-rgFA.text?raw=true) | 
 | 谷歌對華為的絕殺令——“禁用安卓”；華為靠備胎芯片可以逃出生天嗎？ （政論天下第10集 20190521）_天亮時分 | [下载](https://y2mate.com/zh-cn/search/cQeYWn21BEY) | [下载](../channels/tianliang/cQeYWn21BEY.srt?raw=true) | [下载](../channels/tianliang/cQeYWn21BEY.text?raw=true) | 

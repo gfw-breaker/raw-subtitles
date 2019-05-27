@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 美國總統的一次野外生存體驗，改變了美國對大自然的態度。從約翰·謬爾談專制下的思想統一與民主體制下的思想多樣性（歷史上的今天20190528第356期） | [下载](https://y2mate.com/zh-cn/search/yAVCSaU4kSk) | [下载](../channels/jiangfeng/yAVCSaU4kSk.srt?raw=true) | [下载](../channels/jiangfeng/yAVCSaU4kSk.text?raw=true) | 
 | 八九六四與光州事件：跪求與要求的民主，同樣的坦克碾壓，不同的結果（歷史上的今天20190527第355期） | [下载](https://y2mate.com/zh-cn/search/_KJx_a6lM-w) | [下载](../channels/jiangfeng/_KJx_a6lM-w.srt?raw=true) | [下载](../channels/jiangfeng/_KJx_a6lM-w.text?raw=true) | 
 | 習近平知道中國稀土的走私路線圖麼？中美貿易戰後即將爆發的三大戰役（《週末漫談》20190525第26期 | [下载](https://y2mate.com/zh-cn/search/whvsvlzHMsY) | [下载](../channels/jiangfeng/whvsvlzHMsY.srt?raw=true) | [下载](../channels/jiangfeng/whvsvlzHMsY.text?raw=true) | 
 | 美、德、以三國情報部聯合行動追補一名外號“屠夫”的醫生—門格勒（歷史上的今天20190524第354期） | [下载](https://y2mate.com/zh-cn/search/iTCbnDhRtfQ) | [下载](../channels/jiangfeng/iTCbnDhRtfQ.srt?raw=true) | [下载](../channels/jiangfeng/iTCbnDhRtfQ.text?raw=true) | 
