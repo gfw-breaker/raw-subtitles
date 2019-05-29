@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 稀土战开始！川普压破中南海“南北平衡“，一人强势崛起（20190529第575期） | [下载](https://y2mate.com/zh-cn/search/LIIiwQTbpXY) | [下载](../channels/wenzhao/LIIiwQTbpXY.srt?raw=true) | [下载](../channels/wenzhao/LIIiwQTbpXY.text?raw=true) | 
 | 微软加入剿杀华为，川普藏一套大招未用！“地滚刀法”可助脱困？（20190527第574期） | [下载](https://y2mate.com/zh-cn/search/tnpT-owLCqM) | [下载](../channels/wenzhao/tnpT-owLCqM.srt?raw=true) | [下载](../channels/wenzhao/tnpT-owLCqM.text?raw=true) | 
 | 一位革命领袖的陨落的姿势；习近平“阶级斗争”预备上路（20190524第573期） | [下载](https://y2mate.com/zh-cn/search/wqdzsOcQeEI) | [下载](../channels/wenzhao/wqdzsOcQeEI.srt?raw=true) | [下载](../channels/wenzhao/wqdzsOcQeEI.text?raw=true) | 
 | 海康威视也要被禁，习主席要打稀土战争！邱吉尔与习近平的“死扛”（20190522第572期） | [下载](https://y2mate.com/zh-cn/search/aFIKh9T9eOw) | [下载](../channels/wenzhao/aFIKh9T9eOw.srt?raw=true) | [下载](../channels/wenzhao/aFIKh9T9eOw.text?raw=true) | 
