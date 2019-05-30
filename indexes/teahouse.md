@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中美谈崩内幕：要中共开放网络？李克强过紧日子，爱国须爱失业涨价！中共大危机(三)【老北京茶馆】第149集 (2019-5-30) | [下载](https://y2mate.com/zh-cn/search/vmjzdiI8YUg) | [下载](../channels/teahouse/vmjzdiI8YUg.srt?raw=true) | [下载](../channels/teahouse/vmjzdiI8YUg.text?raw=true) | 
 | 中美贸易战韩正抱习一起沉没？中共救命稻草：毛路线阶级论？中共危机真来了(二) 【老北京茶馆】第148集 (2019-5-26) | [下载](https://y2mate.com/zh-cn/search/dkv88GU5A6w) | [下载](../channels/teahouse/dkv88GU5A6w.srt?raw=true) | [下载](../channels/teahouse/dkv88GU5A6w.text?raw=true) | 
 | 川普令围剿华为，任正非上央视反党？习近平拜稀土求长征！中共危机真来了（一）【老北京茶馆】第147集 (2019-5-23) | [下载](https://y2mate.com/zh-cn/search/FiY-xm9KP20) | [下载](../channels/teahouse/FiY-xm9KP20.srt?raw=true) | [下载](../channels/teahouse/FiY-xm9KP20.text?raw=true) | 
 | 割韭菜飓风！马云、王倩、范冰冰、刘芳菲、湖南衡东…【老北京茶馆】第109集 (2019-5-20) | [下载](https://y2mate.com/zh-cn/search/0WdxeZBG6wk) | [下载](../channels/teahouse/0WdxeZBG6wk.srt?raw=true) | [下载](../channels/teahouse/0WdxeZBG6wk.text?raw=true) | 
