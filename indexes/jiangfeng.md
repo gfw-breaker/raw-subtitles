@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 國家在犯罪，政府在迫害，我只是在執行命令，我只是沒有多想而跟隨行惡—我有罪麼？艾希曼的絞刑帶來的思考（歷史上的今天20190531第359期） | [下载](https://y2mate.com/zh-cn/search/NtbEjwNbdaQ) | [下载](../channels/jiangfeng/NtbEjwNbdaQ.srt?raw=true) | [下载](../channels/jiangfeng/NtbEjwNbdaQ.text?raw=true) | 
 | 彭麗媛藝術指導《白毛女》，習近平指令全黨一起看。問題是地主黃世仁們都在人民大會堂呀 誰斗誰呢？（歷史上的今天20190530第358期） | [下载](https://y2mate.com/zh-cn/search/hKGvsCKSm44) | [下载](../channels/jiangfeng/hKGvsCKSm44.srt?raw=true) | [下载](../channels/jiangfeng/hKGvsCKSm44.text?raw=true) | 
 | “我把世界踩在脚下”与“留下一米给巅峰”， 珠穆朗玛峰登顶看一个民族强大崛起，对这个世界的不同态度（歷史上的今天20190529第357期） | [下载](https://y2mate.com/zh-cn/search/IfgjKncmPO4) | [下载](../channels/jiangfeng/IfgjKncmPO4.srt?raw=true) | [下载](../channels/jiangfeng/IfgjKncmPO4.text?raw=true) | 
 | 美國總統的一次野外生存體驗，改變了美國對大自然的態度。從約翰·謬爾談專制下的思想統一與民主體制下的思想多樣性（歷史上的今天20190528第356期） | [下载](https://y2mate.com/zh-cn/search/yAVCSaU4kSk) | [下载](../channels/jiangfeng/yAVCSaU4kSk.srt?raw=true) | [下载](../channels/jiangfeng/yAVCSaU4kSk.text?raw=true) | 
