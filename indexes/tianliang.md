@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 中方確定六月舉行川習會，簽署協議無望。中共拋售美債和稀土王牌的有效性詳解？民族主義牌這次會不靈了。（政論天下第15集20190531）天亮時分 | [下载](https://y2mate.com/zh-cn/search/afzzD360_ss) | [下载](../channels/tianliang/afzzD360_ss.srt?raw=true) | [下载](../channels/tianliang/afzzD360_ss.text?raw=true) | 
 | 中美貿易戰達成協議已無希望 談判破裂具體原因曝光 人民幣匯率將貶到多少？美國的致命大招尚未使用（政論天下第14集20190529）天亮時分 | [下载](https://y2mate.com/zh-cn/search/jGqYcROh8ZI) | [下载](../channels/tianliang/jGqYcROh8ZI.srt?raw=true) | [下载](../channels/tianliang/jGqYcROh8ZI.text?raw=true) | 
 | 華為的資金鏈還能維持多久？大時代的無情選擇與華為的生存概率分析（政論天下第13集20190527）天亮時分 | [下载](https://y2mate.com/zh-cn/search/AIlqc1RSKmw) | [下载](../channels/tianliang/AIlqc1RSKmw.srt?raw=true) | [下载](../channels/tianliang/AIlqc1RSKmw.text?raw=true) | 
 | 微軟停止支持華為 華為困境與全球化的關係，貿易戰與世界秩序的重建（政論天下第12集20190525）／天亮時分 | [下载](https://y2mate.com/zh-cn/search/szTqfLTM5R0) | [下载](../channels/tianliang/szTqfLTM5R0.srt?raw=true) | [下载](../channels/tianliang/szTqfLTM5R0.text?raw=true) | 
