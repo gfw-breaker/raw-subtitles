@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 廣大民眾冷漠的人性，對罪惡視而不見，才讓惡人有機會行惡--解讀白玫瑰的第二份傳單（歷史上的今天特刊 20190603第2期） | [下载](https://y2mate.com/zh-cn/search/8koy9LLAioo) | [下载](../channels/jiangfeng/8koy9LLAioo.srt?raw=true) | [下载](../channels/jiangfeng/8koy9LLAioo.text?raw=true) | 
 | 中美冷戰系列一 意識形態戰：美國國務院促提交中共人權宗教信仰迫害者名單；美國女主播辯論是中計了（《週末漫談》20190602第27期） | [下载](https://y2mate.com/zh-cn/search/2Jxh0kfhFag) | [下载](../channels/jiangfeng/2Jxh0kfhFag.srt?raw=true) | [下载](../channels/jiangfeng/2Jxh0kfhFag.text?raw=true) | 
 | 不是說天安門的屠殺沒有證據麼？大量真實史料首次披露 （八九六四30週年特別回顧） (歷史上的今天64節目重播 20190601第360期） | [下载](https://y2mate.com/zh-cn/search/Eb8et053uJo) | [下载](../channels/jiangfeng/Eb8et053uJo.srt?raw=true) | [下载](../channels/jiangfeng/Eb8et053uJo.text?raw=true) | 
 | 國家在犯罪，政府在迫害，我只是在執行命令，我只是沒有多想而跟隨行惡—我有罪麼？艾希曼的絞刑帶來的思考（歷史上的今天20190531第359期） | [下载](https://y2mate.com/zh-cn/search/NtbEjwNbdaQ) | [下载](../channels/jiangfeng/NtbEjwNbdaQ.srt?raw=true) | [下载](../channels/jiangfeng/NtbEjwNbdaQ.text?raw=true) | 
