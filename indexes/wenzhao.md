@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 重要信号！美国欲把贸易谈判和人权挂钩？苹果变土豪食品有名堂（20190605第578期） | [下载](https://y2mate.com/zh-cn/search/ARtiUooJTkM) | [下载](../channels/wenzhao/ARtiUooJTkM.srt?raw=true) | [下载](../channels/wenzhao/ARtiUooJTkM.text?raw=true) | 
 | 美国把关税加到50%将发生什么；六四30周年谷歌传将被查（20190603第577期） | [下载](https://y2mate.com/zh-cn/search/XLzH01FSV2g) | [下载](../channels/wenzhao/XLzH01FSV2g.srt?raw=true) | [下载](../channels/wenzhao/XLzH01FSV2g.text?raw=true) | 
 | 美中女主播辩论攻防点评，五毛三宝；习主席要学慈禧老太后（20190531第576期） | [下载](https://y2mate.com/zh-cn/search/Sc80rRg5jOM) | [下载](../channels/wenzhao/Sc80rRg5jOM.srt?raw=true) | [下载](../channels/wenzhao/Sc80rRg5jOM.text?raw=true) | 
 | 稀土战开始！川普压破中南海“南北平衡“，一人强势崛起（20190529第575期） | [下载](https://y2mate.com/zh-cn/search/LIIiwQTbpXY) | [下载](../channels/wenzhao/LIIiwQTbpXY.srt?raw=true) | [下载](../channels/wenzhao/LIIiwQTbpXY.text?raw=true) | 
