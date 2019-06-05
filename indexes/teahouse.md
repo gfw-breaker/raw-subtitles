@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 美国重击！江志成、薄瓜瓜中头彩？孩子：我现在告诉你埋藏30年的六四记忆！【老北京茶馆】第151集 (2019-6-5) | [下载](https://y2mate.com/zh-cn/search/xZ8_5aOvjdg) | [下载](../channels/teahouse/xZ8_5aOvjdg.srt?raw=true) | [下载](../channels/teahouse/xZ8_5aOvjdg.text?raw=true) | 
 | 突发！美重击中共！征集官员信息，启动对迫害信仰者及家属签证审查！中共大危机 (四) 【老北京茶馆】第150集 (2019-6-2) | [下载](https://y2mate.com/zh-cn/search/fpgow0trHrM) | [下载](../channels/teahouse/fpgow0trHrM.srt?raw=true) | [下载](../channels/teahouse/fpgow0trHrM.text?raw=true) | 
 | 中美谈崩内幕：要中共开放网络？李克强过紧日子，爱国须爱失业涨价！中共大危机(三)【老北京茶馆】第149集 (2019-5-30) | [下载](https://y2mate.com/zh-cn/search/vmjzdiI8YUg) | [下载](../channels/teahouse/vmjzdiI8YUg.srt?raw=true) | [下载](../channels/teahouse/vmjzdiI8YUg.text?raw=true) | 
 | 中美贸易战韩正抱习一起沉没？中共救命稻草：毛路线阶级论？中共危机真来了(二) 【老北京茶馆】第148集 (2019-5-26) | [下载](https://y2mate.com/zh-cn/search/dkv88GU5A6w) | [下载](../channels/teahouse/dkv88GU5A6w.srt?raw=true) | [下载](../channels/teahouse/dkv88GU5A6w.text?raw=true) | 
