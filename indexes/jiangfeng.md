@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 抗議還是支持，川普和媒體誰看走眼了；諾曼底登陸日選邊站：習近平+普京VS西方盟國(川普推推推20190605第1期） | [下载](https://y2mate.com/zh-cn/search/gX3oXS98y2I) | [下载](../channels/jiangfeng/gX3oXS98y2I.srt?raw=true) | [下载](../channels/jiangfeng/gX3oXS98y2I.text?raw=true) | 
 | 江峰第一次介紹他的團隊。會員網站要在“芒種”（06_06_2019）這天開通，大家來捧場呀！ | [下载](https://y2mate.com/zh-cn/search/F6cGyFX7xDE) | [下载](../channels/jiangfeng/F6cGyFX7xDE.srt?raw=true) | [下载](../channels/jiangfeng/F6cGyFX7xDE.text?raw=true) | 
 | 衰敗還是繁榮？用經濟戰打垮強大蘇聯的里根總統35年前預見中國的發展道路(歷史上的今天20190605第362期） | [下载](https://y2mate.com/zh-cn/search/EeLBN3MiZyQ) | [下载](../channels/jiangfeng/EeLBN3MiZyQ.srt?raw=true) | [下载](../channels/jiangfeng/EeLBN3MiZyQ.text?raw=true) | 
 | 八九六四续篇----黄雀行动（歷史上的今天20190604第362期） | [下载](https://y2mate.com/zh-cn/search/FwCNuHLnXlU) | [下载](../channels/jiangfeng/FwCNuHLnXlU.srt?raw=true) | [下载](../channels/jiangfeng/FwCNuHLnXlU.text?raw=true) | 
