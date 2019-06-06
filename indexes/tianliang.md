@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| ”六四“三十周年特别节目（2）胡耀邦逝世 学潮乍起（史海揚帆第11集20190606）天亮時分 | [下载](https://y2mate.com/zh-cn/search/3N2drCcZGJ0) | [下载](../channels/tianliang/3N2drCcZGJ0.srt?raw=true) | [下载](../channels/tianliang/3N2drCcZGJ0.text?raw=true) | 
 | “六四“三十周年特别节目（1）八九民运的背景（史海扬帆第10集20190604）天亮时分 | [下载](https://y2mate.com/zh-cn/search/CoZOCMixz8k) | [下载](../channels/tianliang/CoZOCMixz8k.srt?raw=true) | [下载](../channels/tianliang/CoZOCMixz8k.text?raw=true) | 
 | 20190602 美國公佈並凍結中共貪官在美財產結果會怎樣？貿易戰中，美國還有哪些大殺器？人權是否應成為貿易戰的一部分？（政論天下第16集20190602）天亮時分 | [下载](https://y2mate.com/zh-cn/search/fump7gwYnOc) | [下载](../channels/tianliang/fump7gwYnOc.srt?raw=true) | [下载](../channels/tianliang/fump7gwYnOc.text?raw=true) | 
 | 中方確定六月舉行川習會，簽署協議無望。中共拋售美債和稀土王牌的有效性詳解？民族主義牌這次會不靈了。（政論天下第15集20190531）天亮時分 | [下载](https://y2mate.com/zh-cn/search/afzzD360_ss) | [下载](../channels/tianliang/afzzD360_ss.srt?raw=true) | [下载](../channels/tianliang/afzzD360_ss.text?raw=true) | 
