@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 习近平脚疾复发？在俄罗斯差点跌下台。习近平执政的基本盘何在？王沪宁是否属于政治局内的反习势力？（政论天下第17集20190608） | [下载](https://y2mate.com/zh-cn/search/Kh-DlNDdTj4) | [下载](../channels/tianliang/Kh-DlNDdTj4.srt?raw=true) | [下载](../channels/tianliang/Kh-DlNDdTj4.text?raw=true) | 
 | ”六四“三十周年特别节目（2）胡耀邦逝世 学潮乍起（史海揚帆第11集20190606）天亮時分 | [下载](https://y2mate.com/zh-cn/search/3N2drCcZGJ0) | [下载](../channels/tianliang/3N2drCcZGJ0.srt?raw=true) | [下载](../channels/tianliang/3N2drCcZGJ0.text?raw=true) | 
 | “六四“三十周年特别节目（1）八九民运的背景（史海扬帆第10集20190604）天亮时分 | [下载](https://y2mate.com/zh-cn/search/CoZOCMixz8k) | [下载](../channels/tianliang/CoZOCMixz8k.srt?raw=true) | [下载](../channels/tianliang/CoZOCMixz8k.text?raw=true) | 
 | 20190602 美國公佈並凍結中共貪官在美財產結果會怎樣？貿易戰中，美國還有哪些大殺器？人權是否應成為貿易戰的一部分？（政論天下第16集20190602）天亮時分 | [下载](https://y2mate.com/zh-cn/search/fump7gwYnOc) | [下载](../channels/tianliang/fump7gwYnOc.srt?raw=true) | [下载](../channels/tianliang/fump7gwYnOc.text?raw=true) | 
