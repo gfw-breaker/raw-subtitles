@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 文昭答问：出于恐惧的“客观中立”是投降，投降了还怎么中立？（20190609第580期） | [下载](https://y2mate.com/zh-cn/search/4LcjE-cbJlc) | [下载](../channels/wenzhao/4LcjE-cbJlc.srt?raw=true) | [下载](../channels/wenzhao/4LcjE-cbJlc.text?raw=true) | 
 | 任正非首度谈华为“后事”；华为被脸书（Facebook）断供（20190607第579期） | [下载](https://y2mate.com/zh-cn/search/24R2M7QPcoc) | [下载](../channels/wenzhao/24R2M7QPcoc.srt?raw=true) | [下载](../channels/wenzhao/24R2M7QPcoc.text?raw=true) | 
 | 重要信号！美国欲把贸易谈判和人权挂钩？苹果变土豪食品有名堂（20190605第578期） | [下载](https://y2mate.com/zh-cn/search/ARtiUooJTkM) | [下载](../channels/wenzhao/ARtiUooJTkM.srt?raw=true) | [下载](../channels/wenzhao/ARtiUooJTkM.text?raw=true) | 
 | 美国把关税加到50%将发生什么；六四30周年谷歌传将被查（20190603第577期） | [下载](https://y2mate.com/zh-cn/search/XLzH01FSV2g) | [下载](../channels/wenzhao/XLzH01FSV2g.srt?raw=true) | [下载](../channels/wenzhao/XLzH01FSV2g.text?raw=true) | 
