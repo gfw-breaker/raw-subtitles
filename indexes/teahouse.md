@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 103万港人反送中，林郑仍二读？ 倪匡：我没说“伎女比共产党更可信”，太侮辱伎女！【老北京茶馆】第153集 (2019-6-11) | [下载](https://y2mate.com/zh-cn/search/hO1vL5WVg30) | [下载](../channels/teahouse/hO1vL5WVg30.srt?raw=true) | [下载](../channels/teahouse/hO1vL5WVg30.text?raw=true) | 
 | 王沪宁教华为“寻死觅活”？高考季，教育部发留学预警！“反美赴美模式”失灵！【老北京茶馆】第152集 (2019-6-8) | [下载](https://y2mate.com/zh-cn/search/bgmMhlH0K6o) | [下载](../channels/teahouse/bgmMhlH0K6o.srt?raw=true) | [下载](../channels/teahouse/bgmMhlH0K6o.text?raw=true) | 
 | 美国重击！江志成、薄瓜瓜中头彩？孩子：我现在告诉你埋藏30年的六四记忆！【老北京茶馆】第151集 (2019-6-5) | [下载](https://y2mate.com/zh-cn/search/xZ8_5aOvjdg) | [下载](../channels/teahouse/xZ8_5aOvjdg.srt?raw=true) | [下载](../channels/teahouse/xZ8_5aOvjdg.text?raw=true) | 
 | 突发！美重击中共！征集官员信息，启动对迫害信仰者及家属签证审查！中共大危机 (四) 【老北京茶馆】第150集 (2019-6-2) | [下载](https://y2mate.com/zh-cn/search/fpgow0trHrM) | [下载](../channels/teahouse/fpgow0trHrM.srt?raw=true) | [下载](../channels/teahouse/fpgow0trHrM.text?raw=true) | 
