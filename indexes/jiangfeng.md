@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 香港民意被輕視，罷工轉為暴力的必然和根源。駐港部隊會出動麼？中共迎來六四後第二次國際制裁？（江峰漫談20190611第2期） | [下载](https://y2mate.com/zh-cn/search/t-5nIlTShXg) | [下载](../channels/jiangfeng/t-5nIlTShXg.srt?raw=true) | [下载](../channels/jiangfeng/t-5nIlTShXg.text?raw=true) | 
 | 香港「反送中」百萬人大遊行，江峰同唱《看誰還未覺醒》； 林鄭月娥的美國簽證要有問題了？一國兩制原來是對付台灣的統戰利器，提前暴露了。（江峰漫談20190610第1期） | [下载](https://y2mate.com/zh-cn/search/T5F83hzS_6s) | [下载](../channels/jiangfeng/T5F83hzS_6s.srt?raw=true) | [下载](../channels/jiangfeng/T5F83hzS_6s.text?raw=true) | 
 | 習近平生日快到了，他害怕還是期盼過生日呢？川普推文談中共補貼和企業回流(川普推推推 20190607第3期） | [下载](https://y2mate.com/zh-cn/search/JBR0vgBRSlM) | [下载](../channels/jiangfeng/JBR0vgBRSlM.srt?raw=true) | [下载](../channels/jiangfeng/JBR0vgBRSlM.text?raw=true) | 
 | 中共貿易戰嚴重誤判的原因找到了，盼著川普下台的分析是誰給出來的，川普推特獨家點評；通過川普推特學英文(川普推推推20190606第2期） | [下载](https://y2mate.com/zh-cn/search/MRL0aOPV6rQ) | [下载](../channels/jiangfeng/MRL0aOPV6rQ.srt?raw=true) | [下载](../channels/jiangfeng/MRL0aOPV6rQ.text?raw=true) | 
