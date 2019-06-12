@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 香港暴力驅散示威者 “送中條例”的前景預測 何為當前公民抗命的最有效方法？若條例通過港幣匯率將崩潰 外資撤港將會狠狠打擊中共（政論天下第20集20190612）天亮時分 | [下载](https://y2mate.com/zh-cn/search/r3PBsEWBsrg) | [下载](../channels/tianliang/r3PBsEWBsrg.srt?raw=true) | [下载](../channels/tianliang/r3PBsEWBsrg.text?raw=true) | 
 | 川普张开天网 习近平陷入囚徒困境 中国百姓做好这三件事就可以分得贪官赃款 并迎接自由的中国 （政论天下第19集20190610）天亮时分 | [下载](https://y2mate.com/zh-cn/search/8qsc5mXhRRY) | [下载](../channels/tianliang/8qsc5mXhRRY.srt?raw=true) | [下载](../channels/tianliang/8qsc5mXhRRY.text?raw=true) | 
 | 香港百万人大游行反对“送中条例” 谁才有可能破坏“一国两制”？（政论天下第18集20190609）天亮时分 | [下载](https://y2mate.com/zh-cn/search/fEnqXbV_zec) | [下载](../channels/tianliang/fEnqXbV_zec.srt?raw=true) | [下载](../channels/tianliang/fEnqXbV_zec.text?raw=true) | 
 | 习近平脚疾复发？在俄罗斯差点跌下台。习近平执政的基本盘何在？王沪宁是否属于政治局内的反习势力？（政论天下第17集20190608） | [下载](https://y2mate.com/zh-cn/search/Kh-DlNDdTj4) | [下载](../channels/tianliang/Kh-DlNDdTj4.srt?raw=true) | [下载](../channels/tianliang/Kh-DlNDdTj4.text?raw=true) | 
