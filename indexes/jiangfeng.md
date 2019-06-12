@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 錯放一個壞人和錯判一個好人，哪個更糟糕？香港反送中的原由：法制保護的是人而不是“好人”----由米蘭達警告說開去 （歷史上的今天 20190613第363期） | [下载](https://y2mate.com/zh-cn/search/xvVBF9uDNnc) | [下载](../channels/jiangfeng/xvVBF9uDNnc.srt?raw=true) | [下载](../channels/jiangfeng/xvVBF9uDNnc.text?raw=true) | 
 | 突變：香港立法委在最後時刻宣布延期“送中條例”二讀。樓外示威者並不散去，現場下雨，香港人再次撐起雨傘（江峰漫談20190612第3期） | [下载](https://y2mate.com/zh-cn/search/bGviFgWJKxk) | [下载](../channels/jiangfeng/bGviFgWJKxk.srt?raw=true) | [下载](../channels/jiangfeng/bGviFgWJKxk.text?raw=true) | 
 | 香港民意被輕視，罷工轉為暴力的必然和根源。駐港部隊會出動麼？中共迎來六四後第二次國際制裁？（江峰漫談20190611第2期） | [下载](https://y2mate.com/zh-cn/search/t-5nIlTShXg) | [下载](../channels/jiangfeng/t-5nIlTShXg.srt?raw=true) | [下载](../channels/jiangfeng/t-5nIlTShXg.text?raw=true) | 
 | 香港「反送中」百萬人大遊行，江峰同唱《看誰還未覺醒》； 林鄭月娥的美國簽證要有問題了？一國兩制原來是對付台灣的統戰利器，提前暴露了。（江峰漫談20190610第1期） | [下载](https://y2mate.com/zh-cn/search/T5F83hzS_6s) | [下载](../channels/jiangfeng/T5F83hzS_6s.srt?raw=true) | [下载](../channels/jiangfeng/T5F83hzS_6s.text?raw=true) | 
