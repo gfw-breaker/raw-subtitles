@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| （更新版）”六四“三十周年特别节目（3）从绝食到戒严（史海揚帆第12集20190613）天亮時分 | [下载](https://y2mate.com/zh-cn/search/w2obkPNJPqE) | [下载](../channels/tianliang/w2obkPNJPqE.srt?raw=true) | [下载](../channels/tianliang/w2obkPNJPqE.text?raw=true) | 
 | ”六四“三十周年特别节目（3）从绝食到戒严（史海揚帆第12集20190613）天亮時分 | [下载](https://y2mate.com/zh-cn/search/5_d-WrLYe2g) | [下载](../channels/tianliang/5_d-WrLYe2g.srt?raw=true) | [下载](../channels/tianliang/5_d-WrLYe2g.text?raw=true) | 
 | 香港如此驅散示威者 “送中條例”的前景預測 何為當前公民抗命的最有效方法？若條例通過港幣匯率將崩潰 外資撤港將會狠狠打擊中共（政論天下第20－1集20190612）天亮時分 | [下载](https://y2mate.com/zh-cn/search/HtxGPY-G3-c) | [下载](../channels/tianliang/HtxGPY-G3-c.srt?raw=true) | [下载](../channels/tianliang/HtxGPY-G3-c.text?raw=true) | 
 | 香港暴力驅散示威者 “送中條例”的前景預測 何為當前公民抗命的最有效方法？若條例通過港幣匯率將崩潰 外資撤港將會狠狠打擊中共（政論天下第20集20190612）天亮時分 | [下载](https://y2mate.com/zh-cn/search/r3PBsEWBsrg) | [下载](../channels/tianliang/r3PBsEWBsrg.srt?raw=true) | [下载](../channels/tianliang/r3PBsEWBsrg.text?raw=true) | 
