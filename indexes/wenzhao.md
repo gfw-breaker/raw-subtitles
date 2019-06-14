@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 抗争生效！香港建制派“送中”态度转变；美国出一大招施压（20190614第583期） | [下载](https://y2mate.com/zh-cn/search/UYuJxDnTYEs) | [下载](../channels/wenzhao/UYuJxDnTYEs.srt?raw=true) | [下载](../channels/wenzhao/UYuJxDnTYEs.text?raw=true) | 
 | 香港反“送中”升级，事态演变沙盘推演，一个突破是关键 （20190612第582期） | [下载](https://y2mate.com/zh-cn/search/T8kGEHDrbcY) | [下载](../channels/wenzhao/T8kGEHDrbcY.srt?raw=true) | [下载](../channels/wenzhao/T8kGEHDrbcY.text?raw=true) | 
 | 香港反“送中”事态演变沙盘推演，五要素里有一个是关键（20190612第582期） | [下载](https://y2mate.com/zh-cn/search/c-OsHcqi5-c) | [下载](../channels/wenzhao/c-OsHcqi5-c.srt?raw=true) | [下载](../channels/wenzhao/c-OsHcqi5-c.text?raw=true) | 
 | 香港百万人上街反“送中”；厚黑大师预言错误，“送中”先打两类人（20190610第581期） | [下载](https://y2mate.com/zh-cn/search/TETigQWvgx8) | [下载](../channels/wenzhao/TETigQWvgx8.srt?raw=true) | [下载](../channels/wenzhao/TETigQWvgx8.text?raw=true) | 
