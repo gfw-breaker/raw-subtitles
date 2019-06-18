@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 习近平访朝，逃避？结盟？反送中行动升级，硬汉加入，台湾呼应！北京迁怒林郑，晕！【短评快】006 (2019-6-18) | [下载](https://y2mate.com/zh-cn/search/pqjfbWyNjGs) | [下载](../channels/teahouse/pqjfbWyNjGs.srt?raw=true) | [下载](../channels/teahouse/pqjfbWyNjGs.text?raw=true) | 
 | 反送中第二季：林郑搬起石头，地上只剩自己的脚！军官泄密！逃犯条例红色祸心曝光！【短评快】005 (2019-6-16) | [下载](https://y2mate.com/zh-cn/search/EOmI4AbqNbg) | [下载](../channels/teahouse/EOmI4AbqNbg.srt?raw=true) | [下载](../channels/teahouse/EOmI4AbqNbg.text?raw=true) | 
 | 悬崖习近平 之 遭遇反送中：80万挺送中者起底！中共否认下令修例，林郑月娥被甩锅？【短评快】004 (2019-6-14) | [下载](https://y2mate.com/zh-cn/search/GPUMdA-iu2M) | [下载](../channels/teahouse/GPUMdA-iu2M.srt?raw=true) | [下载](../channels/teahouse/GPUMdA-iu2M.text?raw=true) | 
 | 103万港人反送中，林郑仍二读？ 倪匡：我没说“伎女比共产党更可信”，太侮辱伎女！【老北京茶馆】第153集 (2019-6-11) | [下载](https://y2mate.com/zh-cn/search/hO1vL5WVg30) | [下载](../channels/teahouse/hO1vL5WVg30.srt?raw=true) | [下载](../channels/teahouse/hO1vL5WVg30.text?raw=true) | 
