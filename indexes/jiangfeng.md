@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 深圳經濟特區是被大逃港逼出來的？中國柏林牆的故事，逃港的大陸人和無路可逃的香港人（歷史上的今天 20190619第365期） | [下载](https://y2mate.com/zh-cn/search/OXWcoiNGxSk) | [下载](../channels/jiangfeng/OXWcoiNGxSk.srt?raw=true) | [下载](../channels/jiangfeng/OXWcoiNGxSk.text?raw=true) | 
 | 現場直擊：香港6.16反“送中”大遊行 人數創紀錄 200萬零1人 （ 江峰漫談20190616第4集）（6.16特輯） | [下载](https://y2mate.com/zh-cn/search/GSL0btz_AUM) | [下载](../channels/jiangfeng/GSL0btz_AUM.srt?raw=true) | [下载](../channels/jiangfeng/GSL0btz_AUM.text?raw=true) | 
 | 《江峰時刻》會員網站上的一集我的《隨拍隨想》與大家分享（20190615） | [下载](https://y2mate.com/zh-cn/search/6K8nG-vIjss) | [下载](../channels/jiangfeng/6K8nG-vIjss.srt?raw=true) | [下载](../channels/jiangfeng/6K8nG-vIjss.text?raw=true) | 
 | 獻給香港「反送中」和平遊行特輯：'泛歐野餐“，一頓野餐把共產主義給吃沒了；當法律和良知衝突之時，良知是最高的行為準則（歷史上的今天20190614第364期） | [下载](https://y2mate.com/zh-cn/search/HiC0cRQ9UIo) | [下载](../channels/jiangfeng/HiC0cRQ9UIo.srt?raw=true) | [下载](../channels/jiangfeng/HiC0cRQ9UIo.text?raw=true) | 
