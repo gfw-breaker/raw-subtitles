@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 川習會在即，誰是那隻聰明的猴子？習近平的兩個小動作；貿易戰正酣，川普在佛州競選連任（天亮時分第23集20190619） | [下载](https://y2mate.com/zh-cn/search/twA0yKSbNpk) | [下载](../channels/tianliang/twA0yKSbNpk.srt?raw=true) | [下载](../channels/tianliang/twA0yKSbNpk.text?raw=true) | 
 | ”六四“三十周年特别节目（4）屠杀和省思 （史海楊帆第13集20190617）天亮時分 | [下载](https://y2mate.com/zh-cn/search/7Q1ysbEyz-4) | [下载](../channels/tianliang/7Q1ysbEyz-4.srt?raw=true) | [下载](../channels/tianliang/7Q1ysbEyz-4.text?raw=true) | 
 | 两百万人走上街头 香港反“送中”游行对中国大陆的四点启示（天亮時分第22集20190616） | [下载](https://y2mate.com/zh-cn/search/-GQIL5UjTX0) | [下载](../channels/tianliang/-GQIL5UjTX0.srt?raw=true) | [下载](../channels/tianliang/-GQIL5UjTX0.text?raw=true) | 
 | “送中条例”暂缓的六大原因。这是否是中共在中美贸易战中屈服的前兆？（政論天下第21集20190615）天亮時分 | [下载](https://y2mate.com/zh-cn/search/tFfYbsz-t4s) | [下载](../channels/tianliang/tFfYbsz-t4s.srt?raw=true) | [下载](../channels/tianliang/tFfYbsz-t4s.text?raw=true) | 
