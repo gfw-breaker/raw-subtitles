@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/6Zp8CcAIV0c) | [下载](../channels/teahouse/6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/6Zp8CcAIV0c.text?raw=true) | 
 | 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/kGQdBBVz1Zo) | [下载](../channels/teahouse/kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/kGQdBBVz1Zo.text?raw=true) | 
 | 习近平访朝，逃避？结盟？反送中行动升级，硬汉加入，台湾呼应！北京迁怒林郑，晕！【短评快】006 (2019-6-18) | [下载](https://y2mate.com/zh-cn/search/pqjfbWyNjGs) | [下载](../channels/teahouse/pqjfbWyNjGs.srt?raw=true) | [下载](../channels/teahouse/pqjfbWyNjGs.text?raw=true) | 
 | 反送中第二季：林郑搬起石头，地上只剩自己的脚！军官泄密！逃犯条例红色祸心曝光！【短评快】005 (2019-6-16) | [下载](https://y2mate.com/zh-cn/search/EOmI4AbqNbg) | [下载](../channels/teahouse/EOmI4AbqNbg.srt?raw=true) | [下载](../channels/teahouse/EOmI4AbqNbg.text?raw=true) | 
