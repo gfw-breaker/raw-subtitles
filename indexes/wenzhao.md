@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 千钧一发，川普喊停轰炸伊朗！塔利班访华，习主席踏足“帝国坟场”（20190621第586期） | [下载](https://y2mate.com/zh-cn/search/gJz0GPJUAro) | [下载](../channels/wenzhao/gJz0GPJUAro.srt?raw=true) | [下载](../channels/wenzhao/gJz0GPJUAro.text?raw=true) | 
 | 习近平敲定G20､急会金正恩，一场诡异地震背后的暗送秋波（20190619第585期） | [下载](https://y2mate.com/zh-cn/search/AGrynEIyI6k) | [下载](../channels/wenzhao/AGrynEIyI6k.srt?raw=true) | [下载](../channels/wenzhao/AGrynEIyI6k.text?raw=true) | 
 | 二百万港人游行大胜！扩大成果的三管齐下，向14亿人传递一强烈讯号（20190617第584期） | [下载](https://y2mate.com/zh-cn/search/i0M1FLdinrc) | [下载](../channels/wenzhao/i0M1FLdinrc.srt?raw=true) | [下载](../channels/wenzhao/i0M1FLdinrc.text?raw=true) | 
 | 抗争生效！香港建制派“送中”态度转变；美国出一大招施压（20190614第583期） | [下载](https://y2mate.com/zh-cn/search/UYuJxDnTYEs) | [下载](../channels/wenzhao/UYuJxDnTYEs.srt?raw=true) | [下载](../channels/wenzhao/UYuJxDnTYEs.text?raw=true) | 
