@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 對伊朗軍事打擊十分鐘前川普喊停，真實原因分析； 中共21世紀軸心國建立，盟友很拿不出手（川普推推推20190621第7期） | [下载](https://y2mate.com/zh-cn/search/sHOIOcmD97w) | [下载](../channels/jiangfeng/sHOIOcmD97w.srt?raw=true) | [下载](../channels/jiangfeng/sHOIOcmD97w.text?raw=true) | 
 | 伊朗擊落美國無人機等同宣戰； 看透習近平的招數：一邊通電話談戀愛，一邊朝鮮、伊朗“雙鬼拍門”（川普推推推20190620第6期） | [下载](https://y2mate.com/zh-cn/search/yRm9yAtrftc) | [下载](../channels/jiangfeng/yRm9yAtrftc.srt?raw=true) | [下载](../channels/jiangfeng/yRm9yAtrftc.text?raw=true) | 
 | 川習通話，央視配合，《上甘嶺》變《黃河絕戀》中美又要戀愛了？川普總統親自給江峰來信了！川普2020連任競選起跑（川普推推推20190619第5期） | [下载](https://y2mate.com/zh-cn/search/Beg4ecn5Et8) | [下载](../channels/jiangfeng/Beg4ecn5Et8.srt?raw=true) | [下载](../channels/jiangfeng/Beg4ecn5Et8.text?raw=true) | 
 | 深圳經濟特區是被大逃港逼出來的？中國柏林牆的故事，逃港的大陸人和無路可逃的香港人（歷史上的今天 20190619第365期） | [下载](https://y2mate.com/zh-cn/search/OXWcoiNGxSk) | [下载](../channels/jiangfeng/OXWcoiNGxSk.srt?raw=true) | [下载](../channels/jiangfeng/OXWcoiNGxSk.text?raw=true) | 
