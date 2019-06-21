@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/h73082snJT0) | [下载](../channels/teahouse/h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/h73082snJT0.text?raw=true) | 
 | 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/6Zp8CcAIV0c) | [下载](../channels/teahouse/6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/6Zp8CcAIV0c.text?raw=true) | 
 | 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/kGQdBBVz1Zo) | [下载](../channels/teahouse/kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/kGQdBBVz1Zo.text?raw=true) | 
 | 习近平访朝，逃避？结盟？反送中行动升级，硬汉加入，台湾呼应！北京迁怒林郑，晕！【短评快】006 (2019-6-18) | [下载](https://y2mate.com/zh-cn/search/pqjfbWyNjGs) | [下载](../channels/teahouse/pqjfbWyNjGs.srt?raw=true) | [下载](../channels/teahouse/pqjfbWyNjGs.text?raw=true) | 
