@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/wenzhao-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 任正非变脸示弱背后的美国说客；美国也能玩5G国有化？（20190623) | [下载](https://y2mate.com/zh-cn/search/L-WgXaff5KE) | [下载](../channels/wenzhao/L-WgXaff5KE.srt?raw=true) | [下载](../channels/wenzhao/L-WgXaff5KE.text?raw=true) | 
 | 千钧一发，川普喊停轰炸伊朗！塔利班访华，习主席踏足“帝国坟场”（20190621第586期） | [下载](https://y2mate.com/zh-cn/search/gJz0GPJUAro) | [下载](../channels/wenzhao/gJz0GPJUAro.srt?raw=true) | [下载](../channels/wenzhao/gJz0GPJUAro.text?raw=true) | 
 | 习近平敲定G20､急会金正恩，一场诡异地震背后的暗送秋波（20190619第585期） | [下载](https://y2mate.com/zh-cn/search/AGrynEIyI6k) | [下载](../channels/wenzhao/AGrynEIyI6k.srt?raw=true) | [下载](../channels/wenzhao/AGrynEIyI6k.text?raw=true) | 
 | 二百万港人游行大胜！扩大成果的三管齐下，向14亿人传递一强烈讯号（20190617第584期） | [下载](https://y2mate.com/zh-cn/search/i0M1FLdinrc) | [下载](../channels/wenzhao/i0M1FLdinrc.srt?raw=true) | [下载](../channels/wenzhao/i0M1FLdinrc.text?raw=true) | 
