@@ -25,13 +25,13 @@ while read line; do
 	# generate subtitle
 	ls -tr *.mp4 > mp4s.txt
 	while read mp4; do
-		vid=$(echo $mp4 | rev | cut -c5-15 | rev )
+		vid=_$(echo $mp4 | rev | cut -c5-15 | rev )
 		if [ ! -f $vid.srt ]; then
 			autosub -F srt -S zh-CN -D zh-CN -o "$vid.srt" "$mp4"
 			cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
 		fi
 
-		grep -- $vid names.txt
+		grep $vid names.txt
 		if [ $? -ne 0 ]; then
 			echo $mp4 > tmp.txt
 			cat names.txt >> tmp.txt
@@ -56,7 +56,7 @@ while read line; do
 	echo "|---|---|---|---|"  >> $index
 	
 	while read line; do
-		vid=$(echo $line | rev | cut -c5-15 | rev )
+		vid=_$(echo $line | rev | cut -c5-15 | rev )
 		title=$(echo $line | rev | cut -c17- | rev)
 		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$vid.srt?raw=true) | [下载](../channels/$folder/$vid.text?raw=true) | " >> $index
 	done < $curDir/names.txt
