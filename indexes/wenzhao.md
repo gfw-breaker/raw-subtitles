@@ -78,6 +78,11 @@
 | 任正非变脸示弱背后的美国说客；美国也能玩5G国有化？（20190623) | [下载](https://y2mate.com/zh-cn/search/_L-WgXaff5KE) | [下载](../channels/wenzhao/_L-WgXaff5KE.srt?raw=true) | [下载](../channels/wenzhao/_L-WgXaff5KE.text?raw=true) | 
 | 千钧一发，川普喊停轰炸伊朗！塔利班访华，习主席踏足“帝国坟场”（20190621第586期） | [下载](https://y2mate.com/zh-cn/search/_gJz0GPJUAro) | [下载](../channels/wenzhao/_gJz0GPJUAro.srt?raw=true) | [下载](../channels/wenzhao/_gJz0GPJUAro.text?raw=true) | 
 | 习近平敲定G20､急会金正恩，一场诡异地震背后的暗送秋波（20190619第585期） | [下载](https://y2mate.com/zh-cn/search/_AGrynEIyI6k) | [下载](../channels/wenzhao/_AGrynEIyI6k.srt?raw=true) | [下载](../channels/wenzhao/_AGrynEIyI6k.text?raw=true) | 
+| 台湾大规模反红色媒体集会！代言一国两制不能有言论自由？（20190624第587期） | [下载](https://y2mate.com/zh-cn/search/_AQ99IgcS9vk) | [下载](../channels/wenzhao/_AQ99IgcS9vk.srt?raw=true) | [下载](../channels/wenzhao/_AQ99IgcS9vk.text?raw=true) | 
+| 台湾数万人反红色媒体大集会！代言一国两制不能有言论自由？（20190624第587期） | [下载](https://y2mate.com/zh-cn/search/_AQ99IgcS9vk) | [下载](../channels/wenzhao/_AQ99IgcS9vk.srt?raw=true) | [下载](../channels/wenzhao/_AQ99IgcS9vk.text?raw=true) | 
+| 任正非变脸示弱背后的美国说客；美国也能玩5G国有化？（20190623) | [下载](https://y2mate.com/zh-cn/search/_L-WgXaff5KE) | [下载](../channels/wenzhao/_L-WgXaff5KE.srt?raw=true) | [下载](../channels/wenzhao/_L-WgXaff5KE.text?raw=true) | 
+| 千钧一发，川普喊停轰炸伊朗！塔利班访华，习主席踏足“帝国坟场”（20190621第586期） | [下载](https://y2mate.com/zh-cn/search/_gJz0GPJUAro) | [下载](../channels/wenzhao/_gJz0GPJUAro.srt?raw=true) | [下载](../channels/wenzhao/_gJz0GPJUAro.text?raw=true) | 
+| 习近平敲定G20､急会金正恩，一场诡异地震背后的暗送秋波（20190619第585期） | [下载](https://y2mate.com/zh-cn/search/_AGrynEIyI6k) | [下载](../channels/wenzhao/_AGrynEIyI6k.srt?raw=true) | [下载](../channels/wenzhao/_AGrynEIyI6k.text?raw=true) | 
 | 台湾数万人反红色媒体大集会！代言一国两制不能有言论自由？（20190624第587期） | [下载](https://y2mate.com/zh-cn/search/_AQ99IgcS9vk) | [下载](../channels/wenzhao/_AQ99IgcS9vk.srt?raw=true) | [下载](../channels/wenzhao/_AQ99IgcS9vk.text?raw=true) | 
 | 任正非变脸示弱背后的美国说客；美国也能玩5G国有化？（20190623) | [下载](https://y2mate.com/zh-cn/search/_L-WgXaff5KE) | [下载](../channels/wenzhao/_L-WgXaff5KE.srt?raw=true) | [下载](../channels/wenzhao/_L-WgXaff5KE.text?raw=true) | 
 | 千钧一发，川普喊停轰炸伊朗！塔利班访华，习主席踏足“帝国坟场”（20190621第586期） | [下载](https://y2mate.com/zh-cn/search/_gJz0GPJUAro) | [下载](../channels/wenzhao/_gJz0GPJUAro.srt?raw=true) | [下载](../channels/wenzhao/_gJz0GPJUAro.text?raw=true) | 
