@@ -13,8 +13,8 @@ while read line; do
 	name=$(echo $line | cut -d',' -f3)
 	
 	curDir=$baseDir/channels/$folder
-	mkdir -p $curDir/tmp
-	cd $curDir
+	mkdir -p $curDir && cd $curDir
+	rm -fr tmp && mkdir tmp
 
 	youtube-dl -f 18 \
 		--max-downloads 4\
@@ -37,7 +37,10 @@ while read line; do
 		mv tmp.txt names.txt 		
 	
 		# remove duplicated	
-		
+		if [ -f tmp/$nvid ]; then
+			rm $(cat tmp/$nvid)	
+		fi
+		echo $mp4 > tmp/$nvid
 	done < mp4s.txt
 
 
