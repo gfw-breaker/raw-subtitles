@@ -28,9 +28,8 @@ while read line; do
 		vid=_$(echo $mp4 | rev | cut -c5-15 | rev )
 		if [ ! -f $vid.srt ]; then
 			autosub -F srt -S zh-CN -D zh-CN -o "$vid.srt" "$mp4"
-			#cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
+			cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
 		fi
-		cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
 
 		rvid=$(echo $vid | cut -c 2-)
 		grep -- $rvid names.txt
