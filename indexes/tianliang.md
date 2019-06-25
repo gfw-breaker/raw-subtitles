@@ -4,7 +4,7 @@
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | G20川习会后，川普将迅速启动加税的三大理由，其中之一是习近平见了四拨不该见的人(政論天下第25集20190625）天亮時分 | [下载](https://y2mate.com/zh-cn/search/-JA9dZUZTpQ) | [下载](../channels/tianliang/_-JA9dZUZTpQ.srt?raw=true) | [下载](../channels/tianliang/_-JA9dZUZTpQ.text?raw=true) | 
-| 反紅色媒體數萬人台北集會 大外宣的水有多深？我們如何衝出紅色信息海洋？（政論天下第24集20190623）天亮時分 | [下载](https://y2mate.com/zh-cn/search/jCI8rgVNFAg) | [下载](../channels/tianliang/_jCI8rgVNFAg.srt?raw=true) | [下载](../channels/tianliang/_jCI8rgVNFAg.text?raw=true) | 
+| 數萬人台北集會抗議，中共大外宣的水有多深？海外華文媒體的生態分析，我們如何衝出紅色信息海洋？（政論天下第24集20190623）天亮時分 | [下载](https://y2mate.com/zh-cn/search/jCI8rgVNFAg) | [下载](../channels/tianliang/_jCI8rgVNFAg.srt?raw=true) | [下载](../channels/tianliang/_jCI8rgVNFAg.text?raw=true) | 
 | 川習會在即，誰是那隻聰明的猴子？習近平的兩個小動作；貿易戰正酣，川普在佛州競選連任（天亮時分第23集20190619） | [下载](https://y2mate.com/zh-cn/search/twA0yKSbNpk) | [下载](../channels/tianliang/_twA0yKSbNpk.srt?raw=true) | [下载](../channels/tianliang/_twA0yKSbNpk.text?raw=true) | 
 | ”六四“三十周年特别节目（4）屠杀和省思 （史海揚帆第13集20190617）天亮時分 | [下载](https://y2mate.com/zh-cn/search/7Q1ysbEyz-4) | [下载](../channels/tianliang/_7Q1ysbEyz-4.srt?raw=true) | [下载](../channels/tianliang/_7Q1ysbEyz-4.text?raw=true) | 
 | 兩百萬人走上街頭，林鄭月娥是否會辭職，香港反“送中”遊行對中國大陸的四點啟示（天亮時分第22集20190616） | [下载](https://y2mate.com/zh-cn/search/-GQIL5UjTX0) | [下载](../channels/tianliang/_-GQIL5UjTX0.srt?raw=true) | [下载](../channels/tianliang/_-GQIL5UjTX0.text?raw=true) | 
