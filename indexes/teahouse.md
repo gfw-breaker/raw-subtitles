@@ -5,15 +5,8 @@
 |---|---|---|---|
 | 塔利班访华G20交易；台湾623凯道集结反红色媒体！善恶如此分明，习近平还迷路？【短评快】008 (2019-6-23) | [下载](https://y2mate.com/zh-cn/search/_fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.text?raw=true) | 
 | 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/_h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
-| 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/_h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
 | 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_kGQdBBVz1Zo) | [下载](../channels/teahouse/_kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/_kGQdBBVz1Zo.text?raw=true) | 
 | 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_6Zp8CcAIV0c) | [下载](../channels/teahouse/_6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/_6Zp8CcAIV0c.text?raw=true) | 
-| 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_kGQdBBVz1Zo) | [下载](../channels/teahouse/_kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/_kGQdBBVz1Zo.text?raw=true) | 
-| 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_6Zp8CcAIV0c) | [下载](../channels/teahouse/_6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/_6Zp8CcAIV0c.text?raw=true) | 
-| 塔利班访华G20交易；台湾623凯道集结反红色媒体！善恶如此分明，习近平还迷路？【短评快】008 (2019-6-23) | [下载](https://y2mate.com/zh-cn/search/_fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.text?raw=true) | 
-| 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/_h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
-| 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_6Zp8CcAIV0c) | [下载](../channels/teahouse/_6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/_6Zp8CcAIV0c.text?raw=true) | 
-| 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/_kGQdBBVz1Zo) | [下载](../channels/teahouse/_kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/_kGQdBBVz1Zo.text?raw=true) | 
 | 习近平访朝，逃避？结盟？反送中行动升级，硬汉加入，台湾呼应！北京迁怒林郑，晕！【短评快】006 (2019-6-18) | [下载](https://y2mate.com/zh-cn/search/_pqjfbWyNjGs) | [下载](../channels/teahouse/_pqjfbWyNjGs.srt?raw=true) | [下载](../channels/teahouse/_pqjfbWyNjGs.text?raw=true) | 
 | 反送中第二季：林郑搬起石头，地上只剩自己的脚！军官泄密！逃犯条例红色祸心曝光！【短评快】005 (2019-6-16) | [下载](https://y2mate.com/zh-cn/search/_EOmI4AbqNbg) | [下载](../channels/teahouse/_EOmI4AbqNbg.srt?raw=true) | [下载](../channels/teahouse/_EOmI4AbqNbg.text?raw=true) | 
 | 悬崖习近平 之 遭遇反送中：80万挺送中者起底！中共否认下令修例，林郑月娥被甩锅？【短评快】004 (2019-6-14) | [下载](https://y2mate.com/zh-cn/search/_GPUMdA-iu2M) | [下载](../channels/teahouse/_GPUMdA-iu2M.srt?raw=true) | [下载](../channels/teahouse/_GPUMdA-iu2M.text?raw=true) | 
