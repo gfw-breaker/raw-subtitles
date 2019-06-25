@@ -3,7 +3,6 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
-| ”六四“三十周年特别节目（4）屠杀和省思 （史海揚帆第13集20190617）天亮時分 | [下载](https://y2mate.com/zh-cn/search/_7Q1ysbEyz-4) | [下载](../channels/tianliang/_7Q1ysbEyz-4.srt?raw=true) | [下载](../channels/tianliang/_7Q1ysbEyz-4.text?raw=true) | 
 | 反紅色媒體數萬人台北集會 大外宣的水有多深？我們如何衝出紅色信息海洋？（政論天下第24集20190623）天亮時分 | [下载](https://y2mate.com/zh-cn/search/_jCI8rgVNFAg) | [下载](../channels/tianliang/_jCI8rgVNFAg.srt?raw=true) | [下载](../channels/tianliang/_jCI8rgVNFAg.text?raw=true) | 
 | 川習會在即，誰是那隻聰明的猴子？習近平的兩個小動作；貿易戰正酣，川普在佛州競選連任（天亮時分第23集20190619） | [下载](https://y2mate.com/zh-cn/search/_twA0yKSbNpk) | [下载](../channels/tianliang/_twA0yKSbNpk.srt?raw=true) | [下载](../channels/tianliang/_twA0yKSbNpk.text?raw=true) | 
 | ”六四“三十周年特别节目（4）屠杀和省思 （史海楊帆第13集20190617）天亮時分 | [下载](https://y2mate.com/zh-cn/search/_7Q1ysbEyz-4) | [下载](../channels/tianliang/_7Q1ysbEyz-4.srt?raw=true) | [下载](../channels/tianliang/_7Q1ysbEyz-4.text?raw=true) | 
