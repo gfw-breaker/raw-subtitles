@@ -33,7 +33,7 @@ while read line; do
 
 		rvid=$(echo $vid | cut -c 2-)
 		echo $mp4 > tmp.txt
-		grep -- -v $rvid names.txt >> tmp.txt
+		grep -v -- $rvid names.txt >> tmp.txt
 		mv tmp.txt names.txt 		
 		
 		#grep -- $rvid names.txt
