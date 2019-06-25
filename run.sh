@@ -38,7 +38,7 @@ while read line; do
 	
 		# remove duplicated	
 		if [ -f tmp/$nvid ]; then
-			rm $(cat tmp/$nvid)	
+			rm "$(cat tmp/$nvid)"
 		fi
 		echo $mp4 > tmp/$nvid
 	done < mp4s.txt
