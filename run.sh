@@ -31,7 +31,8 @@ while read line; do
 			cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
 		fi
 
-		grep $vid names.txt
+		rvid=$(echo $vid | cut -c 2-)
+		grep -- $rvid names.txt
 		if [ $? -ne 0 ]; then
 			echo $mp4 > tmp.txt
 			cat names.txt >> tmp.txt
