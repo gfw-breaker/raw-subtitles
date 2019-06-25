@@ -13,7 +13,7 @@ while read line; do
 	name=$(echo $line | cut -d',' -f3)
 	
 	curDir=$baseDir/channels/$folder
-	mkdir -p $curDir
+	mkdir -p $curDir/tmp
 	cd $curDir
 
 	youtube-dl -f 18 \
@@ -25,23 +25,19 @@ while read line; do
 	# generate subtitle
 	ls -tr *.mp4 > mp4s.txt
 	while read mp4; do
-		vid=_$(echo $mp4 | rev | cut -c5-15 | rev )
-		if [ ! -f $vid.srt ]; then
-			autosub -F srt -S zh-CN -D zh-CN -o "$vid.srt" "$mp4"
-			cat "$vid.srt" | awk 'NR%4==3' > "$vid.text"
+		vid=$(echo $mp4 | rev | cut -c5-15 | rev )
+		nvid=_$vid
+		if [ ! -f $nvid.srt ]; then
+			autosub -F srt -S zh-CN -D zh-CN -o "$nvid.srt" "$mp4"
+			cat "$nvid.srt" | awk 'NR%4==3' > "$nvid.text"
 		fi
 
-		rvid=$(echo $vid | cut -c 2-)
 		echo $mp4 > tmp.txt
-		grep -v -- $rvid names.txt >> tmp.txt
+		grep -v -- $vid names.txt >> tmp.txt
 		mv tmp.txt names.txt 		
+	
+		# remove duplicated	
 		
-		#grep -- $rvid names.txt
-		#if [ $? -ne 0 ]; then
-		#	echo $mp4 > tmp.txt
-		#	cat names.txt >> tmp.txt
-		#	mv tmp.txt names.txt 		
-		#fi
 	done < mp4s.txt
 
 
@@ -61,9 +57,10 @@ while read line; do
 	echo "|---|---|---|---|"  >> $index
 	
 	while read line; do
-		vid=_$(echo $line | rev | cut -c5-15 | rev )
+		vid=$(echo $line | rev | cut -c5-15 | rev )
+		nvid=_$vid
 		title=$(echo $line | rev | cut -c17- | rev)
-		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$vid.srt?raw=true) | [下载](../channels/$folder/$vid.text?raw=true) | " >> $index
+		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$nvid.srt?raw=true) | [下载](../channels/$folder/$nvid.text?raw=true) | " >> $index
 	done < $curDir/names.txt
 
 done < $baseDir/channels.csv
