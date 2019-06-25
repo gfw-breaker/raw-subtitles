@@ -32,12 +32,16 @@ while read line; do
 		fi
 
 		rvid=$(echo $vid | cut -c 2-)
-		grep -- $rvid names.txt
-		if [ $? -ne 0 ]; then
-			echo $mp4 > tmp.txt
-			cat names.txt >> tmp.txt
-			mv tmp.txt names.txt 		
-		fi
+		echo $mp4 > tmp.txt
+		grep -- -v $rvid names.txt >> tmp.txt
+		mv tmp.txt names.txt 		
+		
+		#grep -- $rvid names.txt
+		#if [ $? -ne 0 ]; then
+		#	echo $mp4 > tmp.txt
+		#	cat names.txt >> tmp.txt
+		#	mv tmp.txt names.txt 		
+		#fi
 	done < mp4s.txt
 
 
