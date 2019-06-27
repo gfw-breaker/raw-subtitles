@@ -3,7 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
-| 【老北京茶馆】第154集 G20川习会前外交部敲打习近平！党内挖更大坑！626香港再集结，林郑卧底帮台湾？(2019-6-26) | [下载](https://y2mate.com/zh-cn/search/BW3TJO87Yzk) | [下载](../channels/teahouse/_BW3TJO87Yzk.srt?raw=true) | [下载](../channels/teahouse/_BW3TJO87Yzk.text?raw=true) | 
+| G20川习会前外交部敲打习近平！党内挖更大坑！626香港再集结，林郑卧底帮台湾？(2019-6-26【老北京茶馆】第154集 ) | [下载](https://y2mate.com/zh-cn/search/BW3TJO87Yzk) | [下载](../channels/teahouse/_BW3TJO87Yzk.srt?raw=true) | [下载](../channels/teahouse/_BW3TJO87Yzk.text?raw=true) | 
 | 塔利班访华G20交易；台湾623凯道集结反红色媒体！善恶如此分明，习近平还迷路？【短评快】008 (2019-6-23) | [下载](https://y2mate.com/zh-cn/search/fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.text?raw=true) | 
 | 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
 | 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/kGQdBBVz1Zo) | [下载](../channels/teahouse/_kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/_kGQdBBVz1Zo.text?raw=true) | 
