@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| G20峰會川普的“多打稅少做生意”與習近平的“華為當先，多做生意少打稅”背道而馳，怎麼談得攏。看看美國總統怎樣“日理萬機” （川普推推推20190627第9期） | [下载](https://y2mate.com/zh-cn/search/NfOe0PSdarY) | [下载](../channels/jiangfeng/_NfOe0PSdarY.srt?raw=true) | [下载](../channels/jiangfeng/_NfOe0PSdarY.text?raw=true) | 
 | 廣場協議是美國的陰謀？中共在華爾街的神秘掮客，他告訴川普習近平是一個“可信賴“的人；中美新冷戰第二部分 - 金融戰全新戰爭形式預測（江峰漫談20190626第5集） | [下载](https://y2mate.com/zh-cn/search/qRRWM7hhyAc) | [下载](../channels/jiangfeng/_qRRWM7hhyAc.srt?raw=true) | [下载](../channels/jiangfeng/_qRRWM7hhyAc.text?raw=true) | 
 | 是他們揭開了華為的機蓋，最神秘強大的情報組織--五眼聯盟（歷史上的今天20190625第366期） | [下载](https://y2mate.com/zh-cn/search/-oHlWE3pLVA) | [下载](../channels/jiangfeng/_-oHlWE3pLVA.srt?raw=true) | [下载](../channels/jiangfeng/_-oHlWE3pLVA.text?raw=true) | 
 | 挺“館長”、真民心，台灣驅逐紅色媒體；藍綠最大公約數反共保中華民國 ；川普決策力，聽上帝的不聽安全顧問的（川普推推推20190623第8期） | [下载](https://y2mate.com/zh-cn/search/c6_MVPPn-pg) | [下载](../channels/jiangfeng/_c6_MVPPn-pg.srt?raw=true) | [下载](../channels/jiangfeng/_c6_MVPPn-pg.text?raw=true) | 
