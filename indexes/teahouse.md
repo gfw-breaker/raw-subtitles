@@ -1,6 +1,6 @@
 ### 《老北京茶馆》原始字幕/文字稿
 ---
-#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/teahouse-subtitles)
+##### 友情链接：[禁闻聚合(免翻墙)](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊(免翻墙)](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | G20习近平又耍单、安倍反送中、川普重启谈判！王全璋、习近平呆滞念稿：被下药了？（2019_6_29_老北京茶馆_第155集） | [下载](https://y2mate.com/zh-cn/search/HIqMdFaZozM) | [下载](../channels/teahouse/_HIqMdFaZozM.srt?raw=true) | [下载](../channels/teahouse/_HIqMdFaZozM.text?raw=true) | 

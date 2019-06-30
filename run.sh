@@ -55,7 +55,8 @@ while read line; do
 	cd $baseDir
 	index=$baseDir/indexes/$folder.md
 	echo -e "### 《$name》原始字幕/文字稿\n---" > $index
-	echo "#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/$folder-subtitles)"  >> $index
+	#echo "#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/$folder-subtitles)"  >> $index
+	echo "##### 友情链接：[禁闻聚合(免翻墙)](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊(免翻墙)](https://github.com/gfw-breaker/mh-qikan) " >> $index
 	echo "| 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿" >> $index
 	echo "|---|---|---|---|"  >> $index
 	

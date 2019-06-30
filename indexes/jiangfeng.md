@@ -1,6 +1,6 @@
 ### 《江峰时刻》原始字幕/文字稿
 ---
-#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/jiangfeng-subtitles)
+##### 友情链接：[禁闻聚合(免翻墙)](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊(免翻墙)](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 川普突然跨過三八線，“川金會”完全解讀，不是綏靖也不是欲擒故縱，而是扎扎實實的打臉招數（川普推推推20190630第10期） | [下载](https://y2mate.com/zh-cn/search/SpGhbEYQiwY) | [下载](../channels/jiangfeng/_SpGhbEYQiwY.srt?raw=true) | [下载](../channels/jiangfeng/_SpGhbEYQiwY.text?raw=true) | 
