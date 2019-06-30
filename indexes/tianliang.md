@@ -3,6 +3,7 @@
 #####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/tianliang-subtitles)
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 川金會三度舉行，為什麼我不看好朝鮮半島無核化？對付朝鮮最 有力的招數是什麼？ （政論天下第28集20190630）天亮時分 | [下载](https://y2mate.com/zh-cn/search/N6hrjhFwKqY) | [下载](../channels/tianliang/_N6hrjhFwKqY.srt?raw=true) | [下载](../channels/tianliang/_N6hrjhFwKqY.text?raw=true) | 
 | 中共以放棄重要底線換來貿易戰停火，贏了面子輸了裡子，川普還能給中共多長時間？最終達成貿易協議的希望依然渺茫。（政論天下第27集 20190629）天亮時分 | [下载](https://y2mate.com/zh-cn/search/lCvMDiWiVpM) | [下载](../channels/tianliang/_lCvMDiWiVpM.srt?raw=true) | [下载](../channels/tianliang/_lCvMDiWiVpM.text?raw=true) | 
 | 中國銀行可能面臨的死刑判決；韓國瑜當選背後的中共黑手，兼談谷歌干預2020美國總統大選；香港民眾如何進一步推動廢除送中(政論天下第26集20190627）天亮時分 | [下载](https://y2mate.com/zh-cn/search/dpM3-t7DxMg) | [下载](../channels/tianliang/_dpM3-t7DxMg.srt?raw=true) | [下载](../channels/tianliang/_dpM3-t7DxMg.text?raw=true) | 
 | G20川习会后，川普将迅速启动加税的三大理由，其中之一是习近平见了四拨不该见的人(政論天下第25集20190625）天亮時分 | [下载](https://y2mate.com/zh-cn/search/-JA9dZUZTpQ) | [下载](../channels/tianliang/_-JA9dZUZTpQ.srt?raw=true) | [下载](../channels/tianliang/_-JA9dZUZTpQ.text?raw=true) | 
