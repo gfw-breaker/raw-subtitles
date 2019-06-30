@@ -1,6 +1,6 @@
 ### 《天亮时分》原始字幕/文字稿
 ---
-##### 友情链接：[禁闻聚合(免翻墙)](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊(免翻墙)](https://github.com/gfw-breaker/mh-qikan) 
+##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 川金會三度舉行，為什麼我不看好朝鮮半島無核化？對付朝鮮最 有力的招數是什麼？ （政論天下第28集20190630）天亮時分 | [下载](https://y2mate.com/zh-cn/search/N6hrjhFwKqY) | [下载](../channels/tianliang/_N6hrjhFwKqY.srt?raw=true) | [下载](../channels/tianliang/_N6hrjhFwKqY.text?raw=true) | 
