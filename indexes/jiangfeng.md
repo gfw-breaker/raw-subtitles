@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 香港七·一大遊行，把抗議遊行作為傳統的偉大城市；創始人司徒華竟然曾經是中共地下黨組織成員，差點成了特首（歷史上的今天20190701第367期） | [下载](https://y2mate.com/zh-cn/search/MM7P1tvjw2g) | [下载](../channels/jiangfeng/_MM7P1tvjw2g.srt?raw=true) | [下载](../channels/jiangfeng/_MM7P1tvjw2g.text?raw=true) | 
 | 川普突然跨過三八線，“川金會”完全解讀，不是綏靖也不是欲擒故縱，而是扎扎實實的打臉招數（川普推推推20190630第10期） | [下载](https://y2mate.com/zh-cn/search/SpGhbEYQiwY) | [下载](../channels/jiangfeng/_SpGhbEYQiwY.srt?raw=true) | [下载](../channels/jiangfeng/_SpGhbEYQiwY.text?raw=true) | 
 | 20190630白玫瑰第三份傳單 | [下载](https://y2mate.com/zh-cn/search/X8lR7cv3MxQ) | [下载](../channels/jiangfeng/_X8lR7cv3MxQ.srt?raw=true) | [下载](../channels/jiangfeng/_X8lR7cv3MxQ.text?raw=true) | 
 | 川普解禁華為國會能放過他麼？川普是不是上當了？習近平的G20小球轉動大球，川普有不同的解讀麼（江峰漫談20190629第7期） | [下载](https://y2mate.com/zh-cn/search/2BqaaOHWSKI) | [下载](../channels/jiangfeng/_2BqaaOHWSKI.srt?raw=true) | [下载](../channels/jiangfeng/_2BqaaOHWSKI.text?raw=true) | 
