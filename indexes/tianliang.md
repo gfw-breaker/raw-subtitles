@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 从香港七一大游行、冲击立法会，非暴力抗争和暴力抗争哪个更容易在香港成功？ (政論天下第29集20190702）天亮時分 | [下载](https://y2mate.com/zh-cn/search/g7f-E8wwNDU) | [下载](../channels/tianliang/_g7f-E8wwNDU.srt?raw=true) | [下载](../channels/tianliang/_g7f-E8wwNDU.text?raw=true) | 
 | 川金會三度舉行，為什麼我不看好朝鮮半島無核化？對付朝鮮最 有力的招數是什麼？ （政論天下第28集20190630）天亮時分 | [下载](https://y2mate.com/zh-cn/search/N6hrjhFwKqY) | [下载](../channels/tianliang/_N6hrjhFwKqY.srt?raw=true) | [下载](../channels/tianliang/_N6hrjhFwKqY.text?raw=true) | 
 | 中共以放棄重要底線換來貿易戰停火，贏了面子輸了裡子，川普還能給中共多長時間？最終達成貿易協議的希望依然渺茫。（政論天下第27集 20190629）天亮時分 | [下载](https://y2mate.com/zh-cn/search/lCvMDiWiVpM) | [下载](../channels/tianliang/_lCvMDiWiVpM.srt?raw=true) | [下载](../channels/tianliang/_lCvMDiWiVpM.text?raw=true) | 
 | 中國銀行可能面臨的死刑判決；韓國瑜當選背後的中共黑手，兼談谷歌干預2020美國總統大選；香港民眾如何進一步推動廢除送中(政論天下第26集20190627）天亮時分 | [下载](https://y2mate.com/zh-cn/search/dpM3-t7DxMg) | [下载](../channels/tianliang/_dpM3-t7DxMg.srt?raw=true) | [下载](../channels/tianliang/_dpM3-t7DxMg.text?raw=true) | 
