@@ -4,4 +4,4 @@
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
 | 【清聊美国】幽默的执法人 | [下载](https://y2mate.com/zh-cn/search/NKkpS9vuYUk) | [下载](../channels/us-stories/_NKkpS9vuYUk.srt?raw=true) | [下载](../channels/us-stories/_NKkpS9vuYUk.text?raw=true) | 
-| 【清聊美國】開篇：新移民遇到的尷尬事兒 | [下载](https://y2mate.com/zh-cn/search/q3aOYj1R0kc) | [下载](../channels/us-stories/_q3aOYj1R0kc.srt?raw=true) | [下载](../channels/us-stories/_q3aOYj1R0kc.text?raw=true) | 
+| 【清聊美国】开篇：新移民遇到的尴尬事儿 | [下载](https://y2mate.com/zh-cn/search/q3aOYj1R0kc) | [下载](../channels/us-stories/_q3aOYj1R0kc.srt?raw=true) | [下载](../channels/us-stories/_q3aOYj1R0kc.text?raw=true) | 
