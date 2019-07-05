@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
+| 川普獨立日“閱兵”的寒磣 看美國傳統的偉大； 習近平在管控還是在失控 香港軍管消息放出要達到的真實目的（川普推推推20190705第12期） | [下载](https://y2mate.com/zh-cn/search/Iq7RQ3PoITY) | [下载](../channels/jiangfeng/_Iq7RQ3PoITY.srt?raw=true) | [下载](../channels/jiangfeng/_Iq7RQ3PoITY.text?raw=true) | 
 | 川普獨立日“閱兵”的寒磣 看美國傳統的偉大； 習近平在管控還是在失控 香港軍管消息放出要達到的真實目的（川普推推推20190705第12期） | [下载](https://y2mate.com/zh-cn/search/fuZBuaMkaw0) | [下载](../channels/jiangfeng/_fuZBuaMkaw0.srt?raw=true) | [下载](../channels/jiangfeng/_fuZBuaMkaw0.text?raw=true) | 
 | 川普解凍華為，美國國內不買賬； 副總統彭斯被緊急召回，出了什麼狀況？以色列要出手打擊伊朗麼？綜述中美兩國國際戰略佈局（川普推推推20190703第11期）更新版 | [下载](https://y2mate.com/zh-cn/search/djBsHxXPff4) | [下载](../channels/jiangfeng/_djBsHxXPff4.srt?raw=true) | [下载](../channels/jiangfeng/_djBsHxXPff4.text?raw=true) | 
 | 獨家評析：香港衝擊立法會的到底是什麼人？林鄭月娥和她的繼任者必須完成的任務；撐警能撐起香港的天空麼？（江峰漫談 20190702第8期） | [下载](https://y2mate.com/zh-cn/search/NVYFlJLkQRg) | [下载](../channels/jiangfeng/_NVYFlJLkQRg.srt?raw=true) | [下载](../channels/jiangfeng/_NVYFlJLkQRg.text?raw=true) | 
