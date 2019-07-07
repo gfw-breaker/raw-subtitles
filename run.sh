@@ -32,7 +32,6 @@ while read line; do
 			opencc -c s2tw.json -i "$nvid.srt" -o "$nvid.tw.srt"
 			#cat "$nvid.srt" | awk 'NR%4==3' > "$nvid.text"
 		fi
-		opencc -c s2tw.json -i "$nvid.srt" -o "$nvid.tw.srt"
 
 		echo $mp4 > tmp.txt
 		grep -v -- $vid names.txt >> tmp.txt
