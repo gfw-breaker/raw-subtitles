@@ -16,8 +16,8 @@ while read line; do
 	mkdir -p $curDir && cd $curDir
 	rm -fr tmp && mkdir tmp
 
-	youtube-dl -f 18 \ 
-		--max-downloads 4 \
+	youtube-dl -f 18 \
+		--max-downloads 4\
 		--playlist-end 100 \
 		-i $ytUrl/$channel
 
