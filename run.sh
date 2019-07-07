@@ -16,7 +16,6 @@ while read line; do
 	mkdir -p $curDir && cd $curDir
 	rm -fr tmp && mkdir tmp
 
-	# --restrict-filenames \
 	youtube-dl -f 18 \ 
 		--max-downloads 4 \
 		--playlist-end 100 \
