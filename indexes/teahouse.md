@@ -3,10 +3,10 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿
 |---|---|---|---|
-| G20习近平又耍单、安倍反送中、川普重启谈判！王全璋、习近平呆滞念稿：被下药了？（2019_6_29_老北京茶馆_第155集） | [下载](https://y2mate.com/zh-cn/search/HIqMdFaZozM) | [下载](../channels/teahouse/_HIqMdFaZozM.srt?raw=true) | [下载](../channels/teahouse/_HIqMdFaZozM.text?raw=true) | 
-| G20川习会前外交部敲打习近平！党内挖更大坑！626香港再集结，林郑卧底帮台湾？(2019-6-26【老北京茶馆】第154集 ) | [下载](https://y2mate.com/zh-cn/search/BW3TJO87Yzk) | [下载](../channels/teahouse/_BW3TJO87Yzk.srt?raw=true) | [下载](../channels/teahouse/_BW3TJO87Yzk.text?raw=true) | 
-| 塔利班访华G20交易；台湾623凯道集结反红色媒体！善恶如此分明，习近平还迷路？【短评快】008 (2019-6-23) | [下载](https://y2mate.com/zh-cn/search/fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.text?raw=true) | 
-| 习近平访朝迷路？猴子盟友、饿狼兄弟、狮子对手聚齐，小熊如何跳出“摔倒”宿命？【短评快】007 (2019-6-21) | [下载](https://y2mate.com/zh-cn/search/h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
+| G20_2019_6_29_155 | [下载](https://y2mate.com/zh-cn/search/HIqMdFaZozM) | [下载](../channels/teahouse/_HIqMdFaZozM.srt?raw=true) | [下载](../channels/teahouse/_HIqMdFaZozM.text?raw=true) | 
+| G20_626_2019-6-26_154 | [下载](https://y2mate.com/zh-cn/search/BW3TJO87Yzk) | [下载](../channels/teahouse/_BW3TJO87Yzk.srt?raw=true) | [下载](../channels/teahouse/_BW3TJO87Yzk.text?raw=true) | 
+| G20_623_008_2019-6-23 | [下载](https://y2mate.com/zh-cn/search/fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.text?raw=true) | 
+| 007_2019-6-21 | [下载](https://y2mate.com/zh-cn/search/h73082snJT0) | [下载](../channels/teahouse/_h73082snJT0.srt?raw=true) | [下载](../channels/teahouse/_h73082snJT0.text?raw=true) | 
 | 616香港二百万人反送中大游行外围现场实录（在场传真001_20190616_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/kGQdBBVz1Zo) | [下载](../channels/teahouse/_kGQdBBVz1Zo.srt?raw=true) | [下载](../channels/teahouse/_kGQdBBVz1Zo.text?raw=true) | 
 | 69香港103万人反送中大游行结束警方严阵实录（在场传真002_20190609_老北京茶馆） | [下载](https://y2mate.com/zh-cn/search/6Zp8CcAIV0c) | [下载](../channels/teahouse/_6Zp8CcAIV0c.srt?raw=true) | [下载](../channels/teahouse/_6Zp8CcAIV0c.text?raw=true) | 
 | 习近平访朝，逃避？结盟？反送中行动升级，硬汉加入，台湾呼应！北京迁怒林郑，晕！【短评快】006 (2019-6-18)  | [下载](https://y2mate.com/zh-cn/search/pqjfbWyNjGs) | [下载](../channels/teahouse/_pqjfbWyNjGs.srt?raw=true) | [下载](../channels/teahouse/_pqjfbWyNjGs.text?raw=true) | 
