@@ -29,9 +29,10 @@ while read line; do
 		nvid=_$vid
 		if [ ! -f $nvid.srt ]; then
 			autosub -F srt -S zh-CN -D zh-CN -o "$nvid.srt" "$mp4"
-			opencc -c s2tw.json -i $nvid.srt -o $nvid.tw.srt
+			opencc -c s2tw.json -i "$nvid.srt" -o "$nvid.tw.srt"
 			#cat "$nvid.srt" | awk 'NR%4==3' > "$nvid.text"
 		fi
+		opencc -c s2tw.json -i "$nvid.srt" -o "$nvid.tw.srt"
 
 		echo $mp4 > tmp.txt
 		grep -v -- $vid names.txt >> tmp.txt
