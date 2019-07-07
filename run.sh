@@ -29,7 +29,8 @@ while read line; do
 		nvid=_$vid
 		if [ ! -f $nvid.srt ]; then
 			autosub -F srt -S zh-CN -D zh-CN -o "$nvid.srt" "$mp4"
-			cat "$nvid.srt" | awk 'NR%4==3' > "$nvid.text"
+			opencc -c s2tw.json -i $nvid.srt -o $nvid.tw.srt
+			#cat "$nvid.srt" | awk 'NR%4==3' > "$nvid.text"
 		fi
 
 		echo $mp4 > tmp.txt
@@ -57,14 +58,14 @@ while read line; do
 	echo -e "### 《$name》原始字幕/文字稿\n---" > $index
 	#echo "#####  链接：[最终字幕/文字稿（已手动修正）](https://github.com/gfw-breaker/$folder-subtitles)"  >> $index
 	echo "##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) " >> $index
-	echo "| 节目名称 | 视频/音频 | 原始字幕 | 原始文字稿" >> $index
+	echo "| 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |" >> $index
 	echo "|---|---|---|---|"  >> $index
 	
 	while read line; do
 		vid=$(echo $line | rev | cut -c5-15 | rev )
 		nvid=_$vid
 		title=$(echo $line | rev | cut -c17- | rev)
-		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$nvid.srt?raw=true) | [下载](../channels/$folder/$nvid.text?raw=true) | " >> $index
+		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$nvid.srt?raw=true) | [下载](../channels/$folder/$nvid.tw.srt?raw=true) | " >> $index
 	done < $curDir/names.txt
 
 done < $baseDir/channels.csv
