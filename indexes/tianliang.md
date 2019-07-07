@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 九龍大遊行後的極限施壓策略，十項'非暴力行動計劃'為香港贏來真正的自由（政論天下第31集20190707）天亮時分 | [下载](https://y2mate.com/zh-cn/search/3-nIUWtzzUM) | [下载](../channels/tianliang/_3-nIUWtzzUM.srt?raw=true) | [下载](../channels/tianliang/_3-nIUWtzzUM.tw.srt?raw=true) | 
 | 聰明、正直和五毛黨，三者不可得兼； | [下载](https://y2mate.com/zh-cn/search/1yI6HvKXUwY) | [下载](../channels/tianliang/_1yI6HvKXUwY.srt?raw=true) | [下载](../channels/tianliang/_1yI6HvKXUwY.tw.srt?raw=true) | 
 | 从香港七一大游行、冲击立法会谈非暴力抗争和暴力抗争哪个更容易在香港成功？ (政論天下第29集20190702）天亮時分 | [下载](https://y2mate.com/zh-cn/search/g7f-E8wwNDU) | [下载](../channels/tianliang/_g7f-E8wwNDU.srt?raw=true) | [下载](../channels/tianliang/_g7f-E8wwNDU.tw.srt?raw=true) | 
 | 川金會三度舉行，為什麼我不看好朝鮮半島無核化？對付朝鮮最 有力的招數是什麼？ （政論天下第28集20190630）天亮時分 | [下载](https://y2mate.com/zh-cn/search/N6hrjhFwKqY) | [下载](../channels/tianliang/_N6hrjhFwKqY.srt?raw=true) | [下载](../channels/tianliang/_N6hrjhFwKqY.tw.srt?raw=true) | 
