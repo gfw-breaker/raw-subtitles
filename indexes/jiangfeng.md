@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| “打造”《雅爾塔協議》出賣中國的神秘人，躲在羅斯福總統身後的紅色間諜 （上）（歷史上的今天20190708第368期） | [下载](https://y2mate.com/zh-cn/search/1tTMa3VclRY) | [下载](../channels/jiangfeng/_1tTMa3VclRY.srt?raw=true) | [下载](../channels/jiangfeng/_1tTMa3VclRY.tw.srt?raw=true) | 
 | 20190707_特刊《白玫瑰第四份傳單》 -先知和圣徒们珍惜那份自由，在传讲真相中坚守他们心中的神，并且在神的帮助下逆转了让人们下滑的路线（歷史上的今天特刊20190707第4期） | [下载](https://y2mate.com/zh-cn/search/Ui474JeZsD0) | [下载](../channels/jiangfeng/_Ui474JeZsD0.srt?raw=true) | [下载](../channels/jiangfeng/_Ui474JeZsD0.tw.srt?raw=true) | 
 | 習近平在管控還是在失控 香港軍管消息放出要達到的真實目的; 川普獨立日“閱兵”的寒磣 看美國傳統的偉大（川普推推推20190705第12期） | [下载](https://y2mate.com/zh-cn/search/Iq7RQ3PoITY) | [下载](../channels/jiangfeng/_Iq7RQ3PoITY.srt?raw=true) | [下载](../channels/jiangfeng/_Iq7RQ3PoITY.tw.srt?raw=true) | 
 | 川普解凍華為，美國國內不買賬； 副總統彭斯被緊急召回，出了什麼狀況？以色列要出手打擊伊朗麼？綜述中美兩國國際戰略佈局（川普推推推20190703第11期）更新版 | [下载](https://y2mate.com/zh-cn/search/djBsHxXPff4) | [下载](../channels/jiangfeng/_djBsHxXPff4.srt?raw=true) | [下载](../channels/jiangfeng/_djBsHxXPff4.tw.srt?raw=true) | 

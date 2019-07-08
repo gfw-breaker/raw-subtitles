@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 九龙大游行中英翻脸，武汉万人大集结！宏颜获水川金三会，党玩自绝？ （2019_7_8_老北京茶馆_第156集） | [下载](https://y2mate.com/zh-cn/search/oGRHDQGcs2k) | [下载](../channels/teahouse/_oGRHDQGcs2k.srt?raw=true) | [下载](../channels/teahouse/_oGRHDQGcs2k.tw.srt?raw=true) | 
 | G20习近平又耍单、安倍反送中、川普重启谈判！王全璋、习近平呆滞念稿：被下药了？（2019_6_29_老北京茶馆_第155集） | [下载](https://y2mate.com/zh-cn/search/HIqMdFaZozM) | [下载](../channels/teahouse/_HIqMdFaZozM.srt?raw=true) | [下载](../channels/teahouse/_HIqMdFaZozM.tw.srt?raw=true) | 
 | G20川习会前外交部敲打习近平！党内挖更大坑！626香港再集结，林郑卧底帮台湾？(2019-6-26【老北京茶馆】第154集 ) | [下载](https://y2mate.com/zh-cn/search/BW3TJO87Yzk) | [下载](../channels/teahouse/_BW3TJO87Yzk.srt?raw=true) | [下载](../channels/teahouse/_BW3TJO87Yzk.tw.srt?raw=true) | 
 | 塔利班访华G20交易；台湾623凯道集结反红色媒体！善恶如此分明，习近平还迷路？【短评快】008 (2019-6-23) | [下载](https://y2mate.com/zh-cn/search/fj2jPJAGwKU) | [下载](../channels/teahouse/_fj2jPJAGwKU.srt?raw=true) | [下载](../channels/teahouse/_fj2jPJAGwKU.tw.srt?raw=true) | 
