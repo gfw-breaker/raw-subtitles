@@ -75,7 +75,6 @@ cd $baseDir
 git pull
 git add indexes/*.md
 git add */*/*.srt
-git add */*/*.text
 git commit -a -m 'break the wall'
 git push
 
