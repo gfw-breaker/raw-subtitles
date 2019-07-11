@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 習近平再次違背川習會的承諾，收不到大豆款的川普會啟動3000億關稅麼？美國國旗誓言的糾紛與緣由（川普推推推20190711第14期） | [下载](https://y2mate.com/zh-cn/search/4PostUs3RME) | [下载](../channels/jiangfeng/_4PostUs3RME.srt?raw=true) | [下载](../channels/jiangfeng/_4PostUs3RME.tw.srt?raw=true) | 
 | 人民認可並授權的政府權力才是正當的，人民有推翻暴政的權力； 從美國糧食券看政府理念和人民的權力（川普推推推20190710第13期） | [下载](https://y2mate.com/zh-cn/search/56LABhac_pQ) | [下载](../channels/jiangfeng/_56LABhac_pQ.srt?raw=true) | [下载](../channels/jiangfeng/_56LABhac_pQ.tw.srt?raw=true) | 
 | 美國紅色間諜（下）：前蘇聯間諜的自傳改變了里根總統的立場；尼克松從反共鬥士變成與中共的交易者。 （歷史上的今天20190709第369期） | [下载](https://y2mate.com/zh-cn/search/Jy5pJsuUkwc) | [下载](../channels/jiangfeng/_Jy5pJsuUkwc.srt?raw=true) | [下载](../channels/jiangfeng/_Jy5pJsuUkwc.tw.srt?raw=true) | 
 | 美國紅色間諜（上）：“打造”《雅爾塔協議》出賣中國的神秘人，躲在羅斯福總統身後的共產黨員（歷史上的今天20190708第368期） | [下载](https://y2mate.com/zh-cn/search/1tTMa3VclRY) | [下载](../channels/jiangfeng/_1tTMa3VclRY.srt?raw=true) | [下载](../channels/jiangfeng/_1tTMa3VclRY.tw.srt?raw=true) | 
