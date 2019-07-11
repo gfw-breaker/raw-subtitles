@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 简明中国通史（1）：三皇五帝（史海揚帆第14集20190711）天亮時分 | [下载](https://y2mate.com/zh-cn/search/F7fTYnK3Bww) | [下载](../channels/tianliang/_F7fTYnK3Bww.srt?raw=true) | [下载](../channels/tianliang/_F7fTYnK3Bww.tw.srt?raw=true) | 
 | “送中條例”壽終正寢，兩大原因值得注意。中共的香港困境也是中美貿易戰困境。香港人下一步如何行動？(政論天下第33集20190709）天亮時分 | [下载](https://y2mate.com/zh-cn/search/5vA2Wqo-75A) | [下载](../channels/tianliang/_5vA2Wqo-75A.srt?raw=true) | [下载](../channels/tianliang/_5vA2Wqo-75A.tw.srt?raw=true) | 
 | 从“五毛党主席”染香被中共限制出境，丈夫被抓半年音讯全无，谈我为什么对五毛充满同情（政論天下第32集20190708） | [下载](https://y2mate.com/zh-cn/search/h30akh3F8TA) | [下载](../channels/tianliang/_h30akh3F8TA.srt?raw=true) | [下载](../channels/tianliang/_h30akh3F8TA.tw.srt?raw=true) | 
 | 九龍大遊行後的極限施壓策略，十項'非暴力行動計劃'為香港贏來真正的自由（政論天下第31集20190707）天亮時分 | [下载](https://y2mate.com/zh-cn/search/3-nIUWtzzUM) | [下载](../channels/tianliang/_3-nIUWtzzUM.srt?raw=true) | [下载](../channels/tianliang/_3-nIUWtzzUM.tw.srt?raw=true) | 
