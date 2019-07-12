@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 三峡大坝变形移位？党：“防谣言眼罩耳塞子上市啦！根治三峡大坝，从家庭主妇抓起！”【短评快】010（2019-7-12） | [下载](https://y2mate.com/zh-cn/search/2YyhoLQM3Qg) | [下载](../channels/teahouse/_2YyhoLQM3Qg.srt?raw=true) | [下载](../channels/teahouse/_2YyhoLQM3Qg.tw.srt?raw=true) | 
 | 何韵诗2分钟演讲，林郑为送中“送终”；华谊兄弟入党！袁小靓重操旧业？【短评快】009 （2019-7-10） | [下载](https://y2mate.com/zh-cn/search/7xfOtVi8UBU) | [下载](../channels/teahouse/_7xfOtVi8UBU.srt?raw=true) | [下载](../channels/teahouse/_7xfOtVi8UBU.tw.srt?raw=true) | 
 | 九龙大游行中英翻脸，武汉万人大集结！宏颜获水川金三会，党玩自绝？ （2019_7_8_老北京茶馆_第156集） | [下载](https://y2mate.com/zh-cn/search/oGRHDQGcs2k) | [下载](../channels/teahouse/_oGRHDQGcs2k.srt?raw=true) | [下载](../channels/teahouse/_oGRHDQGcs2k.tw.srt?raw=true) | 
 | G20习近平又耍单、安倍反送中、川普重启谈判！王全璋、习近平呆滞念稿：被下药了？（2019_6_29_老北京茶馆_第155集） | [下载](https://y2mate.com/zh-cn/search/HIqMdFaZozM) | [下载](../channels/teahouse/_HIqMdFaZozM.srt?raw=true) | [下载](../channels/teahouse/_HIqMdFaZozM.tw.srt?raw=true) | 
