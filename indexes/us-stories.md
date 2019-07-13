@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美国】记忆差，别着急；学英文，有秘笈。。。 | [下载](https://y2mate.com/zh-cn/search/7pTPRa2Cuhg) | [下载](../channels/us-stories/_7pTPRa2Cuhg.srt?raw=true) | [下载](../channels/us-stories/_7pTPRa2Cuhg.tw.srt?raw=true) | 
 | 【清聊美国】简单步骤 让你提前几秒预知地震的到来 | [下载](https://y2mate.com/zh-cn/search/U0JBLKusnnI) | [下载](../channels/us-stories/_U0JBLKusnnI.srt?raw=true) | [下载](../channels/us-stories/_U0JBLKusnnI.tw.srt?raw=true) | 
 | 【清聊美国】免费机票是这么得到的 | [下载](https://y2mate.com/zh-cn/search/RfMo6TtlLkg) | [下载](../channels/us-stories/_RfMo6TtlLkg.srt?raw=true) | [下载](../channels/us-stories/_RfMo6TtlLkg.tw.srt?raw=true) | 
 | 【清聊美国】一张罚单让他爱上了这个国家 | [下载](https://y2mate.com/zh-cn/search/NKkpS9vuYUk) | [下载](../channels/us-stories/_NKkpS9vuYUk.srt?raw=true) | [下载](../channels/us-stories/_NKkpS9vuYUk.tw.srt?raw=true) | 
