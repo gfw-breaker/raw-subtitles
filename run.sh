@@ -18,7 +18,7 @@ while read line; do
 
 	youtube-dl --ignore-errors -f 18 \
 		--max-downloads 4\
-		--playlist-end 100 \
+		--playlist-end 10 \
 		-i $ytUrl/$channel
 
 	
