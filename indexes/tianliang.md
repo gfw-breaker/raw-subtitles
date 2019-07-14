@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 槍砲與玫瑰的故事，香港人非暴力抗爭長期化的戰略 （政論天下第35集 20190717）天亮時分 | [下载](https://y2mate.com/zh-cn/search/4eW-DuHI7tc) | [下载](../channels/tianliang/_4eW-DuHI7tc.srt?raw=true) | [下载](../channels/tianliang/_4eW-DuHI7tc.tw.srt?raw=true) | 
+| 反送中條例，香港11萬人沙田再遊行。槍砲與玫瑰的故事，香港人非暴力抗爭長期化的戰略 （政論天下第35集 20190714）天亮時分 | [下载](https://y2mate.com/zh-cn/search/4eW-DuHI7tc) | [下载](../channels/tianliang/_4eW-DuHI7tc.srt?raw=true) | [下载](../channels/tianliang/_4eW-DuHI7tc.tw.srt?raw=true) | 
 | 中共前國防部部長常萬全出事！從魏忠賢興衰與中共高官沉浮的相似之處，談權力的基礎是什麼？ （政論天下第34集20190712）天亮時分 | [下载](https://y2mate.com/zh-cn/search/yVW7axV2_Y4) | [下载](../channels/tianliang/_yVW7axV2_Y4.srt?raw=true) | [下载](../channels/tianliang/_yVW7axV2_Y4.tw.srt?raw=true) | 
 | 简明中国通史（1）：三皇五帝（史海揚帆第14集20190711）天亮時分 | [下载](https://y2mate.com/zh-cn/search/F7fTYnK3Bww) | [下载](../channels/tianliang/_F7fTYnK3Bww.srt?raw=true) | [下载](../channels/tianliang/_F7fTYnK3Bww.tw.srt?raw=true) | 
 | 简明中国通史（2）夏朝和商朝（史海扬帆第15集20190713）天亮时分 | [下载](https://y2mate.com/zh-cn/search/ghVwlQn1fLQ) | [下载](../channels/tianliang/_ghVwlQn1fLQ.srt?raw=true) | [下载](../channels/tianliang/_ghVwlQn1fLQ.tw.srt?raw=true) | 
