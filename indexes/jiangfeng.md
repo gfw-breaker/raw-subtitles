@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普對台軍售迫中共改寫2020攻台計劃；台灣最新防禦戰略打擊大陸1000公里縱深；中共對美國軍火商制裁川普如何報復？（《江峰漫談》 20190714第9期） | [下载](https://y2mate.com/zh-cn/search/rLcr7hsuX-k) | [下载](../channels/jiangfeng/_rLcr7hsuX-k.srt?raw=true) | [下载](../channels/jiangfeng/_rLcr7hsuX-k.tw.srt?raw=true) | 
 | 習近平再次違背川習會的承諾，收不到大豆款的川普會啟動3000億關稅麼？美國國旗誓言的糾紛與緣由（川普推推推20190711第14期） | [下载](https://y2mate.com/zh-cn/search/4PostUs3RME) | [下载](../channels/jiangfeng/_4PostUs3RME.srt?raw=true) | [下载](../channels/jiangfeng/_4PostUs3RME.tw.srt?raw=true) | 
 | 人民認可並授權的政府權力才是正當的，人民有推翻暴政的權力； 從美國糧食券看政府理念和人民的權力（川普推推推20190710第13期） | [下载](https://y2mate.com/zh-cn/search/56LABhac_pQ) | [下载](../channels/jiangfeng/_56LABhac_pQ.srt?raw=true) | [下载](../channels/jiangfeng/_56LABhac_pQ.tw.srt?raw=true) | 
 | 美國紅色間諜（下）：前蘇聯間諜的自傳改變了里根總統的立場；尼克松從反共鬥士變成與中共的交易者。 （歷史上的今天20190709第369期） | [下载](https://y2mate.com/zh-cn/search/Jy5pJsuUkwc) | [下载](../channels/jiangfeng/_Jy5pJsuUkwc.srt?raw=true) | [下载](../channels/jiangfeng/_Jy5pJsuUkwc.tw.srt?raw=true) | 
