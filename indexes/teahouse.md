@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 沙田游行警民冲突！蔡英文纽约遇暴力，香港抗争遍地开花，北戴河会议前，党拼了？(2019_7_15_老北京茶馆_第157集) | [下载](https://y2mate.com/zh-cn/search/EQNHt8RUQTs) | [下载](../channels/teahouse/_EQNHt8RUQTs.srt?raw=true) | [下载](../channels/teahouse/_EQNHt8RUQTs.tw.srt?raw=true) | 
 | 三峡大坝变形移位？党：“防谣言眼罩耳塞子上市啦！根治三峡大坝，从家庭主妇抓起！”【短评快】010（2019-7-12） | [下载](https://y2mate.com/zh-cn/search/2YyhoLQM3Qg) | [下载](../channels/teahouse/_2YyhoLQM3Qg.srt?raw=true) | [下载](../channels/teahouse/_2YyhoLQM3Qg.tw.srt?raw=true) | 
 | 何韵诗2分钟演讲，林郑为送中“送终”；华谊兄弟入党！袁小靓重操旧业？【短评快】009 （2019-7-10） | [下载](https://y2mate.com/zh-cn/search/7xfOtVi8UBU) | [下载](../channels/teahouse/_7xfOtVi8UBU.srt?raw=true) | [下载](../channels/teahouse/_7xfOtVi8UBU.tw.srt?raw=true) | 
 | 九龙大游行中英翻脸，武汉万人大集结！宏颜获水川金三会，党玩自绝？ （2019_7_8_老北京茶馆_第156集） | [下载](https://y2mate.com/zh-cn/search/oGRHDQGcs2k) | [下载](../channels/teahouse/_oGRHDQGcs2k.srt?raw=true) | [下载](../channels/teahouse/_oGRHDQGcs2k.tw.srt?raw=true) | 
