@@ -46,9 +46,10 @@ while read line; do
 
 
 	# cleanup
-	ls -t *.mp4 | sed -n '8,$p' > old.txt
+	ls -t *.mp4 | sed -n '5,$p' > old.txt
 	while read line; do
-		rm -fr "$line"
+		#rm -fr "$line"
+		echo "$line"
 	done < old.txt
 	
 
