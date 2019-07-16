@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 韓國瑜對決蔡英文；從東晉偏安的歷史談中共武統台灣的可能性；這兩個大選議題是關鍵（政論天下第36集 20190716）天亮時分 | [下载](https://y2mate.com/zh-cn/search/ZRBdYr-XDWY) | [下载](../channels/tianliang/_ZRBdYr-XDWY.srt?raw=true) | [下载](../channels/tianliang/_ZRBdYr-XDWY.tw.srt?raw=true) | 
 | 更新版：中國簡明通史（1）三皇五帝 （史海揚帆第14集20190712）天亮時分 | [下载](https://y2mate.com/zh-cn/search/EucMgF9WA0c) | [下载](../channels/tianliang/_EucMgF9WA0c.srt?raw=true) | [下载](../channels/tianliang/_EucMgF9WA0c.tw.srt?raw=true) | 
 | 反送中條例，香港11萬人沙田再遊行。槍砲與玫瑰的故事，香港人非暴力抗爭長期化的戰略 （政論天下第35集 20190714）天亮時分 | [下载](https://y2mate.com/zh-cn/search/4eW-DuHI7tc) | [下载](../channels/tianliang/_4eW-DuHI7tc.srt?raw=true) | [下载](../channels/tianliang/_4eW-DuHI7tc.tw.srt?raw=true) | 
 | 中共前國防部部長常萬全出事！從魏忠賢興衰與中共高官沉浮的相似之處，談權力的基礎是什麼？ （政論天下第34集20190712）天亮時分 | [下载](https://y2mate.com/zh-cn/search/yVW7axV2_Y4) | [下载](../channels/tianliang/_yVW7axV2_Y4.srt?raw=true) | [下载](../channels/tianliang/_yVW7axV2_Y4.tw.srt?raw=true) | 
