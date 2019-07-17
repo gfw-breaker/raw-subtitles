@@ -17,7 +17,7 @@ while read line; do
 	rm -fr tmp && mkdir tmp
 
 	youtube-dl --ignore-errors -f 18 \
-		--max-downloads 4\
+		--max-downloads 4 \
 		--playlist-end 10 \
 		-i $ytUrl/$channel
 
@@ -38,10 +38,10 @@ while read line; do
 		mv tmp.txt names.txt 		
 	
 		# remove duplicated	
-		if [ -f tmp/$nvid ]; then
-			rm "$(cat tmp/$nvid)"
-		fi
-		echo $mp4 > tmp/$nvid
+		#if [ -f tmp/$nvid ]; then
+		#	rm "$(cat tmp/$nvid)"
+		#fi
+		#echo $mp4 > tmp/$nvid
 	done < mp4s.txt
 
 
