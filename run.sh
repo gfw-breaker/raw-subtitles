@@ -17,7 +17,7 @@ while read line; do
 	rm -fr tmp && mkdir tmp
 
 	youtube-dl --ignore-errors -f 18 \
-		--max-downloads 4 \
+		--max-downloads 2 \
 		--playlist-end 10 \
 		-i $ytUrl/$channel
 
