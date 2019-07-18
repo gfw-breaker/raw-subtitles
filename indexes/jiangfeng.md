@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 歷史上的今天_美國的黑暗面 -貝爾醜聞貪污窩案 撿垃圾的干翻了市第一把手（ 20190717第371期） | [下载](https://y2mate.com/zh-cn/search/S-C93Uzz8-8) | [下载](../channels/jiangfeng/_S-C93Uzz8-8.srt?raw=true) | [下载](../channels/jiangfeng/_S-C93Uzz8-8.tw.srt?raw=true) | 
+| 拾荒女子發現驚天秘密 干翻城市一把手---貝爾市腐敗案（歷史上的今天 20190717第371期） | [下载](https://y2mate.com/zh-cn/search/S-C93Uzz8-8) | [下载](../channels/jiangfeng/_S-C93Uzz8-8.srt?raw=true) | [下载](../channels/jiangfeng/_S-C93Uzz8-8.tw.srt?raw=true) | 
 | 川普推推推_ 川普称習近平不再是哥們儿 深度解析! 谷歌與中共合作犯下叛國罪(20190716第15期）更新版 | [下载](https://y2mate.com/zh-cn/search/Ld8SVP8MJVA) | [下载](../channels/jiangfeng/_Ld8SVP8MJVA.srt?raw=true) | [下载](../channels/jiangfeng/_Ld8SVP8MJVA.tw.srt?raw=true) | 
 | 【江峰時刻】廬山會議60年：被毛澤東一悶棍打翻的彭德懷和他的萬言書（歷史上的今天20190715第370期） | [下载](https://y2mate.com/zh-cn/search/fk4losMmEiw) | [下载](../channels/jiangfeng/_fk4losMmEiw.srt?raw=true) | [下载](../channels/jiangfeng/_fk4losMmEiw.tw.srt?raw=true) | 
 | 川普對台軍售迫中共改寫2020攻台計劃；台灣最新防禦戰略打擊大陸1000公里縱深；中共對美國軍火商制裁川普如何報復？（《江峰漫談》 20190714第9期） | [下载](https://y2mate.com/zh-cn/search/rLcr7hsuX-k) | [下载](../channels/jiangfeng/_rLcr7hsuX-k.srt?raw=true) | [下载](../channels/jiangfeng/_rLcr7hsuX-k.tw.srt?raw=true) | 
