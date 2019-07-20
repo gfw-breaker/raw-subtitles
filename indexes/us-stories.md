@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美国】闯大祸而因此留在美国 | [下载](https://y2mate.com/zh-cn/search/KgQ0NH4Jcu8) | [下载](../channels/us-stories/_KgQ0NH4Jcu8.srt?raw=true) | [下载](../channels/us-stories/_KgQ0NH4Jcu8.tw.srt?raw=true) | 
 | 【清聊美国】和老美打交道容易吗？ - 清风在美国的第一份工作 | [下载](https://y2mate.com/zh-cn/search/Ay4-hfCLUEI) | [下载](../channels/us-stories/_Ay4-hfCLUEI.srt?raw=true) | [下载](../channels/us-stories/_Ay4-hfCLUEI.tw.srt?raw=true) | 
 | 【清聊美国】记忆差，别着急；学英文，有秘笈。。。 | [下载](https://y2mate.com/zh-cn/search/7pTPRa2Cuhg) | [下载](../channels/us-stories/_7pTPRa2Cuhg.srt?raw=true) | [下载](../channels/us-stories/_7pTPRa2Cuhg.tw.srt?raw=true) | 
 | 【清聊美国】简单步骤 让你提前几秒预知地震的到来 | [下载](https://y2mate.com/zh-cn/search/U0JBLKusnnI) | [下载](../channels/us-stories/_U0JBLKusnnI.srt?raw=true) | [下载](../channels/us-stories/_U0JBLKusnnI.tw.srt?raw=true) | 
