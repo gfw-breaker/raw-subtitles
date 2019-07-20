@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 什麼是關鍵時刻扭轉命運的仙丹妙藥？答案是問對一個問題(大樹教練 第7集20190721) | [下载](https://y2mate.com/zh-cn/search/mr54Puyrozo) | [下载](../channels/bigtree/_mr54Puyrozo.srt?raw=true) | [下载](../channels/bigtree/_mr54Puyrozo.tw.srt?raw=true) | 
 | 情緒管理第三關鍵要素：改變你提問問題的方式(大樹教練 第6集20190719) | [下载](https://y2mate.com/zh-cn/search/jNpFisgIeu4) | [下载](../channels/bigtree/_jNpFisgIeu4.srt?raw=true) | [下载](../channels/bigtree/_jNpFisgIeu4.tw.srt?raw=true) | 
 | 情緒管理第二關鍵要素：改變你專注的焦點(大樹教練 第5集 20190716) | [下载](https://y2mate.com/zh-cn/search/79urAi7cZE0) | [下载](../channels/bigtree/_79urAi7cZE0.srt?raw=true) | [下载](../channels/bigtree/_79urAi7cZE0.tw.srt?raw=true) | 
 | 情緒管理第一關鍵要素：改變你的肢體動作(大樹教練第4集20190714) | [下载](https://y2mate.com/zh-cn/search/vDLDTZBjfUI) | [下载](../channels/bigtree/_vDLDTZBjfUI.srt?raw=true) | [下载](../channels/bigtree/_vDLDTZBjfUI.tw.srt?raw=true) | 
