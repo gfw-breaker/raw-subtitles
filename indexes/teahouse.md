@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 党被骂惨，华春莹冲锋堵抢眼！ 721香港反送中大游行，共匪勾结黑帮，港警也孤单？！（2019_7_21_老北京茶馆_第159集） | [下载](https://y2mate.com/zh-cn/search/u_Cly8H4iqo) | [下载](../channels/teahouse/_u_Cly8H4iqo.srt?raw=true) | [下载](../channels/teahouse/_u_Cly8H4iqo.tw.srt?raw=true) | 
 | 中共遭20年致命一击！川普答法轮功学员张玉华：“我明白”！ 白宫：对中共迫害宗教自由问责开始！ （2019_7_19_老北京茶馆_第158集） | [下载](https://y2mate.com/zh-cn/search/Bg2AqBltaYk) | [下载](../channels/teahouse/_Bg2AqBltaYk.srt?raw=true) | [下载](../channels/teahouse/_Bg2AqBltaYk.tw.srt?raw=true) | 
 | 沙田游行警民冲突！蔡英文纽约遇暴力，香港抗争遍地开花，北戴河会议前，党拼了？(2019_7_15_老北京茶馆_第157集) | [下载](https://y2mate.com/zh-cn/search/EQNHt8RUQTs) | [下载](../channels/teahouse/_EQNHt8RUQTs.srt?raw=true) | [下载](../channels/teahouse/_EQNHt8RUQTs.tw.srt?raw=true) | 
 | 三峡大坝变形移位？党：“防谣言眼罩耳塞子上市啦！根治三峡大坝，从家庭主妇抓起！”【短评快】010（2019-7-12） | [下载](https://y2mate.com/zh-cn/search/2YyhoLQM3Qg) | [下载](../channels/teahouse/_2YyhoLQM3Qg.srt?raw=true) | [下载](../channels/teahouse/_2YyhoLQM3Qg.tw.srt?raw=true) | 
