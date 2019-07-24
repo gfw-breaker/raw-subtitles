@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 軍車調動，香港重演六四？張扣扣和章瑩穎案看公義； 中共超高音速導彈“大殺器”與美國新國防部長的“六大件”（川普推推推20190724第16期) | [下载](https://y2mate.com/zh-cn/search/jpkH8yWJOFs) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.srt?raw=true) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.tw.srt?raw=true) | 
 | 李鵬過世，聊聊紅二代的那些事兒； 三峽大壩變形與八九六四，中共繞不過去的原罪；李鵬蓋棺定論看中共處理香港問題的路數（江峰漫談 20190723第13期） | [下载](https://y2mate.com/zh-cn/search/wulLVG4uXW0) | [下载](../channels/jiangfeng/_wulLVG4uXW0.srt?raw=true) | [下载](../channels/jiangfeng/_wulLVG4uXW0.tw.srt?raw=true) | 
 | 香港元朗白衣人背後的黑手；塗抹中聯辦 警察再次隱身；前美國總領事稱要捍衛香港（江峰漫談20190722第12期） | [下载](https://y2mate.com/zh-cn/search/TdIatrMFiMk) | [下载](../channels/jiangfeng/_TdIatrMFiMk.srt?raw=true) | [下载](../channels/jiangfeng/_TdIatrMFiMk.tw.srt?raw=true) | 
 | 卡特、布什秘密約定和克林頓國會行動—美國40年養大中共怪獸；川普一次握手開始破局（江峰漫談20190720第11期） | [下载](https://y2mate.com/zh-cn/search/GP65Fb723Fw) | [下载](../channels/jiangfeng/_GP65Fb723Fw.srt?raw=true) | [下载](../channels/jiangfeng/_GP65Fb723Fw.tw.srt?raw=true) | 
