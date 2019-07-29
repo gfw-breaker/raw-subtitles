@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 香港又開槍，中共能拖到十月份嗎？這三件事發生後，中共將不得不做出決斷（政論天下第41集 20190728）天亮時分 | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
+| _ | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/rWJNAJrgEoE) | [下载](../channels/tianliang/_rWJNAJrgEoE.srt?raw=true) | [下载](../channels/tianliang/_rWJNAJrgEoE.tw.srt?raw=true) | 
 | 中國簡明通史（3）西周--兼論怎樣才算是真正的中國人（史海揚帆第16集20190724）天亮時分 | [下载](https://y2mate.com/zh-cn/search/pdwSMLFmUkI) | [下载](../channels/tianliang/_pdwSMLFmUkI.srt?raw=true) | [下载](../channels/tianliang/_pdwSMLFmUkI.tw.srt?raw=true) | 
 | 43万人大游行，警方再度开枪；中共以黑社会治港，香港人如何应对？（政論天下第39集 20190722）天亮時分 | [下载](https://y2mate.com/zh-cn/search/s4RRnTnBvqI) | [下载](../channels/tianliang/_s4RRnTnBvqI.srt?raw=true) | [下载](../channels/tianliang/_s4RRnTnBvqI.tw.srt?raw=true) | 
