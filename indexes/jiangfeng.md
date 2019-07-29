@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| _ | [下载](https://y2mate.com/zh-cn/search/OxK5ijsZ_0w) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.srt?raw=true) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/eo7TCl84Nu8) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.srt?raw=true) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.tw.srt?raw=true) | 
 | 軍車調動，香港重演六四？張扣扣和章瑩穎案看公義； 中共超高音速導彈“大殺器”與美國新國防部長的“六大件”（川普推推推20190724第16期) | [下载](https://y2mate.com/zh-cn/search/jpkH8yWJOFs) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.srt?raw=true) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.tw.srt?raw=true) | 
