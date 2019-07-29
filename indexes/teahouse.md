@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平危机：被战狼泼妇毛左包围！骂美国，怼元朗，坑挖能手王沪宁笑了……（2019_7_29_老北京茶馆_第161集） | [下载](https://y2mate.com/zh-cn/search/zBdtj9yCrwE) | [下载](../channels/teahouse/_zBdtj9yCrwE.srt?raw=true) | [下载](../channels/teahouse/_zBdtj9yCrwE.tw.srt?raw=true) | 
 | 李鹏之死泄王沪宁机密！贼喊捉贼，华春莹猛眨眼玩高级黑；雷洋时局中共军管香港？（2019_7_26_老北京茶馆短评快_011） | [下载](https://y2mate.com/zh-cn/search/qJ0WZpM3zxw) | [下载](../channels/teahouse/_qJ0WZpM3zxw.srt?raw=true) | [下载](../channels/teahouse/_qJ0WZpM3zxw.tw.srt?raw=true) | 
 | 李鹏去了，韭菜花来了，股民敲钟！元朗暴动，暗黑势力撕破脸？中联办涂鸦，水军玩陷！（2019_7_24_老北京茶馆_第160集） | [下载](https://y2mate.com/zh-cn/search/P9RCnDf4sSA) | [下载](../channels/teahouse/_P9RCnDf4sSA.srt?raw=true) | [下载](../channels/teahouse/_P9RCnDf4sSA.tw.srt?raw=true) | 
 | 党被骂惨，华春莹冲锋堵枪眼！ 721香港反送中大游行，共匪勾结黑帮，港警也孤单？！（2019_7_21_老北京茶馆_第159集） | [下载](https://y2mate.com/zh-cn/search/u_Cly8H4iqo) | [下载](../channels/teahouse/_u_Cly8H4iqo.srt?raw=true) | [下载](../channels/teahouse/_u_Cly8H4iqo.tw.srt?raw=true) | 
