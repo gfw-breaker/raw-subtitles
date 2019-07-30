@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| _ | [下载](https://y2mate.com/zh-cn/search/RqUF90zAsoA) | [下载](../channels/simonegao/_RqUF90zAsoA.srt?raw=true) | [下载](../channels/simonegao/_RqUF90zAsoA.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/-5-b640CIZs) | [下载](../channels/simonegao/_-5-b640CIZs.srt?raw=true) | [下载](../channels/simonegao/_-5-b640CIZs.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/2R52NC1WwIY) | [下载](../channels/simonegao/_2R52NC1WwIY.srt?raw=true) | [下载](../channels/simonegao/_2R52NC1WwIY.tw.srt?raw=true) | 
 | 分析：南華早報「闢謠」金融時報「林鄭辭職」說 | [下载](https://y2mate.com/zh-cn/search/KmEuRS8KG_E) | [下载](../channels/simonegao/_KmEuRS8KG_E.srt?raw=true) | [下载](../channels/simonegao/_KmEuRS8KG_E.tw.srt?raw=true) | 
