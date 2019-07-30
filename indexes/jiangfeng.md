@@ -3,8 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 解讀港澳辦新聞發布會；一國兩制底線；港獨和境外反華勢力究竟誰培養的？ （江峰漫談20190729第15期） | [下载](https://y2mate.com/zh-cn/search/OxK5ijsZ_0w) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.srt?raw=true) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.tw.srt?raw=true) | 
-| 與八九六四屠城的前夜高度相似，香港民主運動會走向不同結局麼？林鄭月娥和香港地下黨的宿命（江峰漫談 20190728第14期） | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 
+| _ | [下载](https://y2mate.com/zh-cn/search/OxK5ijsZ_0w) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.srt?raw=true) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.tw.srt?raw=true) | 
+| _ | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 
 | 川普干預司法，總統卸任後仍將面臨控告？通俄門穆勒報告國會聽證，美國民眾看真實版紙牌屋（ 川普推推推20190725第17期） | [下载](https://y2mate.com/zh-cn/search/eo7TCl84Nu8) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.srt?raw=true) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.tw.srt?raw=true) | 
 | 軍車調動，香港重演六四？張扣扣和章瑩穎案看公義； 中共超高音速導彈“大殺器”與美國新國防部長的“六大件”（川普推推推20190724第16期) | [下载](https://y2mate.com/zh-cn/search/jpkH8yWJOFs) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.srt?raw=true) | [下载](../channels/jiangfeng/_jpkH8yWJOFs.tw.srt?raw=true) | 
 | 李鵬過世，聊聊紅二代的那些事兒； 三峽大壩變形與八九六四，中共繞不過去的原罪；李鵬蓋棺定論看中共處理香港問題的路數（江峰漫談 20190723第13期） | [下载](https://y2mate.com/zh-cn/search/wulLVG4uXW0) | [下载](../channels/jiangfeng/_wulLVG4uXW0.srt?raw=true) | [下载](../channels/jiangfeng/_wulLVG4uXW0.tw.srt?raw=true) | 
