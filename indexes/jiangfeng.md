@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| _ | [下载](https://y2mate.com/zh-cn/search/Hw9P3ODf6ik) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.srt?raw=true) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/OxK5ijsZ_0w) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.srt?raw=true) | [下载](../channels/jiangfeng/_OxK5ijsZ_0w.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 
 | 川普干預司法，總統卸任後仍將面臨控告？通俄門穆勒報告國會聽證，美國民眾看真實版紙牌屋（ 川普推推推20190725第17期） | [下载](https://y2mate.com/zh-cn/search/eo7TCl84Nu8) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.srt?raw=true) | [下载](../channels/jiangfeng/_eo7TCl84Nu8.tw.srt?raw=true) | 
