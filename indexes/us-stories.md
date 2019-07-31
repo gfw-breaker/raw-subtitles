@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| _ | [下载](https://y2mate.com/zh-cn/search/B-u-TONkEY8) | [下载](../channels/us-stories/_B-u-TONkEY8.srt?raw=true) | [下载](../channels/us-stories/_B-u-TONkEY8.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/yPLsJ-JP81Q) | [下载](../channels/us-stories/_yPLsJ-JP81Q.srt?raw=true) | [下载](../channels/us-stories/_yPLsJ-JP81Q.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/H5Q5EyRUVWU) | [下载](../channels/us-stories/_H5Q5EyRUVWU.srt?raw=true) | [下载](../channels/us-stories/_H5Q5EyRUVWU.tw.srt?raw=true) | 
 | 【清聊美国 - 老美怎么办】女儿深夜溜出家门 怎么办？ | [下载](https://y2mate.com/zh-cn/search/WK6TvaGdjtw) | [下载](../channels/us-stories/_WK6TvaGdjtw.srt?raw=true) | [下载](../channels/us-stories/_WK6TvaGdjtw.tw.srt?raw=true) | 
