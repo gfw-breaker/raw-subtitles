@@ -3,8 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| _ | [下载](https://y2mate.com/zh-cn/search/bICfz0UlKqE) | [下载](../channels/simonegao/_bICfz0UlKqE.srt?raw=true) | [下载](../channels/simonegao/_bICfz0UlKqE.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/-5-b640CIZs) | [下载](../channels/simonegao/_-5-b640CIZs.srt?raw=true) | [下载](../channels/simonegao/_-5-b640CIZs.tw.srt?raw=true) | 
+| （新）港澳辦提基本法藏殺機；中共把反送中和顏色革命相比，爲鎮壓做輿論鋪墊，但未到動軍隊的臨界點。（2019年7月29日第13期） | [下载](https://y2mate.com/zh-cn/search/bICfz0UlKqE) | [下载](../channels/simonegao/_bICfz0UlKqE.srt?raw=true) | [下载](../channels/simonegao/_bICfz0UlKqE.tw.srt?raw=true) | 
+| 川普： 中共在美國大選前不会簽协议。那麼美國大選後呢？ | [下载](https://y2mate.com/zh-cn/search/-5-b640CIZs) | [下载](../channels/simonegao/_-5-b640CIZs.srt?raw=true) | [下载](../channels/simonegao/_-5-b640CIZs.tw.srt?raw=true) | 
 | 中共暗示駐港部隊會動武；香港是煤氣屋子裡的火星；美國更大的關切-不能失去臺灣 | [下载](https://y2mate.com/zh-cn/search/2R52NC1WwIY) | [下载](../channels/simonegao/_2R52NC1WwIY.srt?raw=true) | [下载](../channels/simonegao/_2R52NC1WwIY.tw.srt?raw=true) | 
 | 分析：南華早報「闢謠」金融時報「林鄭辭職」說 | [下载](https://y2mate.com/zh-cn/search/KmEuRS8KG_E) | [下载](../channels/simonegao/_KmEuRS8KG_E.srt?raw=true) | [下载](../channels/simonegao/_KmEuRS8KG_E.tw.srt?raw=true) | 
 | 「逃犯條例」「壽終正寢」但不「撤回」的玄機；香港年輕人把抗議升級的真正原因令人心碎（2019年7月10日第9期） | [下载](https://y2mate.com/zh-cn/search/QJCpK2vtMMs) | [下载](../channels/simonegao/_QJCpK2vtMMs.srt?raw=true) | [下载](../channels/simonegao/_QJCpK2vtMMs.tw.srt?raw=true) | 
