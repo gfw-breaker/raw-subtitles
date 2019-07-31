@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| _ | [下载](https://y2mate.com/zh-cn/search/nHlaJtWGVmo) | [下载](../channels/teahouse/_nHlaJtWGVmo.srt?raw=true) | [下载](../channels/teahouse/_nHlaJtWGVmo.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/zBdtj9yCrwE) | [下载](../channels/teahouse/_zBdtj9yCrwE.srt?raw=true) | [下载](../channels/teahouse/_zBdtj9yCrwE.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/qJ0WZpM3zxw) | [下载](../channels/teahouse/_qJ0WZpM3zxw.srt?raw=true) | [下载](../channels/teahouse/_qJ0WZpM3zxw.tw.srt?raw=true) | 
 | 李鹏去了，韭菜花来了，股民敲钟！元朗暴动，暗黑势力撕破脸？中联办涂鸦，水军玩陷！（2019_7_24_老北京茶馆_第160集） | [下载](https://y2mate.com/zh-cn/search/P9RCnDf4sSA) | [下载](../channels/teahouse/_P9RCnDf4sSA.srt?raw=true) | [下载](../channels/teahouse/_P9RCnDf4sSA.tw.srt?raw=true) | 
