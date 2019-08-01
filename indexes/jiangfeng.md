@@ -3,8 +3,9 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| _ | [下载](https://y2mate.com/zh-cn/search/aI0gxTwWDHc) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.srt?raw=true) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/jiangfeng/__.srt?raw=true) | [下载](../channels/jiangfeng/__.tw.srt?raw=true) | 
+| 中美貿易談判重啓，美聯儲降息又給中美貿易戰添加變數；川普推文不信任中共；埋貿易戰決戰伏筆？（川普推推推 20190731第18期） | [下载](https://y2mate.com/zh-cn/search/aI0gxTwWDHc) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.srt?raw=true) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.tw.srt?raw=true) | 
+| 港鐵罷工—8·5 罷工罷課罷市，香港反送中升級； 台灣才是中共是否以及何時出兵香港的決定因素，美國會武裝干涉麼？（江峰漫談20190730第16期） | [下载](https://y2mate.com/zh-cn/search/Hw9P3ODf6ik) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.srt?raw=true) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.tw.srt?raw=true) | 
 | 與八九六四屠城的前夜高度相似，香港民主運動會走向不同結局麼？林鄭月娥和香港地下黨的宿命（江峰漫談 20190728第14期） | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 
 | 中美貿易談判重啓，美聯儲降息又給中美貿易戰添加變數；川普推文不信任中共；埋貿易戰決戰伏筆？（川普推推推 2 | [下载](https://y2mate.com/zh-cn/search/190731第18期）) | [下载](../channels/jiangfeng/_190731第18期）.srt?raw=true) | [下载](../channels/jiangfeng/_190731第18期）.tw.srt?raw=true) | 
 | 港鐵罷工—8·5 罷工罷課罷市，香港反送中升級； 台灣才是中共是否以及何時出兵香港的決定因素，美國會武裝干涉麼？（江峰漫談2 | [下载](https://y2mate.com/zh-cn/search/190730第16期）) | [下载](../channels/jiangfeng/_190730第16期）.srt?raw=true) | [下载](../channels/jiangfeng/_190730第16期）.tw.srt?raw=true) | 
