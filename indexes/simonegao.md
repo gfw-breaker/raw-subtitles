@@ -5,7 +5,6 @@
 |---|---|---|---|
 | _ | [下载](https://y2mate.com/zh-cn/search/bICfz0UlKqE) | [下载](../channels/simonegao/_bICfz0UlKqE.srt?raw=true) | [下载](../channels/simonegao/_bICfz0UlKqE.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/simonegao/__.srt?raw=true) | [下载](../channels/simonegao/__.tw.srt?raw=true) | 
-| 川普： 中共在美國大選前不会簽协议。那麼美國大選後呢？ | [下载](https://y2mate.com/zh-cn/search/-5-b640CIZs) | [下载](../channels/simonegao/_-5-b640CIZs.srt?raw=true) | [下载](../channels/simonegao/_-5-b640CIZs.tw.srt?raw=true) | 
 | 中共暗示駐港部隊會動武；香港是煤氣屋子裡的火星；美國更大的關切-不能失去臺灣 | [下载](https://y2mate.com/zh-cn/search/2R52NC1WwIY) | [下载](../channels/simonegao/_2R52NC1WwIY.srt?raw=true) | [下载](../channels/simonegao/_2R52NC1WwIY.tw.srt?raw=true) | 
 | 「逃犯條例」「壽終正寢」但不「撤回」的玄機；香港年輕人把抗議升級的真正原因令人心碎（2019年7月10日第9期） | [下载](https://y2mate.com/zh-cn/search/QJCpK2vtMMs) | [下载](../channels/simonegao/_QJCpK2vtMMs.srt?raw=true) | [下载](../channels/simonegao/_QJCpK2vtMMs.tw.srt?raw=true) | 
 | 美國暫停加關稅是為了醞釀總攻擊？ | [下载](https://y2mate.com/zh-cn/search/XdpuraJ2icI) | [下载](../channels/simonegao/_XdpuraJ2icI.srt?raw=true) | [下载](../channels/simonegao/_XdpuraJ2icI.tw.srt?raw=true) | 
