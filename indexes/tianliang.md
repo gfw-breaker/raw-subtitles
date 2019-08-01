@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普給剩餘的3000億中國商品加稅，兩大預言的應驗及下一步中美貿易戰走向如何？ （政論天下第42集 20190801）天亮時分 | [下载](https://y2mate.com/zh-cn/search/MT2D93rKRD8) | [下载](../channels/tianliang/_MT2D93rKRD8.srt?raw=true) | [下载](../channels/tianliang/_MT2D93rKRD8.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/tianliang/__.srt?raw=true) | [下载](../channels/tianliang/__.tw.srt?raw=true) | 
 | 43万人大游行，警方再度开枪；中共以黑社会治港，香港人如何应对？（政論天下第39集 20190722）天亮時分 | [下载](https://y2mate.com/zh-cn/search/s4RRnTnBvqI) | [下载](../channels/tianliang/_s4RRnTnBvqI.srt?raw=true) | [下载](../channels/tianliang/_s4RRnTnBvqI.tw.srt?raw=true) | 
