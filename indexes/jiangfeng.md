@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普“斬立決” vs 中共“拖字訣” 3000億關稅九月開徵 什么原因促使川普下重手，中美贸易战下一步是谈还是打？（川普推推推20190801第19期） | [下载](https://y2mate.com/zh-cn/search/8ckGiN0xAbw) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.srt?raw=true) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.tw.srt?raw=true) | 
 | 臺灣大選在即 香港反送中升級 中共突然叫停陸客臺灣自由行 意欲何为？最怕什麽？（江峰漫談20190801第17期） | [下载](https://y2mate.com/zh-cn/search/SRuCQ6OXH30) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.srt?raw=true) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/jiangfeng/__.srt?raw=true) | [下载](../channels/jiangfeng/__.tw.srt?raw=true) | 
 | 中美貿易談判重啓，美聯儲降息又給中美貿易戰添加變數；川普推文不信任中共；埋貿易戰決戰伏筆？（川普推推推 20190731第18期） | [下载](https://y2mate.com/zh-cn/search/aI0gxTwWDHc) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.srt?raw=true) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.tw.srt?raw=true) | 
