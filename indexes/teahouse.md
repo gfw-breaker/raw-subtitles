@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 3000亿关税内幕！川普关税如何出笼？习近平惨遭揭短！香港戒严开始？（2019_8_2_老北京茶馆_第162集） | [下载](https://y2mate.com/zh-cn/search/D6tQ6EknYLE) | [下载](../channels/teahouse/_D6tQ6EknYLE.srt?raw=true) | [下载](../channels/teahouse/_D6tQ6EknYLE.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/teahouse/__.srt?raw=true) | [下载](../channels/teahouse/__.tw.srt?raw=true) | 
 | 三峡大坝变形移位？党：“防谣言眼罩耳塞子上市啦！根治三峡大坝，从家庭主妇抓起！”【短评快】010（2019-7-12） | [下载](https://y2mate.com/zh-cn/search/2YyhoLQM3Qg) | [下载](../channels/teahouse/_2YyhoLQM3Qg.srt?raw=true) | [下载](../channels/teahouse/_2YyhoLQM3Qg.tw.srt?raw=true) | 
 | 何韵诗2分钟演讲，林郑为送中“送终”；华谊兄弟入党！袁小靓重操旧业？【短评快】009 （2019-7-10） | [下载](https://y2mate.com/zh-cn/search/7xfOtVi8UBU) | [下载](../channels/teahouse/_7xfOtVi8UBU.srt?raw=true) | [下载](../channels/teahouse/_7xfOtVi8UBU.tw.srt?raw=true) | 
