@@ -8,3 +8,4 @@
 | _ | [下载](https://y2mate.com/zh-cn/search/wtjKbpaQ85Q) | [下载](../channels/bigtree/_wtjKbpaQ85Q.srt?raw=true) | [下载](../channels/bigtree/_wtjKbpaQ85Q.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/0oUt0fY3bo4) | [下载](../channels/bigtree/_0oUt0fY3bo4.srt?raw=true) | [下载](../channels/bigtree/_0oUt0fY3bo4.tw.srt?raw=true) | 
 | 人際關係的最高指導原則(大樹教練 第8集20190723) | [下载](https://y2mate.com/zh-cn/search/N5kkAQgpa3c) | [下载](../channels/bigtree/_N5kkAQgpa3c.srt?raw=true) | [下载](../channels/bigtree/_N5kkAQgpa3c.tw.srt?raw=true) | 
+| 原來性格的起點也是為了得到愛與關懷(大樹教練第11集20190730) | [下载](https://y2mate.com/zh-cn/search/4h8uzo9Ifjg) | [下载](../channels/bigtree/_4h8uzo9Ifjg.srt?raw=true) | [下载](../channels/bigtree/_4h8uzo9Ifjg.tw.srt?raw=true) | 
