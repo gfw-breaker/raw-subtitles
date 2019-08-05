@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 香港和贸易战，“十·一”之前见分晓？香港罢工，人民币汇率破7，中共铁腕镇压的可能性在增加？（政論天下第43集 20190805）天亮時分 | [下载](https://y2mate.com/zh-cn/search/KIuPgbP0XnQ) | [下载](../channels/tianliang/_KIuPgbP0XnQ.srt?raw=true) | [下载](../channels/tianliang/_KIuPgbP0XnQ.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/MT2D93rKRD8) | [下载](../channels/tianliang/_MT2D93rKRD8.srt?raw=true) | [下载](../channels/tianliang/_MT2D93rKRD8.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/tianliang/__.srt?raw=true) | [下载](../channels/tianliang/__.tw.srt?raw=true) | 
