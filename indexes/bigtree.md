@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 溝通就是同理心，理解就是懂得換位思考(大樹教練 第14集 20190806) | [下载](https://y2mate.com/zh-cn/search/_X9eVL59Kx0) | [下载](../channels/bigtree/__X9eVL59Kx0.srt?raw=true) | [下载](../channels/bigtree/__X9eVL59Kx0.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/gSfYY9qYnt0) | [下载](../channels/bigtree/_gSfYY9qYnt0.srt?raw=true) | [下载](../channels/bigtree/_gSfYY9qYnt0.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/Gqqet9bifTY) | [下载](../channels/bigtree/_Gqqet9bifTY.srt?raw=true) | [下载](../channels/bigtree/_Gqqet9bifTY.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/wtjKbpaQ85Q) | [下载](../channels/bigtree/_wtjKbpaQ85Q.srt?raw=true) | [下载](../channels/bigtree/_wtjKbpaQ85Q.tw.srt?raw=true) | 

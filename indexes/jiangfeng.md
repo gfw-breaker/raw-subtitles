@@ -3,7 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 獨家分析：川普跟中共“保持一致”？ “動亂”論香港反送中的深層原因，透露中共對香港時局研判和對策（江峰漫談 20190804第18期） | [下载](https://y2mate.com/zh-cn/search/d1GhCRchaZc) | [下载](../channels/jiangfeng/_d1GhCRchaZc.srt?raw=true) | [下载](../channels/jiangfeng/_d1GhCRchaZc.tw.srt?raw=true) | 
+| 中美貿易戰升級金融戰開打。人民幣美元匯率破七； 川普定義中共貨幣操控國； 8.5香港罷工，香港領軍外資撤出加速貶值不可逆（川普推推推20190805第20期） | [下载](https://y2mate.com/zh-cn/search/uW75AJUWGVk) | [下载](../channels/jiangfeng/_uW75AJUWGVk.srt?raw=true) | [下载](../channels/jiangfeng/_uW75AJUWGVk.tw.srt?raw=true) | 
+| 獨家分析：川普跟中共“保持一致”？ “動亂”論香港反送中的深層原因，透露中共對香港局勢研判和對策（江峰漫談 20190804第18期） | [下载](https://y2mate.com/zh-cn/search/d1GhCRchaZc) | [下载](../channels/jiangfeng/_d1GhCRchaZc.srt?raw=true) | [下载](../channels/jiangfeng/_d1GhCRchaZc.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/rOnXJKh1358) | [下载](../channels/jiangfeng/_rOnXJKh1358.srt?raw=true) | [下载](../channels/jiangfeng/_rOnXJKh1358.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/8ckGiN0xAbw) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.srt?raw=true) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.tw.srt?raw=true) | 
 | _ | [下载](https://y2mate.com/zh-cn/search/SRuCQ6OXH30) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.srt?raw=true) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.tw.srt?raw=true) | 
