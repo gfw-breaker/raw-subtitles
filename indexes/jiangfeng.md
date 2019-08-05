@@ -5,10 +5,9 @@
 |---|---|---|---|
 | 中美貿易戰升級金融戰開打。人民幣美元匯率破七； 川普定義中共貨幣操控國； 8.5香港罷工，香港領軍外資撤出加速貶值不可逆（川普推推推20190805第20期） | [下载](https://y2mate.com/zh-cn/search/uW75AJUWGVk) | [下载](../channels/jiangfeng/_uW75AJUWGVk.srt?raw=true) | [下载](../channels/jiangfeng/_uW75AJUWGVk.tw.srt?raw=true) | 
 | 獨家分析：川普跟中共“保持一致”？ “動亂”論香港反送中的深層原因，透露中共對香港局勢研判和對策（江峰漫談 20190804第18期） | [下载](https://y2mate.com/zh-cn/search/d1GhCRchaZc) | [下载](../channels/jiangfeng/_d1GhCRchaZc.srt?raw=true) | [下载](../channels/jiangfeng/_d1GhCRchaZc.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/rOnXJKh1358) | [下载](../channels/jiangfeng/_rOnXJKh1358.srt?raw=true) | [下载](../channels/jiangfeng/_rOnXJKh1358.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/8ckGiN0xAbw) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.srt?raw=true) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/SRuCQ6OXH30) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.srt?raw=true) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.tw.srt?raw=true) | 
-|  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/jiangfeng/__.srt?raw=true) | [下载](../channels/jiangfeng/__.tw.srt?raw=true) | 
+| 逃港的大陸人和無路可逃的香港人。深圳經濟特區是被大逃港逼出來的？香港反送中越演越烈。（歷史上的今天 20190619第365期）重新發布 | [下载](https://y2mate.com/zh-cn/search/rOnXJKh1358) | [下载](../channels/jiangfeng/_rOnXJKh1358.srt?raw=true) | [下载](../channels/jiangfeng/_rOnXJKh1358.tw.srt?raw=true) | 
+| 川普“斬立決” vs 中共“拖字訣” 3000億關稅九月開徵 什么原因促使川普下重手，中美贸易战下一步是谈还是打？（川普推推推20190801第19期） | [下载](https://y2mate.com/zh-cn/search/8ckGiN0xAbw) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.srt?raw=true) | [下载](../channels/jiangfeng/_8ckGiN0xAbw.tw.srt?raw=true) | 
+| 臺灣大選在即 香港反送中升級 中共突然叫停陸客臺灣自由行 意欲何为？最怕什麽？（江峰漫談20190801第17期） | [下载](https://y2mate.com/zh-cn/search/SRuCQ6OXH30) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.srt?raw=true) | [下载](../channels/jiangfeng/_SRuCQ6OXH30.tw.srt?raw=true) | 
 | 中美貿易談判重啓，美聯儲降息又給中美貿易戰添加變數；川普推文不信任中共；埋貿易戰決戰伏筆？（川普推推推 20190731第18期） | [下载](https://y2mate.com/zh-cn/search/aI0gxTwWDHc) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.srt?raw=true) | [下载](../channels/jiangfeng/_aI0gxTwWDHc.tw.srt?raw=true) | 
 | 港鐵罷工—8·5 罷工罷課罷市，香港反送中升級； 台灣才是中共是否以及何時出兵香港的決定因素，美國會武裝干涉麼？（江峰漫談20190730第16期） | [下载](https://y2mate.com/zh-cn/search/Hw9P3ODf6ik) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.srt?raw=true) | [下载](../channels/jiangfeng/_Hw9P3ODf6ik.tw.srt?raw=true) | 
 | 與八九六四屠城的前夜高度相似，香港民主運動會走向不同結局麼？林鄭月娥和香港地下黨的宿命（江峰漫談 20190728第14期） | [下载](https://y2mate.com/zh-cn/search/uDLXH7MAPV4) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.srt?raw=true) | [下载](../channels/jiangfeng/_uDLXH7MAPV4.tw.srt?raw=true) | 

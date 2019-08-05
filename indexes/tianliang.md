@@ -4,9 +4,8 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 香港事件和中美貿易戰，“十·一”之前見分曉？香港罷工，人民幣匯率破7，中共鐵腕鎮壓的可能性在增加？(政論天下第43集 20190805)天亮時分 | [下载](https://y2mate.com/zh-cn/search/KIuPgbP0XnQ) | [下载](../channels/tianliang/_KIuPgbP0XnQ.srt?raw=true) | [下载](../channels/tianliang/_KIuPgbP0XnQ.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/MT2D93rKRD8) | [下载](../channels/tianliang/_MT2D93rKRD8.srt?raw=true) | [下载](../channels/tianliang/_MT2D93rKRD8.tw.srt?raw=true) | 
-| _ | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
-|  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/tianliang/__.srt?raw=true) | [下载](../channels/tianliang/__.tw.srt?raw=true) | 
+| 川普給剩餘的3000億中國商品加稅，兩大預言的應驗及下一步中美貿易戰走向如何？對百姓有何影響？ (政論天下第42集 20190801)天亮時分 | [下载](https://y2mate.com/zh-cn/search/MT2D93rKRD8) | [下载](../channels/tianliang/_MT2D93rKRD8.srt?raw=true) | [下载](../channels/tianliang/_MT2D93rKRD8.tw.srt?raw=true) | 
+| 香港又開槍，中共能拖到十月份嗎？這三件事發生後，中共將不得不做出決斷(政論天下第41集 20190728)天亮時分 | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
 | 43万人大游行，警方再度开枪；中共以黑社会治港，香港人如何应对？（政論天下第39集 20190722）天亮時分 | [下载](https://y2mate.com/zh-cn/search/s4RRnTnBvqI) | [下载](../channels/tianliang/_s4RRnTnBvqI.srt?raw=true) | [下载](../channels/tianliang/_s4RRnTnBvqI.tw.srt?raw=true) | 
 | 誰能在中共的鎮壓下走過20年？（政論天下第38集 20190720）天亮時分 | [下载](https://y2mate.com/zh-cn/search/gP8UUGRHJUg) | [下载](../channels/tianliang/_gP8UUGRHJUg.srt?raw=true) | [下载](../channels/tianliang/_gP8UUGRHJUg.tw.srt?raw=true) | 
 | 川普又說可能加稅，與習近平的關係“不再那麼親密”了，中美貿易戰烏雲籠罩，美聯儲的態度很關鍵（政論天下第37集 20190717）天亮時分 | [下载](https://y2mate.com/zh-cn/search/PvwIR00dYgM) | [下载](../channels/tianliang/_PvwIR00dYgM.srt?raw=true) | [下载](../channels/tianliang/_PvwIR00dYgM.tw.srt?raw=true) | 

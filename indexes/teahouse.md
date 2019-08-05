@@ -5,6 +5,8 @@
 |---|---|---|---|
 | 北戴河开会，收到七宗罪！香港大罢工，党国血旗扔大海，梁振英悬赏100万效忠，被雷！（2019_8_5_老北京茶馆_第163集） | [下载](https://y2mate.com/zh-cn/search/9T9iEXcOQAU) | [下载](../channels/teahouse/_9T9iEXcOQAU.srt?raw=true) | [下载](../channels/teahouse/_9T9iEXcOQAU.tw.srt?raw=true) | 
 | 3000亿关税内幕！川普关税如何出笼？习近平惨遭揭短！香港戒严开始？（2019_8_2_老北京茶馆_第162集） | [下载](https://y2mate.com/zh-cn/search/D6tQ6EknYLE) | [下载](../channels/teahouse/_D6tQ6EknYLE.srt?raw=true) | [下载](../channels/teahouse/_D6tQ6EknYLE.tw.srt?raw=true) | 
+| 重判黄琦，牵出两桩奇案！蛤蟆、烤鹅惊现葬礼，观摩寿终正寝还是…怕完？（2019_7_31_老北京茶馆短评快_012） | [下载](https://y2mate.com/zh-cn/search/nHlaJtWGVmo) | [下载](../channels/teahouse/_nHlaJtWGVmo.srt?raw=true) | [下载](../channels/teahouse/_nHlaJtWGVmo.tw.srt?raw=true) | 
+| 习近平危机：被战狼泼妇毛左包围！骂美国，怼元朗，坑挖能手王沪宁笑了……（2019_7_29_老北京茶馆_第161集） | [下载](https://y2mate.com/zh-cn/search/zBdtj9yCrwE) | [下载](../channels/teahouse/_zBdtj9yCrwE.srt?raw=true) | [下载](../channels/teahouse/_zBdtj9yCrwE.tw.srt?raw=true) | 
 |  | [下载](https://y2mate.com/zh-cn/search/_) | [下载](../channels/teahouse/__.srt?raw=true) | [下载](../channels/teahouse/__.tw.srt?raw=true) | 
 | 三峡大坝变形移位？党：“防谣言眼罩耳塞子上市啦！根治三峡大坝，从家庭主妇抓起！”【短评快】010（2019-7-12） | [下载](https://y2mate.com/zh-cn/search/2YyhoLQM3Qg) | [下载](../channels/teahouse/_2YyhoLQM3Qg.srt?raw=true) | [下载](../channels/teahouse/_2YyhoLQM3Qg.tw.srt?raw=true) | 
 | 何韵诗2分钟演讲，林郑为送中“送终”；华谊兄弟入党！袁小靓重操旧业？【短评快】009 （2019-7-10） | [下载](https://y2mate.com/zh-cn/search/7xfOtVi8UBU) | [下载](../channels/teahouse/_7xfOtVi8UBU.srt?raw=true) | [下载](../channels/teahouse/_7xfOtVi8UBU.tw.srt?raw=true) | 
