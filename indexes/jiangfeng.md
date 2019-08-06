@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 匯率操縱國—中美貿易戰升級金融戰會帶來怎樣大變局？兩大預兆：馬雲馬化騰公私合營，委內瑞拉國家資產凍結。瑞士銀行巨額財富的神秘主人急了（江峰漫談 20190806第19期） | [下载](https://y2mate.com/zh-cn/search/ljNp-ftw8Qo) | [下载](../channels/jiangfeng/_ljNp-ftw8Qo.srt?raw=true) | [下载](../channels/jiangfeng/_ljNp-ftw8Qo.tw.srt?raw=true) | 
 | 中美貿易戰升級金融戰開打。人民幣匯率破七； 川普定義中共貨幣操縱國； 8.5香港罷工，香港領軍外資撤出加速貶值不可逆（川普推推推20190805第20期） | [下载](https://y2mate.com/zh-cn/search/uW75AJUWGVk) | [下载](../channels/jiangfeng/_uW75AJUWGVk.srt?raw=true) | [下载](../channels/jiangfeng/_uW75AJUWGVk.tw.srt?raw=true) | 
 | 獨家分析：川普跟中共“保持一致”？ “動亂”論香港反送中的深層原因，透露中共對香港局勢研判和對策（江峰漫談 20190804第18期） | [下载](https://y2mate.com/zh-cn/search/d1GhCRchaZc) | [下载](../channels/jiangfeng/_d1GhCRchaZc.srt?raw=true) | [下载](../channels/jiangfeng/_d1GhCRchaZc.tw.srt?raw=true) | 
 | 逃港的大陸人和無路可逃的香港人。深圳經濟特區是被大逃港逼出來的？香港反送中越演越烈。（歷史上的今天 20190619第365期）重新發布 | [下载](https://y2mate.com/zh-cn/search/rOnXJKh1358) | [下载](../channels/jiangfeng/_rOnXJKh1358.srt?raw=true) | [下载](../channels/jiangfeng/_rOnXJKh1358.tw.srt?raw=true) | 
