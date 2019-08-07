@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 中國被列為匯率操縱國！9月1日，川普恐加稅至25%,貿易戰升級金融戰;人民幣的匯率實際應為多少(政論天下第44集 20190806)天亮時分 | [下载](https://y2mate.com/zh-cn/search/rgqNKRnjmfw) | [下载](../channels/tianliang/_rgqNKRnjmfw.srt?raw=true) | [下载](../channels/tianliang/_rgqNKRnjmfw.tw.srt?raw=true) | 
+| 中國被列為匯率操縱國！9月1日,川普恐加稅至25%,貿易戰升級金融戰;人民幣的匯率實際應為多少(政論天下第44集 20190806)天亮時分 | [下载](https://y2mate.com/zh-cn/search/rgqNKRnjmfw) | [下载](../channels/tianliang/_rgqNKRnjmfw.srt?raw=true) | [下载](../channels/tianliang/_rgqNKRnjmfw.tw.srt?raw=true) | 
 | 香港事件和中美貿易戰，“十·一”之前見分曉？香港罷工，人民幣匯率破7，中共鐵腕鎮壓的可能性在增加？(政論天下第43集 20190805)天亮時分 | [下载](https://y2mate.com/zh-cn/search/KIuPgbP0XnQ) | [下载](../channels/tianliang/_KIuPgbP0XnQ.srt?raw=true) | [下载](../channels/tianliang/_KIuPgbP0XnQ.tw.srt?raw=true) | 
 | 川普給剩餘的3000億中國商品加稅，兩大預言的應驗及下一步中美貿易戰走向如何？對百姓有何影響？ (政論天下第42集 20190801)天亮時分 | [下载](https://y2mate.com/zh-cn/search/MT2D93rKRD8) | [下载](../channels/tianliang/_MT2D93rKRD8.srt?raw=true) | [下载](../channels/tianliang/_MT2D93rKRD8.tw.srt?raw=true) | 
 | 香港又開槍，中共能拖到十月份嗎？這三件事發生後，中共將不得不做出決斷(政論天下第41集 20190728)天亮時分 | [下载](https://y2mate.com/zh-cn/search/HzhzL0bo4Yo) | [下载](../channels/tianliang/_HzhzL0bo4Yo.srt?raw=true) | [下载](../channels/tianliang/_HzhzL0bo4Yo.tw.srt?raw=true) | 
