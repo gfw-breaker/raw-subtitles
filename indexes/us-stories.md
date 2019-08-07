@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國】11 - 在美國，如果您的孩子不愛學英文，還是喜歡讀中文小說、看中文電視，怎麼辦？ | [下载](https://y2mate.com/zh-cn/search/By2g0AYgTxU) | [下载](../channels/us-stories/_By2g0AYgTxU.srt?raw=true) | [下载](../channels/us-stories/_By2g0AYgTxU.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】10 - 走路也會吃罰單 | [下载](https://y2mate.com/zh-cn/search/89cZtc2YcSA) | [下载](../channels/us-stories/_89cZtc2YcSA.srt?raw=true) | [下载](../channels/us-stories/_89cZtc2YcSA.tw.srt?raw=true) | 
 | 【清聊美國 - 老美怎麼辦】3：一招就能讓孩子保持學習熱情 | [下载](https://y2mate.com/zh-cn/search/B-u-TONkEY8) | [下载](../channels/us-stories/_B-u-TONkEY8.srt?raw=true) | [下载](../channels/us-stories/_B-u-TONkEY8.tw.srt?raw=true) | 
 | [清聊美國 - 移民生活】 9 - 留學生非法打工 遇移民局搜查 結果怎麼樣？ | [下载](https://y2mate.com/zh-cn/search/yPLsJ-JP81Q) | [下载](../channels/us-stories/_yPLsJ-JP81Q.srt?raw=true) | [下载](../channels/us-stories/_yPLsJ-JP81Q.tw.srt?raw=true) | 
