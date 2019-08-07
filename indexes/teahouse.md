@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 重磅茶：人民币破7大决战，中国大妈绝地反击 之 乾坤大挪移！（2019_8_7_老北京茶馆_第164集花絮） | [下载](https://y2mate.com/zh-cn/search/vGyQ1Qg4Hm4) | [下载](../channels/teahouse/_vGyQ1Qg4Hm4.srt?raw=true) | [下载](../channels/teahouse/_vGyQ1Qg4Hm4.tw.srt?raw=true) | 
 | 北戴河开会，收到七宗罪！香港大罢工，党国血旗扔大海，梁振英悬赏100万效忠，被雷！（2019_8_5_老北京茶馆_第163集） | [下载](https://y2mate.com/zh-cn/search/9T9iEXcOQAU) | [下载](../channels/teahouse/_9T9iEXcOQAU.srt?raw=true) | [下载](../channels/teahouse/_9T9iEXcOQAU.tw.srt?raw=true) | 
 | 3000亿关税内幕！川普关税如何出笼？习近平惨遭揭短！香港戒严开始？（2019_8_2_老北京茶馆_第162集） | [下载](https://y2mate.com/zh-cn/search/D6tQ6EknYLE) | [下载](../channels/teahouse/_D6tQ6EknYLE.srt?raw=true) | [下载](../channels/teahouse/_D6tQ6EknYLE.tw.srt?raw=true) | 
 | 重判黄琦，牵出两桩奇案！蛤蟆、烤鹅惊现葬礼，观摩寿终正寝还是…怕完？（2019_7_31_老北京茶馆短评快_012） | [下载](https://y2mate.com/zh-cn/search/nHlaJtWGVmo) | [下载](../channels/teahouse/_nHlaJtWGVmo.srt?raw=true) | [下载](../channels/teahouse/_nHlaJtWGVmo.tw.srt?raw=true) | 
