@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 決定你人生的兩股最重要的力量：追求快樂與逃離痛苦(大樹教練 第15集 20190809 ) | [下载](https://y2mate.com/zh-cn/search/GX_vw7nUv3M) | [下载](../channels/bigtree/_GX_vw7nUv3M.srt?raw=true) | [下载](../channels/bigtree/_GX_vw7nUv3M.tw.srt?raw=true) | 
 | 溝通就是同理心，理解就是懂得換位思考(大樹教練 第14集 20190806) | [下载](https://y2mate.com/zh-cn/search/_X9eVL59Kx0) | [下载](../channels/bigtree/__X9eVL59Kx0.srt?raw=true) | [下载](../channels/bigtree/__X9eVL59Kx0.tw.srt?raw=true) | 
 | 所有人際關係的的問題都是溝通不良的問題(大樹教練第13集20190804) | [下载](https://y2mate.com/zh-cn/search/gSfYY9qYnt0) | [下载](../channels/bigtree/_gSfYY9qYnt0.srt?raw=true) | [下载](../channels/bigtree/_gSfYY9qYnt0.tw.srt?raw=true) | 
 | 社交軟體的風行讓人們容易迷失自我。(大樹教練第12集20190802 ) | [下载](https://y2mate.com/zh-cn/search/Gqqet9bifTY) | [下载](../channels/bigtree/_Gqqet9bifTY.srt?raw=true) | [下载](../channels/bigtree/_Gqqet9bifTY.tw.srt?raw=true) | 
