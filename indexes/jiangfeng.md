@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| （更新版）香港「反送中」，中共出兵的時機和真實目的； 誰在指揮香港警察？揭《粵港澳大灣區計劃》暗藏的重大政治謀慮（江峰漫談 20190812第22期） | [下载](https://y2mate.com/zh-cn/search/fTtn5LYmRE0) | [下载](../channels/jiangfeng/_fTtn5LYmRE0.srt?raw=true) | [下载](../channels/jiangfeng/_fTtn5LYmRE0.tw.srt?raw=true) | 
 | 香港「反送中」，中共出兵的時機和真實目的； 誰在指揮香港警察？國務院批准《粵港澳大灣區計劃》，終結香港警察天職（江峰漫談 20190812第22期） | [下载](https://y2mate.com/zh-cn/search/FZJnEQRmJv0) | [下载](../channels/jiangfeng/_FZJnEQRmJv0.srt?raw=true) | [下载](../channels/jiangfeng/_FZJnEQRmJv0.tw.srt?raw=true) | 
 | （更新版）太空軍、“隨時癱瘓中共網絡”、中程導彈部署、台灣雲峰導彈，北約戰略東移--從中美貿易戰、金融戰到戰爭衝突，川普全面布陣 （江峰漫談20190808第21期） | [下载](https://y2mate.com/zh-cn/search/d0fpcmDDeUc) | [下载](../channels/jiangfeng/_d0fpcmDDeUc.srt?raw=true) | [下载](../channels/jiangfeng/_d0fpcmDDeUc.tw.srt?raw=true) | 
 | 太空軍、“隨時癱瘓中共網絡”、中程導彈部署、台灣雲峰導彈，北約戰略東移--從中美貿易戰、金融戰到戰爭衝突，川普全面布陣 （江峰漫談20190808第21期） | [下载](https://y2mate.com/zh-cn/search/vbaDNfiiZ9E) | [下载](../channels/jiangfeng/_vbaDNfiiZ9E.srt?raw=true) | [下载](../channels/jiangfeng/_vbaDNfiiZ9E.tw.srt?raw=true) | 
