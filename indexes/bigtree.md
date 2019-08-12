@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 面對問題的態度才是最好的教育題材(大樹教練 第17集 20190813) | [下载](https://y2mate.com/zh-cn/search/6bUvrn_8WL8) | [下载](../channels/bigtree/_6bUvrn_8WL8.srt?raw=true) | [下载](../channels/bigtree/_6bUvrn_8WL8.tw.srt?raw=true) | 
 | 能管住自己的人擁有最大的自由(大樹教練 第16集 20190811) | [下载](https://y2mate.com/zh-cn/search/XnivzweK8aU) | [下载](../channels/bigtree/_XnivzweK8aU.srt?raw=true) | [下载](../channels/bigtree/_XnivzweK8aU.tw.srt?raw=true) | 
 | 決定你人生的兩股最重要的力量：追求快樂與逃離痛苦(大樹教練 第15集 20190809 ) | [下载](https://y2mate.com/zh-cn/search/GX_vw7nUv3M) | [下载](../channels/bigtree/_GX_vw7nUv3M.srt?raw=true) | [下载](../channels/bigtree/_GX_vw7nUv3M.tw.srt?raw=true) | 
 | 溝通就是同理心，理解就是懂得換位思考(大樹教練 第14集 20190806) | [下载](https://y2mate.com/zh-cn/search/_X9eVL59Kx0) | [下载](../channels/bigtree/__X9eVL59Kx0.srt?raw=true) | [下载](../channels/bigtree/__X9eVL59Kx0.tw.srt?raw=true) | 
