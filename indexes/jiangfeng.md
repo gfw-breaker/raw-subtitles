@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普要私唔習近平 首次發聲：要簽貿易協議，先人道解決香港問題； 川普也遭中共盜竊知識產權之苦；拜登家族在華掙髒錢（川普推推推 20190815第22期） | [下载](https://y2mate.com/zh-cn/search/xU91FNezSSU) | [下载](../channels/jiangfeng/_xU91FNezSSU.srt?raw=true) | [下载](../channels/jiangfeng/_xU91FNezSSU.tw.srt?raw=true) | 
 | 五月份準確預測川普會在八月份延期徵稅；中共反誣反送中“恐怖主義” 陳兵深圳； 出兵香港不成熟，仍有兩難（川普推推推 20190814第21期） | [下载](https://y2mate.com/zh-cn/search/xpVCRn4OvDc) | [下载](../channels/jiangfeng/_xpVCRn4OvDc.srt?raw=true) | [下载](../channels/jiangfeng/_xpVCRn4OvDc.tw.srt?raw=true) | 
 | 愛潑斯坦性醜聞八卦：牽出川普和克林頓以及英國王室；愛潑斯坦離奇死亡的幕後黑手和神秘的撒旦儀式（江峰漫談20190813第23期） | [下载](https://y2mate.com/zh-cn/search/Ouzxl98MMtw) | [下载](../channels/jiangfeng/_Ouzxl98MMtw.srt?raw=true) | [下载](../channels/jiangfeng/_Ouzxl98MMtw.tw.srt?raw=true) | 
 | （更新版）香港「反送中」，中共出兵的時機和真實目的； 誰在指揮香港警察？揭《粵港澳大灣區計劃》暗藏的重大政治謀慮（江峰漫談 20190812第22期） | [下载](https://y2mate.com/zh-cn/search/fTtn5LYmRE0) | [下载](../channels/jiangfeng/_fTtn5LYmRE0.srt?raw=true) | [下载](../channels/jiangfeng/_fTtn5LYmRE0.tw.srt?raw=true) | 
