@@ -3,6 +3,8 @@
 baseDir=/raw-subtitles
 ytUrl=https://www.youtube.com/channel
 
+youtube-dl -U
+
 mkdir -p $baseDir/indexes
 mkdir -p $baseDir/channels
 
