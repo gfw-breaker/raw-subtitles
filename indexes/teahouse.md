@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【老北京茶馆】第168集 川普贸易谈判绑定香港，习近平进退两难！央视哈美、五毛添乱、深水埗灵异？李嘉诚叫板！（2019_8_16_老北京茶馆_第168集） | [下载](https://y2mate.com/zh-cn/search/lr4-GlSYEKo) | [下载](../channels/teahouse/_lr4-GlSYEKo.srt?raw=true) | [下载](../channels/teahouse/_lr4-GlSYEKo.tw.srt?raw=true) | 
 | 香港大决战！习近平下令平乱？川普密集推香港；中共军警开杀戒，粉红护旗手结局好惨！（2019_8_14_老北京茶馆_第167集） | [下载](https://y2mate.com/zh-cn/search/t36XbTRgKYg) | [下载](../channels/teahouse/_t36XbTRgKYg.srt?raw=true) | [下载](../channels/teahouse/_t36XbTRgKYg.tw.srt?raw=true) | 
 | 军警入港风暴来临？胡锦涛北戴河拉警报！川普警告取消谈判，英相指导林郑工作？晕！（2019_8_11_老北京茶馆_第166集） | [下载](https://y2mate.com/zh-cn/search/gMAY6dC7CY0) | [下载](../channels/teahouse/_gMAY6dC7CY0.srt?raw=true) | [下载](../channels/teahouse/_gMAY6dC7CY0.tw.srt?raw=true) | 
 | 报复美国，华为哭昏；中共被指流氓纳粹！港人告大陆同胞书，答茶友：为何茶馆黑中共？（2019_8_9_老北京茶馆_第165集） | [下载](https://y2mate.com/zh-cn/search/JslkqjCYdxg) | [下载](../channels/teahouse/_JslkqjCYdxg.srt?raw=true) | [下载](../channels/teahouse/_JslkqjCYdxg.tw.srt?raw=true) | 
