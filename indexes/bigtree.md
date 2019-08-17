@@ -4,6 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 以身作則真的有用嗎？(大樹教練 第18集 20190816) | [下载](https://y2mate.com/zh-cn/search/k7bPFeeIwwA) | [下载](../channels/bigtree/_k7bPFeeIwwA.srt?raw=true) | [下载](../channels/bigtree/_k7bPFeeIwwA.tw.srt?raw=true) | 
+| 唯有教育能解決一切根源問題(大樹教練 第19集 20190818) | [下载](https://y2mate.com/zh-cn/search/jmS9Cdk8WcA) | [下载](../channels/bigtree/_jmS9Cdk8WcA.srt?raw=true) | [下载](../channels/bigtree/_jmS9Cdk8WcA.tw.srt?raw=true) | 
 | 面對問題的態度才是最好的教育題材(大樹教練 第17集 20190813) | [下载](https://y2mate.com/zh-cn/search/6bUvrn_8WL8) | [下载](../channels/bigtree/_6bUvrn_8WL8.srt?raw=true) | [下载](../channels/bigtree/_6bUvrn_8WL8.tw.srt?raw=true) | 
 | 能管住自己的人擁有最大的自由(大樹教練 第16集 20190811) | [下载](https://y2mate.com/zh-cn/search/XnivzweK8aU) | [下载](../channels/bigtree/_XnivzweK8aU.srt?raw=true) | [下载](../channels/bigtree/_XnivzweK8aU.tw.srt?raw=true) | 
 | 決定你人生的兩股最重要的力量：追求快樂與逃離痛苦(大樹教練 第15集 20190809 ) | [下载](https://y2mate.com/zh-cn/search/GX_vw7nUv3M) | [下载](../channels/bigtree/_GX_vw7nUv3M.srt?raw=true) | [下载](../channels/bigtree/_GX_vw7nUv3M.tw.srt?raw=true) | 
