@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李嘉誠“黃台之瓜” 玄妙 習近平鎮壓撤兵兩難 818香港反送中進入轉戾點（江峰漫談20190818第25期） | [下载](https://y2mate.com/zh-cn/search/72sC14lX0OA) | [下载](../channels/jiangfeng/_72sC14lX0OA.srt?raw=true) | [下载](../channels/jiangfeng/_72sC14lX0OA.tw.srt?raw=true) | 
 | 香港加油 8.18特別轉推：香港反送中關鍵時刻，是歷史重演，還是歷史拐點？全球正義力量共同發聲（江峰漫談20190817第24期） | [下载](https://y2mate.com/zh-cn/search/yBRh6q1Gc4Q) | [下载](../channels/jiangfeng/_yBRh6q1Gc4Q.srt?raw=true) | [下载](../channels/jiangfeng/_yBRh6q1Gc4Q.tw.srt?raw=true) | 
 | 中共提出秘密交易：用全盤接受貿易協議換取派兵鎮壓香港反送中的美國的沉默。陳兵深圳，政治恫嚇多於軍事行動（川普推推推 20190816第23期） | [下载](https://y2mate.com/zh-cn/search/EgWbsuEWqqY) | [下载](../channels/jiangfeng/_EgWbsuEWqqY.srt?raw=true) | [下载](../channels/jiangfeng/_EgWbsuEWqqY.tw.srt?raw=true) | 
 | 川普要私晤習近平 首次發聲：要簽貿易協議，先人道解決香港問題； 川普也遭中共盜竊知識產權之苦；拜登家族在華掙髒錢（川普推推推 20190815第22期） | [下载](https://y2mate.com/zh-cn/search/xU91FNezSSU) | [下载](../channels/jiangfeng/_xU91FNezSSU.srt?raw=true) | [下载](../channels/jiangfeng/_xU91FNezSSU.tw.srt?raw=true) | 
