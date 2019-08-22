@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 林鄭月娥下台是成本最小的“反送中”解決方案，香港中央特派員會是誰？ “愛國”的層次：小粉紅的謾罵和法拉利；推特臉書封號（江峰漫談 20190821第27期） | [下载](https://y2mate.com/zh-cn/search/uE131RciEcw) | [下载](../channels/jiangfeng/_uE131RciEcw.srt?raw=true) | [下载](../channels/jiangfeng/_uE131RciEcw.tw.srt?raw=true) | 
 | 取代香港？深圳是習近平新時代中國特色社會主義先行示範區；還是香港反送中催生的政治備胎（江峰漫談20190820第26期） | [下载](https://y2mate.com/zh-cn/search/AcTv36hIVjo) | [下载](../channels/jiangfeng/_AcTv36hIVjo.srt?raw=true) | [下载](../channels/jiangfeng/_AcTv36hIVjo.tw.srt?raw=true) | 
 | 李嘉誠“黃台之瓜” 玄妙 習近平鎮壓撤兵兩難 818香港反送中進入轉戾點（江峰漫談20190818第25期） | [下载](https://y2mate.com/zh-cn/search/72sC14lX0OA) | [下载](../channels/jiangfeng/_72sC14lX0OA.srt?raw=true) | [下载](../channels/jiangfeng/_72sC14lX0OA.tw.srt?raw=true) | 
 | 香港加油 8.18特別轉推：香港反送中關鍵時刻，是歷史重演，還是歷史拐點？全球正義力量共同發聲（江峰漫談20190817第24期） | [下载](https://y2mate.com/zh-cn/search/yBRh6q1Gc4Q) | [下载](../channels/jiangfeng/_yBRh6q1Gc4Q.srt?raw=true) | [下载](../channels/jiangfeng/_yBRh6q1Gc4Q.tw.srt?raw=true) | 

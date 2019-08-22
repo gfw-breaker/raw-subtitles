@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 时局微妙，习近平拜佛？818军车示弱，党媒喊断水下台阶；推特清理门户，大外宣有点挫！（2019_8_21_老北京茶馆_第170集） | [下载](https://y2mate.com/zh-cn/search/cDVxGZHIRkg) | [下载](../channels/teahouse/_cDVxGZHIRkg.srt?raw=true) | [下载](../channels/teahouse/_cDVxGZHIRkg.tw.srt?raw=true) | 
 | 818维园集会大揭秘：英雄与暴徒混行！网红秋实现场报道，徐晓冬：我们只是在猪圈装猪！（2019_8_18_老北京茶馆_第169集） | [下载](https://y2mate.com/zh-cn/search/eJ_SE7iszdU) | [下载](../channels/teahouse/_eJ_SE7iszdU.srt?raw=true) | [下载](../channels/teahouse/_eJ_SE7iszdU.tw.srt?raw=true) | 
 | 川普贸易谈判绑定香港，习近平进退两难！央视哈美、五毛添乱、深水埗灵异？李嘉诚叫板！（2019_8_16_老北京茶馆_第168集） | [下载](https://y2mate.com/zh-cn/search/lr4-GlSYEKo) | [下载](../channels/teahouse/_lr4-GlSYEKo.srt?raw=true) | [下载](../channels/teahouse/_lr4-GlSYEKo.tw.srt?raw=true) | 
 | 香港大决战！习近平下令平乱？川普密集推香港；中共军警开杀戒，粉红护旗手结局好惨！（2019_8_14_老北京茶馆_第167集） | [下载](https://y2mate.com/zh-cn/search/t36XbTRgKYg) | [下载](../channels/teahouse/_t36XbTRgKYg.srt?raw=true) | [下载](../channels/teahouse/_t36XbTRgKYg.tw.srt?raw=true) | 
