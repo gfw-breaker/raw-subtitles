@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 重大政治信號：川普改稱習近平，總統變主席，朋友變敵人；針對中共報復清單，川普今天晚些將出台更嚴厲手段 （川普推推推20190823第24期） | [下载](https://y2mate.com/zh-cn/search/8rly1cFRHI0) | [下载](../channels/jiangfeng/_8rly1cFRHI0.srt?raw=true) | [下载](../channels/jiangfeng/_8rly1cFRHI0.tw.srt?raw=true) | 
 | 中共什麼時候制裁美軍火商啊？美對台軍售，台灣為什麼不買F-35？是精明還是被美國涮了？ F-16V如何對決殲-20？（江峰漫談20190822第28期） | [下载](https://y2mate.com/zh-cn/search/AHmdKFrTXIo) | [下载](../channels/jiangfeng/_AHmdKFrTXIo.srt?raw=true) | [下载](../channels/jiangfeng/_AHmdKFrTXIo.tw.srt?raw=true) | 
 | 林鄭月娥下台是成本最小的“反送中”解決方案，香港中央特派員會是誰？ “愛國”的層次：小粉紅的謾罵和法拉利；推特臉書封號（江峰漫談 20190821第27期） | [下载](https://y2mate.com/zh-cn/search/uE131RciEcw) | [下载](../channels/jiangfeng/_uE131RciEcw.srt?raw=true) | [下载](../channels/jiangfeng/_uE131RciEcw.tw.srt?raw=true) | 
 | 取代香港？深圳是習近平新時代中國特色社會主義先行示範區；還是香港反送中催生的政治備胎（江峰漫談20190820第26期） | [下载](https://y2mate.com/zh-cn/search/AcTv36hIVjo) | [下载](../channels/jiangfeng/_AcTv36hIVjo.srt?raw=true) | [下载](../channels/jiangfeng/_AcTv36hIVjo.tw.srt?raw=true) | 
