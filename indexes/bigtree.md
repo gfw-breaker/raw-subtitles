@@ -3,10 +3,10 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 不用急著去否定，因為，你不知道別人的定義是什麼(新大樹教練 第22集 20190825) | [下载](https://y2mate.com/zh-cn/search/yOXn7OwxLms) | [下载](../channels/bigtree/_yOXn7OwxLms.srt?raw=true) | [下载](../channels/bigtree/_yOXn7OwxLms.tw.srt?raw=true) | 
-| 因不了解而在一起，因了解而分開。這是怎麼一回事？(新大樹教練21集 20190823) | [下载](https://y2mate.com/zh-cn/search/DMaPaQNKAZQ) | [下载](../channels/bigtree/_DMaPaQNKAZQ.srt?raw=true) | [下载](../channels/bigtree/_DMaPaQNKAZQ.tw.srt?raw=true) | 
+| 所有的事情沒有一定的定義，除非自己下定義(官方頻道大樹教練 第20集 20190820) | [下载](https://y2mate.com/zh-cn/search/_oFJh_5YUDg) | [下载](../channels/bigtree/__oFJh_5YUDg.srt?raw=true) | [下载](../channels/bigtree/__oFJh_5YUDg.tw.srt?raw=true) | 
+| 不用急著去否定，因為，你不知道別人的定義是什麼(官方頻道大樹教練 第22集 20190825) | [下载](https://y2mate.com/zh-cn/search/yOXn7OwxLms) | [下载](../channels/bigtree/_yOXn7OwxLms.srt?raw=true) | [下载](../channels/bigtree/_yOXn7OwxLms.tw.srt?raw=true) | 
+| 因不了解而在一起，因了解而分開。這是怎麼一回事？(官方頻道大樹教練21集 20190823) | [下载](https://y2mate.com/zh-cn/search/DMaPaQNKAZQ) | [下载](../channels/bigtree/_DMaPaQNKAZQ.srt?raw=true) | [下载](../channels/bigtree/_DMaPaQNKAZQ.tw.srt?raw=true) | 
 | 以身作則真的有用嗎？(大樹教練 第18集 20190816) | [下载](https://y2mate.com/zh-cn/search/k7bPFeeIwwA) | [下载](../channels/bigtree/_k7bPFeeIwwA.srt?raw=true) | [下载](../channels/bigtree/_k7bPFeeIwwA.tw.srt?raw=true) | 
-| 所有的事情沒有一定的定義，除非自己下定義(新大樹教練 第20集 20190820) | [下载](https://y2mate.com/zh-cn/search/_oFJh_5YUDg) | [下载](../channels/bigtree/__oFJh_5YUDg.srt?raw=true) | [下载](../channels/bigtree/__oFJh_5YUDg.tw.srt?raw=true) | 
 | 唯有教育能解決一切根源問題(大樹教練 第19集 20190818) | [下载](https://y2mate.com/zh-cn/search/jmS9Cdk8WcA) | [下载](../channels/bigtree/_jmS9Cdk8WcA.srt?raw=true) | [下载](../channels/bigtree/_jmS9Cdk8WcA.tw.srt?raw=true) | 
 | 面對問題的態度才是最好的教育題材(大樹教練 第17集 20190813) | [下载](https://y2mate.com/zh-cn/search/6bUvrn_8WL8) | [下载](../channels/bigtree/_6bUvrn_8WL8.srt?raw=true) | [下载](../channels/bigtree/_6bUvrn_8WL8.tw.srt?raw=true) | 
 | 能管住自己的人擁有最大的自由(大樹教練 第16集 20190811) | [下载](https://y2mate.com/zh-cn/search/XnivzweK8aU) | [下载](../channels/bigtree/_XnivzweK8aU.srt?raw=true) | [下载](../channels/bigtree/_XnivzweK8aU.tw.srt?raw=true) | 
