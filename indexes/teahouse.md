@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| COSTCO好市多上海涉重大泄密？军车凌晨大举入港，陈秋实被踢出朋友圈！（2019_8_29_老北京茶馆_第173集） | [下载](https://y2mate.com/zh-cn/search/oMJ9OGkeJUY) | [下载](../channels/teahouse/_oMJ9OGkeJUY.srt?raw=true) | [下载](../channels/teahouse/_oMJ9OGkeJUY.tw.srt?raw=true) | 
 | 内讧！刘鹤连夜电话求谈判，外交部否认！川普后悔税加少，中联办承认社会主义是灾星！（2019_8_27_老北京茶馆_第172集） | [下载](https://y2mate.com/zh-cn/search/sgihLXMYkpA) | [下载](../channels/teahouse/_sgihLXMYkpA.srt?raw=true) | [下载](../channels/teahouse/_sgihLXMYkpA.tw.srt?raw=true) | 
 | 川普5500亿关税重拳回击中共关税报复后，再预告终极狠招！21万人香港之路喊天灭中共！（2019_8_25_老北京茶馆_第171集） | [下载](https://y2mate.com/zh-cn/search/x7JbKZV7LAA) | [下载](../channels/teahouse/_x7JbKZV7LAA.srt?raw=true) | [下载](../channels/teahouse/_x7JbKZV7LAA.tw.srt?raw=true) | 
 | 时局微妙，习近平拜佛？818军车示弱，党媒喊断水下台阶；推特清理门户，大外宣有点挫！（2019_8_21_老北京茶馆_第170集） | [下载](https://y2mate.com/zh-cn/search/cDVxGZHIRkg) | [下载](../channels/teahouse/_cDVxGZHIRkg.srt?raw=true) | [下载](../channels/teahouse/_cDVxGZHIRkg.tw.srt?raw=true) | 
