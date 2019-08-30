@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 中共高層在香港和貿易戰上分歧已經公開化。香港未來兩天很關鍵。（政論天下第48集 20190829）天亮時分 | [下载](https://y2mate.com/zh-cn/search/p94wHWB6D5g) | [下载](../channels/tianliang/_p94wHWB6D5g.srt?raw=true) | [下载](../channels/tianliang/_p94wHWB6D5g.tw.srt?raw=true) | 
+| 中共高層在香港和貿易戰上分歧已經公開化_香港未來兩天很關鍵(政論天下第48集 20190829)天亮時分 | [下载](https://y2mate.com/zh-cn/search/p94wHWB6D5g) | [下载](../channels/tianliang/_p94wHWB6D5g.srt?raw=true) | [下载](../channels/tianliang/_p94wHWB6D5g.tw.srt?raw=true) | 
 | 在加稅問題上後悔了？川普有一件核武級大殺器。中聯辦預言香港將有滅頂之災，警察暴力再度升級，短期內或見分曉。（政論天下第47集 20190825）天亮時分 | [下载](https://y2mate.com/zh-cn/search/nwPWSoGMmbA) | [下载](../channels/tianliang/_nwPWSoGMmbA.srt?raw=true) | [下载](../channels/tianliang/_nwPWSoGMmbA.tw.srt?raw=true) | 
 | 中国商品再被全面加税5%,川普称习近平为敌人!八月六日预言应验!贸易战火力全开,关税战升级当与香港事件有关(政論天下第46集 20190823)天亮時分 | [下载](https://y2mate.com/zh-cn/search/JKtHQQhZPxg) | [下载](../channels/tianliang/_JKtHQQhZPxg.srt?raw=true) | [下载](../channels/tianliang/_JKtHQQhZPxg.tw.srt?raw=true) | 
 | 川普轉推中共軍車進入香港的視頻,香港極可能戒嚴並取消11月區議會選舉(政論天下第45集 20190813)天亮時分 | [下载](https://y2mate.com/zh-cn/search/uJLBhjbmZG0) | [下载](../channels/tianliang/_uJLBhjbmZG0.srt?raw=true) | [下载](../channels/tianliang/_uJLBhjbmZG0.tw.srt?raw=true) | 
