@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 831遊行，為合理出台緊急法 警察製造暴力，下一步要對付誰？（江峰漫談20190901第33期） | [下载](https://y2mate.com/zh-cn/search/h_J0-e8qFJw) | [下载](../channels/jiangfeng/_h_J0-e8qFJw.srt?raw=true) | [下载](../channels/jiangfeng/_h_J0-e8qFJw.tw.srt?raw=true) | 
 | 裝甲車開進香港 駐港部隊換防與林鄭月娥的緊急法 謊言與陰謀（江峰漫談 20190829第32期） | [下载](https://y2mate.com/zh-cn/search/4mm1w5GBQf8) | [下载](../channels/jiangfeng/_4mm1w5GBQf8.srt?raw=true) | [下载](../channels/jiangfeng/_4mm1w5GBQf8.tw.srt?raw=true) | 
 | 林鄭緊急法取代戒嚴令， 川普喊話中國要出大事，中美兩次通話看外交黨宣系統習近平管不了了（江峰漫談20190828第31期） | [下载](https://y2mate.com/zh-cn/search/MXYfzEoxXgQ) | [下载](../channels/jiangfeng/_MXYfzEoxXgQ.srt?raw=true) | [下载](../channels/jiangfeng/_MXYfzEoxXgQ.tw.srt?raw=true) | 
 | 好市多Costco中國第一家店被買斷貨停業；中美貿易戰，聽中共的去吃草，還是去買美國貨？也談中國的不排隊（江峰漫談20190827第30期） | [下载](https://y2mate.com/zh-cn/search/eKKFkY5x82M) | [下载](../channels/jiangfeng/_eKKFkY5x82M.srt?raw=true) | [下载](../channels/jiangfeng/_eKKFkY5x82M.tw.srt?raw=true) | 
