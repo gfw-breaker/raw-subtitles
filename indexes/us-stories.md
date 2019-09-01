@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 老美怎麼辦】7 - 孩子在公共場所哭鬧 家長怎麼辦？ | [下载](https://y2mate.com/zh-cn/search/8C2ltGn0vS4) | [下载](../channels/us-stories/_8C2ltGn0vS4.srt?raw=true) | [下载](../channels/us-stories/_8C2ltGn0vS4.tw.srt?raw=true) | 
 | 【美國教育】3 - 學習超前的孩子需要跳级吗？ | [下载](https://y2mate.com/zh-cn/search/mj9SPzzrr5Y) | [下载](../channels/us-stories/_mj9SPzzrr5Y.srt?raw=true) | [下载](../channels/us-stories/_mj9SPzzrr5Y.tw.srt?raw=true) | 
 | 【清聊美国 - 老美怎么办】6 - 18岁的孩子被逐出家门的原因 | [下载](https://y2mate.com/zh-cn/search/97qsYRWlPpc) | [下载](../channels/us-stories/_97qsYRWlPpc.srt?raw=true) | [下载](../channels/us-stories/_97qsYRWlPpc.tw.srt?raw=true) | 
 | 【清聊美國 - 老美怎麼辦】5 - 給18歲的學生找工作的一點建議 | [下载](https://y2mate.com/zh-cn/search/TQAbuuAPDwM) | [下载](../channels/us-stories/_TQAbuuAPDwM.srt?raw=true) | [下载](../channels/us-stories/_TQAbuuAPDwM.tw.srt?raw=true) | 
