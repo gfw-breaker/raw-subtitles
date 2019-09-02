@@ -4,6 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 所有的事情沒有一定的定義，除非自己下定義(官方頻道大樹教練 第20集 20190820) | [下载](https://y2mate.com/zh-cn/search/_oFJh_5YUDg) | [下载](../channels/bigtree/__oFJh_5YUDg.srt?raw=true) | [下载](../channels/bigtree/__oFJh_5YUDg.tw.srt?raw=true) | 
+| 黃金問句：我從這件事情上學到了什麼？(官方頻道大樹教練26集 20190903) | [下载](https://y2mate.com/zh-cn/search/3Nvc3W6AKCs) | [下载](../channels/bigtree/_3Nvc3W6AKCs.srt?raw=true) | [下载](../channels/bigtree/_3Nvc3W6AKCs.tw.srt?raw=true) | 
 | 黃金問句：發生這件事情對我有什麼好處？(官方頻道大樹教練 第25集 20190901) | [下载](https://y2mate.com/zh-cn/search/ftAiwrdRXk8) | [下载](../channels/bigtree/_ftAiwrdRXk8.srt?raw=true) | [下载](../channels/bigtree/_ftAiwrdRXk8.tw.srt?raw=true) | 
 | 三種溝通頻率與購買策略的應用(官方頻道大樹教練 第24集 20190830) | [下载](https://y2mate.com/zh-cn/search/ziM4Af3bLY0) | [下载](../channels/bigtree/_ziM4Af3bLY0.srt?raw=true) | [下载](../channels/bigtree/_ziM4Af3bLY0.tw.srt?raw=true) | 
 | 不可不知的人際溝通三種頻率(官方頻道大樹教練20190827) | [下载](https://y2mate.com/zh-cn/search/axGGsHXhX5I) | [下载](../channels/bigtree/_axGGsHXhX5I.srt?raw=true) | [下载](../channels/bigtree/_axGGsHXhX5I.tw.srt?raw=true) | 
