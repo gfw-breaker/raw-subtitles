@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 聯邦快遞給香港送刀？華為包裹轉交美國情報機構？反華勢力陰謀還是內有乾坤。 獨家角度看中美貿易戰 （ 20190905第36期） | [下载](https://y2mate.com/zh-cn/search/RscbDvVYtOQ) | [下载](../channels/jiangfeng/_RscbDvVYtOQ.srt?raw=true) | [下载](../channels/jiangfeng/_RscbDvVYtOQ.tw.srt?raw=true) | 
 | 撤回逃犯條例， “自己友”林定國、余黎青萍監警，林鄭的精緻與中共的傲慢（江峰漫談 20190904第35期） | [下载](https://y2mate.com/zh-cn/search/y6FLmUeUUBY) | [下载](../channels/jiangfeng/_y6FLmUeUUBY.srt?raw=true) | [下载](../channels/jiangfeng/_y6FLmUeUUBY.tw.srt?raw=true) | 
 | 路透社錄音林鄭月娥講話：辭職不得，中央無出兵計劃； 獨家分析林鄭故意透露消息的緣由，香港罷課 陸生衝突（江峰漫談 20190903第34期） | [下载](https://y2mate.com/zh-cn/search/3HhCAulaaqE) | [下载](../channels/jiangfeng/_3HhCAulaaqE.srt?raw=true) | [下载](../channels/jiangfeng/_3HhCAulaaqE.tw.srt?raw=true) | 
 | 831遊行，為合理出台緊急法 警察製造暴力，下一步要對付誰？（江峰漫談20190901第33期） | [下载](https://y2mate.com/zh-cn/search/h_J0-e8qFJw) | [下载](../channels/jiangfeng/_h_J0-e8qFJw.srt?raw=true) | [下载](../channels/jiangfeng/_h_J0-e8qFJw.tw.srt?raw=true) | 
