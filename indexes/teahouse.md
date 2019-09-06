@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 林郑撤回背后：太子命案维稳？中南海撕裂？王岐山灭火、李克强表态！逆淘汰沼泽（2019_9_6_老北京茶馆_第176集） | [下载](https://y2mate.com/zh-cn/search/-jxZiW2QiIg) | [下载](../channels/teahouse/_-jxZiW2QiIg.srt?raw=true) | [下载](../channels/teahouse/_-jxZiW2QiIg.tw.srt?raw=true) | 
 | 林郑录音泄密甩锅，北京勃然大怒！太子站白花寻人，彭斯痛批共产纳粹，王全璋笑了（2019_9_3_老北京茶馆_第175集） | [下载](https://y2mate.com/zh-cn/search/AuhEh_xrd1k) | [下载](../channels/teahouse/_AuhEh_xrd1k.srt?raw=true) | [下载](../channels/teahouse/_AuhEh_xrd1k.tw.srt?raw=true) | 
 | 831香港大游行港警全武行！中共自编自导离奇血案！川普紧盯香港，香港公民讨共檄文！（2019_8_31_老北京茶馆_第174集） | [下载](https://y2mate.com/zh-cn/search/6-MG07TTdcM) | [下载](../channels/teahouse/_6-MG07TTdcM.srt?raw=true) | [下载](../channels/teahouse/_6-MG07TTdcM.tw.srt?raw=true) | 
 | COSTCO好市多上海涉重大泄密？军车凌晨大举入港，陈秋实被踢出朋友圈！（2019_8_29_老北京茶馆_第173集） | [下载](https://y2mate.com/zh-cn/search/oMJ9OGkeJUY) | [下载](../channels/teahouse/_oMJ9OGkeJUY.srt?raw=true) | [下载](../channels/teahouse/_oMJ9OGkeJUY.tw.srt?raw=true) | 
