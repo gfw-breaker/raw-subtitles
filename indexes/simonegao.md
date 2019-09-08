@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 撤送中，美国不买账，將對中共發”核彈級“大招，金融打擊即將開始 | [下载](https://y2mate.com/zh-cn/search/VhbT2jwZC1E) | [下载](../channels/simonegao/_VhbT2jwZC1E.srt?raw=true) | [下载](../channels/simonegao/_VhbT2jwZC1E.tw.srt?raw=true) | 
 | 中共在香港失控的時候會武力攻台嗎？林正月娥想辭職說明誰是真正的老闆？ | [下载](https://y2mate.com/zh-cn/search/BMCDfgapXrg) | [下载](../channels/simonegao/_BMCDfgapXrg.srt?raw=true) | [下载](../channels/simonegao/_BMCDfgapXrg.tw.srt?raw=true) | 
 | 暫緩關稅後貿易戰與香港掛鉤，川普和強硬鷹派能否殊途同歸？ | [下载](https://y2mate.com/zh-cn/search/M-9p6OTGNLw) | [下载](../channels/simonegao/_M-9p6OTGNLw.srt?raw=true) | [下载](../channels/simonegao/_M-9p6OTGNLw.tw.srt?raw=true) | 
 | 美國頂級經濟學家表示, 美國一旦在金融領域動手，中國經濟將成自由落體式崩毀 | [下载](https://y2mate.com/zh-cn/search/9-Y14JWi02Y) | [下载](../channels/simonegao/_9-Y14JWi02Y.srt?raw=true) | [下载](../channels/simonegao/_9-Y14JWi02Y.tw.srt?raw=true) | 
