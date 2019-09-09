@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 為自己活同時為他人著想(官方頻道大樹教練29集 20190910) | [下载](https://y2mate.com/zh-cn/search/C_HOSHKS60o) | [下载](../channels/bigtree/_C_HOSHKS60o.srt?raw=true) | [下载](../channels/bigtree/_C_HOSHKS60o.tw.srt?raw=true) | 
 | 沒有不好的人；只有不好的狀態(官方頻道大樹教練28集 20190908) | [下载](https://y2mate.com/zh-cn/search/1s2kjYKkYaU) | [下载](../channels/bigtree/_1s2kjYKkYaU.srt?raw=true) | [下载](../channels/bigtree/_1s2kjYKkYaU.tw.srt?raw=true) | 
 | 所有的事情沒有一定的定義，除非自己下定義(官方頻道大樹教練 第20集 20190820) | [下载](https://y2mate.com/zh-cn/search/_oFJh_5YUDg) | [下载](../channels/bigtree/__oFJh_5YUDg.srt?raw=true) | [下载](../channels/bigtree/__oFJh_5YUDg.tw.srt?raw=true) | 
 | 黃金問句：我從這件事情上學到了什麼？(官方頻道大樹教練26集 20190903) | [下载](https://y2mate.com/zh-cn/search/3Nvc3W6AKCs) | [下载](../channels/bigtree/_3Nvc3W6AKCs.srt?raw=true) | [下载](../channels/bigtree/_3Nvc3W6AKCs.tw.srt?raw=true) | 
