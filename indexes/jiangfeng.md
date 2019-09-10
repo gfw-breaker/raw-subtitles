@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 第一天雞蛋就發光了； 數百簽名，齊聲發力支持香港！月滿南加，江峰洛杉磯峰迷會花絮 | [下载](https://y2mate.com/zh-cn/search/22WwftOhMn0) | [下载](../channels/jiangfeng/_22WwftOhMn0.srt?raw=true) | [下载](../channels/jiangfeng/_22WwftOhMn0.tw.srt?raw=true) | 
 | 美國國會復會：《香港人權與民主法案》制衡中共武器升級，誰毀香港，我滅誰（江峰漫談20190909第37期） | [下载](https://y2mate.com/zh-cn/search/1UJMRmHWINU) | [下载](../channels/jiangfeng/_1UJMRmHWINU.srt?raw=true) | [下载](../channels/jiangfeng/_1UJMRmHWINU.tw.srt?raw=true) | 
 | 在雞蛋與高牆之間 我們選擇雞蛋 廚子江峰煮蛋迎中秋（20190906） | [下载](https://y2mate.com/zh-cn/search/fv5dvRJtV10) | [下载](../channels/jiangfeng/_fv5dvRJtV10.srt?raw=true) | [下载](../channels/jiangfeng/_fv5dvRJtV10.tw.srt?raw=true) | 
 | 聯邦快遞給香港送刀？華為包裹轉交美國情報機構？反華勢力陰謀還是內有乾坤。 獨家角度看中美貿易戰 （ 20190905第36期） | [下载](https://y2mate.com/zh-cn/search/RscbDvVYtOQ) | [下载](../channels/jiangfeng/_RscbDvVYtOQ.srt?raw=true) | [下载](../channels/jiangfeng/_RscbDvVYtOQ.tw.srt?raw=true) | 
