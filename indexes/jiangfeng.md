@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 馬雲辭職前一年如何安排天量財富， 阿里巴巴和谷歌都被政府盯上了，命運如何？（江峰漫談 20190911第38期） | [下载](https://y2mate.com/zh-cn/search/2_ikEqYN_Uo) | [下载](../channels/jiangfeng/_2_ikEqYN_Uo.srt?raw=true) | [下载](../channels/jiangfeng/_2_ikEqYN_Uo.tw.srt?raw=true) | 
 | 第一天雞蛋就發光了； 數百簽名，齊聲發力支持香港！月滿南加，江峰洛杉磯峰迷會花絮 | [下载](https://y2mate.com/zh-cn/search/22WwftOhMn0) | [下载](../channels/jiangfeng/_22WwftOhMn0.srt?raw=true) | [下载](../channels/jiangfeng/_22WwftOhMn0.tw.srt?raw=true) | 
 | 美國國會復會：《香港人權與民主法案》制衡中共武器升級，誰毀香港，我滅誰（江峰漫談20190909第37期） | [下载](https://y2mate.com/zh-cn/search/1UJMRmHWINU) | [下载](../channels/jiangfeng/_1UJMRmHWINU.srt?raw=true) | [下载](../channels/jiangfeng/_1UJMRmHWINU.tw.srt?raw=true) | 
 | 在雞蛋與高牆之間 我們選擇雞蛋 廚子江峰煮蛋迎中秋（20190906） | [下载](https://y2mate.com/zh-cn/search/fv5dvRJtV10) | [下载](../channels/jiangfeng/_fv5dvRJtV10.srt?raw=true) | [下载](../channels/jiangfeng/_fv5dvRJtV10.tw.srt?raw=true) | 
