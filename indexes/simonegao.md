@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 临时协议还是金融战？我了解到川普顾问之间，和国会之间意见不一致 | [下载](https://y2mate.com/zh-cn/search/8_LJI0wSork) | [下载](../channels/simonegao/_8_LJI0wSork.srt?raw=true) | [下载](../channels/simonegao/_8_LJI0wSork.tw.srt?raw=true) | 
 | 出塞曲 蕭茗演唱 | [下载](https://y2mate.com/zh-cn/search/rLyiu-P71Xo) | [下载](../channels/simonegao/_rLyiu-P71Xo.srt?raw=true) | [下载](../channels/simonegao/_rLyiu-P71Xo.tw.srt?raw=true) | 
 | 撤送中，美国國會不买账，將對中共發”核彈級“大招，金融打擊即將開始 | [下载](https://y2mate.com/zh-cn/search/VhbT2jwZC1E) | [下载](../channels/simonegao/_VhbT2jwZC1E.srt?raw=true) | [下载](../channels/simonegao/_VhbT2jwZC1E.tw.srt?raw=true) | 
 | 中共在香港失控的時候會武力攻台嗎？林正月娥想辭職說明誰是真正的老闆？ | [下载](https://y2mate.com/zh-cn/search/BMCDfgapXrg) | [下载](../channels/simonegao/_BMCDfgapXrg.srt?raw=true) | [下载](../channels/simonegao/_BMCDfgapXrg.tw.srt?raw=true) | 
