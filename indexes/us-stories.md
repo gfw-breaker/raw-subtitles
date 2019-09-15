@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 移民生活】14 - 飞机紧急迫降的经历 | [下载](https://y2mate.com/zh-cn/search/59Q613MuFxE) | [下载](../channels/us-stories/_59Q613MuFxE.srt?raw=true) | [下载](../channels/us-stories/_59Q613MuFxE.tw.srt?raw=true) | 
 | 【清聊美国 - 移民生活】13 - 在美國如何投訴 | [下载](https://y2mate.com/zh-cn/search/VsuCaay-rzI) | [下载](../channels/us-stories/_VsuCaay-rzI.srt?raw=true) | [下载](../channels/us-stories/_VsuCaay-rzI.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】12 - 超市有貨不買的原因 | [下载](https://y2mate.com/zh-cn/search/BnZ8C5xyfiI) | [下载](../channels/us-stories/_BnZ8C5xyfiI.srt?raw=true) | [下载](../channels/us-stories/_BnZ8C5xyfiI.tw.srt?raw=true) | 
 | 【清聊美國 - 老美怎麼辦】7 - 孩子在公共場所哭鬧 家長怎麼辦？ | [下载](https://y2mate.com/zh-cn/search/8C2ltGn0vS4) | [下载](../channels/us-stories/_8C2ltGn0vS4.srt?raw=true) | [下载](../channels/us-stories/_8C2ltGn0vS4.tw.srt?raw=true) | 
