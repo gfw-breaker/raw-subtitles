@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 如何成為一個解決問題的高手(官方頻道大樹教練32集 20190917) | [下载](https://y2mate.com/zh-cn/search/c5-Z-jP8YHM) | [下载](../channels/bigtree/_c5-Z-jP8YHM.srt?raw=true) | [下载](../channels/bigtree/_c5-Z-jP8YHM.tw.srt?raw=true) | 
 | 價值觀體系如何影響你的一生(官方頻道大樹教練31集 20190915) | [下载](https://y2mate.com/zh-cn/search/ZoYBTyABxPY) | [下载](../channels/bigtree/_ZoYBTyABxPY.srt?raw=true) | [下载](../channels/bigtree/_ZoYBTyABxPY.tw.srt?raw=true) | 
 | 價值觀就是你認為你生命當中最重要的事情(官方頻道大樹教練30集 20190913) | [下载](https://y2mate.com/zh-cn/search/Uwzzpl0o4fE) | [下载](../channels/bigtree/_Uwzzpl0o4fE.srt?raw=true) | [下载](../channels/bigtree/_Uwzzpl0o4fE.tw.srt?raw=true) | 
 | 為自己活同時為他人著想(官方頻道大樹教練29集 20190910) | [下载](https://y2mate.com/zh-cn/search/C_HOSHKS60o) | [下载](../channels/bigtree/_C_HOSHKS60o.srt?raw=true) | [下载](../channels/bigtree/_C_HOSHKS60o.tw.srt?raw=true) | 
