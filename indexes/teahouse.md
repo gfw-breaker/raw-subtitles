@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 呼叫习当局：美国会香港听证会抡大锤！马云李嘉诚金三胖大逃离，党会放过他们吗？（2019_9_18_老北京茶馆_第180集） | [下载](https://y2mate.com/zh-cn/search/m-I4my9UnD8) | [下载](../channels/teahouse/_m-I4my9UnD8.srt?raw=true) | [下载](../channels/teahouse/_m-I4my9UnD8.tw.srt?raw=true) | 
 | 愿荣光重归香港 全球茶友致港人 之 中秋专辑（2019_9_13_老北京茶馆_第179集） | [下载](https://y2mate.com/zh-cn/search/DMJ-zI3P8oA) | [下载](../channels/teahouse/_DMJ-zI3P8oA.srt?raw=true) | [下载](../channels/teahouse/_DMJ-zI3P8oA.tw.srt?raw=true) | 
 | 王沪宁给习添堵：董卿之后，董倩出事！黄之峰喊出新柏林，茶友致港人中秋问候（二）（2019_9_11_老北京茶馆_第178集） | [下载](https://y2mate.com/zh-cn/search/LbqFl22Bqgg) | [下载](../channels/teahouse/_LbqFl22Bqgg.srt?raw=true) | [下载](../channels/teahouse/_LbqFl22Bqgg.tw.srt?raw=true) | 
 | 猪肉疯了！胡春华疯了！蔡奇也疯了！港人持续抗争，茶友致港人中秋问候（一）（2019_9_8_老北京茶馆_第177集） | [下载](https://y2mate.com/zh-cn/search/0CA8ePvULak) | [下载](../channels/teahouse/_0CA8ePvULak.srt?raw=true) | [下载](../channels/teahouse/_0CA8ePvULak.tw.srt?raw=true) | 
