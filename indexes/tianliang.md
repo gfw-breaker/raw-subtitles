@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 中美貿易談崩，中方代表提前回國。一個指標看清未來是否能夠達成協議。再加稅只是時間問題，預計不晚於明年一月（政論天下第53集 20190920）天亮時分 | [下载](https://y2mate.com/zh-cn/search/qca3yInyDSI) | [下载](../channels/tianliang/_qca3yInyDSI.srt?raw=true) | [下载](../channels/tianliang/_qca3yInyDSI.tw.srt?raw=true) | 
+| 中美貿易談崩,中方代表提前回國_一個指標看清未來是否能夠達成協議_再加稅只是時間問題,預計不晚於明年一月(政論天下第53集 20190920)天亮時分 | [下载](https://y2mate.com/zh-cn/search/qca3yInyDSI) | [下载](../channels/tianliang/_qca3yInyDSI.srt?raw=true) | [下载](../channels/tianliang/_qca3yInyDSI.tw.srt?raw=true) | 
 | 《香港人權與民主法案》通過在即,自由的香港與專制的大陸無法共存,攤牌無可避免_兼談人權與主權(政論天下第52集 20190918)天亮時分 | [下载](https://y2mate.com/zh-cn/search/yX0axpmYdAE) | [下载](../channels/tianliang/_yX0axpmYdAE.srt?raw=true) | [下载](../channels/tianliang/_yX0axpmYdAE.tw.srt?raw=true) | 
 | 馬雲裸退後要出走美國三大障礙讓他無法在美國安享晚年(政論天下第51集 20190916)天亮時分 | [下载](https://y2mate.com/zh-cn/search/ETjyDyY4PJ8) | [下载](../channels/tianliang/_ETjyDyY4PJ8.srt?raw=true) | [下载](../channels/tianliang/_ETjyDyY4PJ8.tw.srt?raw=true) | 
 | 林鄭撤回送中條例的三大原因和中共可能的陰謀_香港人下一步該如何做(政論天下第50集 20190904)天亮時分 | [下载](https://y2mate.com/zh-cn/search/50uCO1Jv-Is) | [下载](../channels/tianliang/_50uCO1Jv-Is.srt?raw=true) | [下载](../channels/tianliang/_50uCO1Jv-Is.tw.srt?raw=true) | 
