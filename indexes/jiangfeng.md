@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 吉里巴斯 索羅門與臺灣斷交，卻帶來臺灣外交黃金機遇。獨家深度剖析（下）（20190921第44期） | [下载](https://y2mate.com/zh-cn/search/6r3gveB0ehE) | [下载](../channels/jiangfeng/_6r3gveB0ehE.srt?raw=true) | [下载](../channels/jiangfeng/_6r3gveB0ehE.tw.srt?raw=true) | 
 | 吉里巴斯和索羅門與台灣斷交，卻帶來台灣外交黃金機遇。獨家深度剖析（上）（江峰漫談 20190920第43期） | [下载](https://y2mate.com/zh-cn/search/nltn6tni-nI) | [下载](../channels/jiangfeng/_nltn6tni-nI.srt?raw=true) | [下载](../channels/jiangfeng/_nltn6tni-nI.tw.srt?raw=true) | 
 | 川普的臨時協議是全面攤牌的先手？ 中共在華爾街最大掮客蘇世民反水（江峰漫談 20190918第42期） | [下载](https://y2mate.com/zh-cn/search/u5wI29-383I) | [下载](../channels/jiangfeng/_u5wI29-383I.srt?raw=true) | [下载](../channels/jiangfeng/_u5wI29-383I.tw.srt?raw=true) | 
 | 沙特阿拉伯阿美油田遇袭，無人機攻擊幕後真兇是誰？中美貿易戰新一輪序曲 伊朗登場暗助中共戳川普軟肋 川普如何出牌？（江峰漫談20190917第41期） | [下载](https://y2mate.com/zh-cn/search/dgf8pF0Rbb4) | [下载](../channels/jiangfeng/_dgf8pF0Rbb4.srt?raw=true) | [下载](../channels/jiangfeng/_dgf8pF0Rbb4.tw.srt?raw=true) | 
