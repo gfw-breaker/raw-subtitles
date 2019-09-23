@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平的白鸟末年：中美险翻脸？党民联手荒诞行为艺术，香港全民反迫害延烧台湾！（2019_9_23_老北京茶馆_第182集） | [下载](https://y2mate.com/zh-cn/search/BPvuSURyQqA) | [下载](../channels/teahouse/_BPvuSURyQqA.srt?raw=true) | [下载](../channels/teahouse/_BPvuSURyQqA.tw.srt?raw=true) | 
 | 十一70周年灵异事件频发！党高官150岁计划瞄准器官？申纪兰胡锡进又火了！（2019_9_20_老北京茶馆_第181集） | [下载](https://y2mate.com/zh-cn/search/zq9qJozRXl0) | [下载](../channels/teahouse/_zq9qJozRXl0.srt?raw=true) | [下载](../channels/teahouse/_zq9qJozRXl0.tw.srt?raw=true) | 
 | 呼叫习当局：美国会香港听证会抡大锤！马云李嘉诚金三胖大逃离，党会放过他们吗？（2019_9_18_老北京茶馆_第180集） | [下载](https://y2mate.com/zh-cn/search/m-I4my9UnD8) | [下载](../channels/teahouse/_m-I4my9UnD8.srt?raw=true) | [下载](../channels/teahouse/_m-I4my9UnD8.tw.srt?raw=true) | 
 | 愿荣光重归香港 全球茶友致港人 之 中秋专辑（2019_9_13_老北京茶馆_第179集） | [下载](https://y2mate.com/zh-cn/search/DMJ-zI3P8oA) | [下载](../channels/teahouse/_DMJ-zI3P8oA.srt?raw=true) | [下载](../channels/teahouse/_DMJ-zI3P8oA.tw.srt?raw=true) | 
