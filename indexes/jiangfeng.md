@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 香港警察受邀北京閱兵，習近平昏招 （江峰漫談 20190924第46期） | [下载](https://y2mate.com/zh-cn/search/SzDFIpzsvn4) | [下载](../channels/jiangfeng/_SzDFIpzsvn4.srt?raw=true) | [下载](../channels/jiangfeng/_SzDFIpzsvn4.tw.srt?raw=true) | 
 | 新任副國家安全顧問波廷格，曾遭中共警察掌摑國安羞辱，如今如何還擊？川普聯合國大會宗教信仰自由演講 （江峰漫談20190923第45期） | [下载](https://y2mate.com/zh-cn/search/z9Ife1WMTV0) | [下载](../channels/jiangfeng/_z9Ife1WMTV0.srt?raw=true) | [下载](../channels/jiangfeng/_z9Ife1WMTV0.tw.srt?raw=true) | 
 | 吉里巴斯 索羅門與臺灣斷交，卻帶來臺灣外交黃金機遇。獨家深度剖析（下）（20190921第44期） | [下载](https://y2mate.com/zh-cn/search/6r3gveB0ehE) | [下载](../channels/jiangfeng/_6r3gveB0ehE.srt?raw=true) | [下载](../channels/jiangfeng/_6r3gveB0ehE.tw.srt?raw=true) | 
 | 吉里巴斯和索羅門與台灣斷交，卻帶來台灣外交黃金機遇。獨家深度剖析（上）（江峰漫談 20190920第43期） | [下载](https://y2mate.com/zh-cn/search/nltn6tni-nI) | [下载](../channels/jiangfeng/_nltn6tni-nI.srt?raw=true) | [下载](../channels/jiangfeng/_nltn6tni-nI.tw.srt?raw=true) | 
