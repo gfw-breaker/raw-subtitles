@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 香港代表團訪美的核心訴求透露運動走向；川普如何看待自己和美國的關係？ | [下载](https://y2mate.com/zh-cn/search/rE5qxPA2xcI) | [下载](../channels/simonegao/_rE5qxPA2xcI.srt?raw=true) | [下载](../channels/simonegao/_rE5qxPA2xcI.tw.srt?raw=true) | 
+| 川普如何看待自己和美國的關係？香港代表團訪美的核心訴求透露了運動走向 | [下载](https://y2mate.com/zh-cn/search/rE5qxPA2xcI) | [下载](../channels/simonegao/_rE5qxPA2xcI.srt?raw=true) | [下载](../channels/simonegao/_rE5qxPA2xcI.tw.srt?raw=true) | 
 | 美國參議院中國委員會關於美國對香港政策的聽證會 | [下载](https://y2mate.com/zh-cn/search/sqbsRn98Bwg) | [下载](../channels/simonegao/_sqbsRn98Bwg.srt?raw=true) | [下载](../channels/simonegao/_sqbsRn98Bwg.tw.srt?raw=true) | 
 | 临时协议还是金融战？我了解到川普顾问之间，和国会之间意见不一致 | [下载](https://y2mate.com/zh-cn/search/8_LJI0wSork) | [下载](../channels/simonegao/_8_LJI0wSork.srt?raw=true) | [下载](../channels/simonegao/_8_LJI0wSork.tw.srt?raw=true) | 
 | 出塞曲 蕭茗演唱 | [下载](https://y2mate.com/zh-cn/search/rLyiu-P71Xo) | [下载](../channels/simonegao/_rLyiu-P71Xo.srt?raw=true) | [下载](../channels/simonegao/_rLyiu-P71Xo.tw.srt?raw=true) | 
