@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 《香港民主與人權法案》最新版搶先看；一天三案，美國國會全力挺香港；林鄭月娥《紐約時報》同一天發文，想溜？ （江峰漫談20190926第46期） | [下载](https://y2mate.com/zh-cn/search/p8Z8rMnRzpY) | [下载](../channels/jiangfeng/_p8Z8rMnRzpY.srt?raw=true) | [下载](../channels/jiangfeng/_p8Z8rMnRzpY.tw.srt?raw=true) | 
 | 彈劾川普“電話門”背後的神秘舉報人；《香港人權與民主法案》通過更強版（川普推推推20190925第25期） | [下载](https://y2mate.com/zh-cn/search/ZjHY0Wx6Zg8) | [下载](../channels/jiangfeng/_ZjHY0Wx6Zg8.srt?raw=true) | [下载](../channels/jiangfeng/_ZjHY0Wx6Zg8.tw.srt?raw=true) | 
 | 香港警察受邀北京閱兵，習近平昏招 （江峰漫談 20190924第46期） | [下载](https://y2mate.com/zh-cn/search/SzDFIpzsvn4) | [下载](../channels/jiangfeng/_SzDFIpzsvn4.srt?raw=true) | [下载](../channels/jiangfeng/_SzDFIpzsvn4.tw.srt?raw=true) | 
 | 新任副國家安全顧問波廷格，曾遭中共警察掌摑國安羞辱，如今如何還擊？川普聯合國大會宗教信仰自由演講 （江峰漫談20190923第45期） | [下载](https://y2mate.com/zh-cn/search/z9Ife1WMTV0) | [下载](../channels/jiangfeng/_z9Ife1WMTV0.srt?raw=true) | [下载](../channels/jiangfeng/_z9Ife1WMTV0.tw.srt?raw=true) | 
