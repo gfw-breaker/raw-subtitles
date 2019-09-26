@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 人要如何改變自己的一生(官方頻道大樹教練36集 20190927) | [下载](https://y2mate.com/zh-cn/search/P3CSZbbnr3E) | [下载](../channels/bigtree/_P3CSZbbnr3E.srt?raw=true) | [下载](../channels/bigtree/_P3CSZbbnr3E.tw.srt?raw=true) | 
 | 監督是最大的資源浪費(官方頻道大樹教練35集 20190924) | [下载](https://y2mate.com/zh-cn/search/vygeTycxGOs) | [下载](../channels/bigtree/_vygeTycxGOs.srt?raw=true) | [下载](../channels/bigtree/_vygeTycxGOs.tw.srt?raw=true) | 
 | 知道卻做不到的原因是什麼？(官方頻道大樹教練34集 20190922) | [下载](https://y2mate.com/zh-cn/search/89Ka8amQ6vM) | [下载](../channels/bigtree/_89Ka8amQ6vM.srt?raw=true) | [下载](../channels/bigtree/_89Ka8amQ6vM.tw.srt?raw=true) | 
 | 價值觀是可以隨自己的認識而有所調整(官方頻道大樹教練33集 20190920) | [下载](https://y2mate.com/zh-cn/search/ABPtVZfatZ8) | [下载](../channels/bigtree/_ABPtVZfatZ8.srt?raw=true) | [下载](../channels/bigtree/_ABPtVZfatZ8.tw.srt?raw=true) | 
