@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 心念之間，水知道答案(官方頻道大樹教練37集 20190929) | [下载](https://y2mate.com/zh-cn/search/7G8WNAguFDg) | [下载](../channels/bigtree/_7G8WNAguFDg.srt?raw=true) | [下载](../channels/bigtree/_7G8WNAguFDg.tw.srt?raw=true) | 
 | 人要如何改變自己的一生(官方頻道大樹教練36集 20190927) | [下载](https://y2mate.com/zh-cn/search/P3CSZbbnr3E) | [下载](../channels/bigtree/_P3CSZbbnr3E.srt?raw=true) | [下载](../channels/bigtree/_P3CSZbbnr3E.tw.srt?raw=true) | 
 | 監督是最大的資源浪費(官方頻道大樹教練35集 20190924) | [下载](https://y2mate.com/zh-cn/search/vygeTycxGOs) | [下载](../channels/bigtree/_vygeTycxGOs.srt?raw=true) | [下载](../channels/bigtree/_vygeTycxGOs.tw.srt?raw=true) | 
 | 知道卻做不到的原因是什麼？(官方頻道大樹教練34集 20190922) | [下载](https://y2mate.com/zh-cn/search/89Ka8amQ6vM) | [下载](../channels/bigtree/_89Ka8amQ6vM.srt?raw=true) | [下载](../channels/bigtree/_89Ka8amQ6vM.tw.srt?raw=true) | 
