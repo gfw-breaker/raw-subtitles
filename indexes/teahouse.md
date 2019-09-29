@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 十一阅兵人民大翻墙！台港全球反共大游行！茶友国殇日大实话集锦（三）（2019_9_29_老北京茶馆_第184集） | [下载](https://y2mate.com/zh-cn/search/HXv4sdCrD84) | [下载](../channels/teahouse/_HXv4sdCrD84.srt?raw=true) | [下载](../channels/teahouse/_HXv4sdCrD84.tw.srt?raw=true) | 
 | 川普盯上香港！北京顶风作案！十一厕所文化2.0挑战谁的尊严？茶友话国殇（二）（2019_9_26_老北京茶馆_第183集） | [下载](https://y2mate.com/zh-cn/search/Cbx6Po_GDsI) | [下载](../channels/teahouse/_Cbx6Po_GDsI.srt?raw=true) | [下载](../channels/teahouse/_Cbx6Po_GDsI.tw.srt?raw=true) | 
 | 习近平的白鸟末年：中美翻脸？党国荒诞行为艺术，港人反迫害延烧台湾！茶友话国殇（一）（2019_9_23_老北京茶馆_第182集） | [下载](https://y2mate.com/zh-cn/search/BPvuSURyQqA) | [下载](../channels/teahouse/_BPvuSURyQqA.srt?raw=true) | [下载](../channels/teahouse/_BPvuSURyQqA.tw.srt?raw=true) | 
 | 十一70周年灵异事件频发！党高官150岁计划瞄准器官？申纪兰胡锡进又火了！（2019_9_20_老北京茶馆_第181集） | [下载](https://y2mate.com/zh-cn/search/zq9qJozRXl0) | [下载](../channels/teahouse/_zq9qJozRXl0.srt?raw=true) | [下载](../channels/teahouse/_zq9qJozRXl0.tw.srt?raw=true) | 
