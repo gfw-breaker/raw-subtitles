@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共已派人控制住马云的阿里巴巴等大型民企，70年前的公私合营即将发生，中国经济彻底完蛋 | [下载](https://y2mate.com/zh-cn/search/_kULfXm6_Co) | [下载](../channels/zihong/__kULfXm6_Co.srt?raw=true) | [下载](../channels/zihong/__kULfXm6_Co.tw.srt?raw=true) | 
 | 中国外汇储备其实在靠这种方法在艰难维持3万亿？中国的外债规模超过希腊5倍之多，如何破局 | [下载](https://y2mate.com/zh-cn/search/Y7220s4q2xE) | [下载](../channels/zihong/_Y7220s4q2xE.srt?raw=true) | [下载](../channels/zihong/_Y7220s4q2xE.tw.srt?raw=true) | 
 | 马云被传隐居美国，100号中共企业家欲替代李嘉诚四大家族统治香港 | [下载](https://y2mate.com/zh-cn/search/KQj5F1D8mmI) | [下载](../channels/zihong/_KQj5F1D8mmI.srt?raw=true) | [下载](../channels/zihong/_KQj5F1D8mmI.tw.srt?raw=true) | 
 | 中国房地产这次要完了？不加息中国就会开启大通胀模式。 今年买什么保值最好，除了美元就是他 | [下载](https://y2mate.com/zh-cn/search/bEFvcHZMoig) | [下载](../channels/zihong/_bEFvcHZMoig.srt?raw=true) | [下载](../channels/zihong/_bEFvcHZMoig.tw.srt?raw=true) | 

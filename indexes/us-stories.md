@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 美國教育】怎样学英文古文 | [下载](https://y2mate.com/zh-cn/search/l7XqOGnxb-I) | [下载](../channels/us-stories/_l7XqOGnxb-I.srt?raw=true) | [下载](../channels/us-stories/_l7XqOGnxb-I.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】小留学生最苦恼的事 | [下载](https://y2mate.com/zh-cn/search/oIZBQmU7H3k) | [下载](../channels/us-stories/_oIZBQmU7H3k.srt?raw=true) | [下载](../channels/us-stories/_oIZBQmU7H3k.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】16 - 撞警车的经历 | [下载](https://y2mate.com/zh-cn/search/WL4D9hDgyJI) | [下载](../channels/us-stories/_WL4D9hDgyJI.srt?raw=true) | [下载](../channels/us-stories/_WL4D9hDgyJI.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】15 - 与警察据理力争的结果 | [下载](https://y2mate.com/zh-cn/search/6DjxwAxgq8Q) | [下载](../channels/us-stories/_6DjxwAxgq8Q.srt?raw=true) | [下载](../channels/us-stories/_6DjxwAxgq8Q.tw.srt?raw=true) | 
