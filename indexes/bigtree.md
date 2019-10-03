@@ -4,6 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 自信就是自己相信(官方頻道大樹教練38集 20191001) | [下载](https://y2mate.com/zh-cn/search/sen5jCvobPM) | [下载](../channels/bigtree/_sen5jCvobPM.srt?raw=true) | [下载](../channels/bigtree/_sen5jCvobPM.tw.srt?raw=true) | 
+| 智商70如何翻轉人生的真實故事(上集)(官方頻道大樹教練39集 20191004) | [下载](https://y2mate.com/zh-cn/search/CIo6pR1n6O8) | [下载](../channels/bigtree/_CIo6pR1n6O8.srt?raw=true) | [下载](../channels/bigtree/_CIo6pR1n6O8.tw.srt?raw=true) | 
 | 心念之間，水知道答案(官方頻道大樹教練37集 20190929) | [下载](https://y2mate.com/zh-cn/search/7G8WNAguFDg) | [下载](../channels/bigtree/_7G8WNAguFDg.srt?raw=true) | [下载](../channels/bigtree/_7G8WNAguFDg.tw.srt?raw=true) | 
 | 人要如何改變自己的一生(官方頻道大樹教練36集 20190927) | [下载](https://y2mate.com/zh-cn/search/P3CSZbbnr3E) | [下载](../channels/bigtree/_P3CSZbbnr3E.srt?raw=true) | [下载](../channels/bigtree/_P3CSZbbnr3E.tw.srt?raw=true) | 
 | 監督是最大的資源浪費(官方頻道大樹教練35集 20190924) | [下载](https://y2mate.com/zh-cn/search/vygeTycxGOs) | [下载](../channels/bigtree/_vygeTycxGOs.srt?raw=true) | [下载](../channels/bigtree/_vygeTycxGOs.tw.srt?raw=true) | 

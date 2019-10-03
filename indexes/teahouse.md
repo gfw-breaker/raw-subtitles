@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平阅兵阅出大麻烦！内部分裂公开！香港枪击案大辩论！贸易谈判又出乱子？（2019_10_03_老北京茶馆_第186集） | [下载](https://y2mate.com/zh-cn/search/TwJq_q6IDPQ) | [下载](../channels/teahouse/_TwJq_q6IDPQ.srt?raw=true) | [下载](../channels/teahouse/_TwJq_q6IDPQ.tw.srt?raw=true) | 
 | 国殇日港警实弹行凶！川普十一怼中共：我醒了！大陆人民：我们也醒了！茶友之声（四）（2019_10_01_老北京茶馆_第185集） | [下载](https://y2mate.com/zh-cn/search/38KMsxfHVOk) | [下载](../channels/teahouse/_38KMsxfHVOk.srt?raw=true) | [下载](../channels/teahouse/_38KMsxfHVOk.tw.srt?raw=true) | 
 | 十一阅兵人民大翻墙！台港全球反共大游行！茶友国殇日大实话集锦（三）（2019_9_29_老北京茶馆_第184集） | [下载](https://y2mate.com/zh-cn/search/HXv4sdCrD84) | [下载](../channels/teahouse/_HXv4sdCrD84.srt?raw=true) | [下载](../channels/teahouse/_HXv4sdCrD84.tw.srt?raw=true) | 
 | 川普盯上香港！北京顶风作案！十一厕所文化2.0挑战谁的尊严？茶友话国殇（二）（2019_9_26_老北京茶馆_第183集） | [下载](https://y2mate.com/zh-cn/search/Cbx6Po_GDsI) | [下载](../channels/teahouse/_Cbx6Po_GDsI.srt?raw=true) | [下载](../channels/teahouse/_Cbx6Po_GDsI.tw.srt?raw=true) | 
