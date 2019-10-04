@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 港府推《禁蒙面法》香港进入没有“宣布戒严”的戒严_我们将看到更大规模的流血冲突_与香港人未来的抗争策略(政论天下第56集 20191004)天亮时分 | [下载](https://y2mate.com/zh-cn/search/xer4s8F3Oro) | [下载](../channels/tianliang/_xer4s8F3Oro.srt?raw=true) | [下载](../channels/tianliang/_xer4s8F3Oro.tw.srt?raw=true) | 
 | 以战争模式庆祝建政七十周年,一场充满了恐惧的狂欢(政論天下第55集 20191001)天亮時分 | [下载](https://y2mate.com/zh-cn/search/0az4EfvTLa4) | [下载](../channels/tianliang/_0az4EfvTLa4.srt?raw=true) | [下载](../channels/tianliang/_0az4EfvTLa4.tw.srt?raw=true) | 
 | 美国民主党发起对川普自杀式弹劾,香港问题已成为贸易谈判前景的指标_中共对弹劾幸灾乐祸,实则大祸临头(政論天下第54集 20190925)天亮時分 | [下载](https://y2mate.com/zh-cn/search/vS0_4J1J0eo) | [下载](../channels/tianliang/_vS0_4J1J0eo.srt?raw=true) | [下载](../channels/tianliang/_vS0_4J1J0eo.tw.srt?raw=true) | 
 | 中美貿易談崩,中方代表提前回國_一個指標看清未來是否能夠達成協議_再加稅只是時間問題,預計不晚於明年一月(政論天下第53集 20190920)天亮時分 | [下载](https://y2mate.com/zh-cn/search/qca3yInyDSI) | [下载](../channels/tianliang/_qca3yInyDSI.srt?raw=true) | [下载](../channels/tianliang/_qca3yInyDSI.tw.srt?raw=true) | 
