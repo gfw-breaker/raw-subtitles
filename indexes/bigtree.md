@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 智商70如何翻轉人生的真實故事(下集)(官方頻道大樹教練40集 20191006) | [下载](https://y2mate.com/zh-cn/search/19s-Bi_6-gg) | [下载](../channels/bigtree/_19s-Bi_6-gg.srt?raw=true) | [下载](../channels/bigtree/_19s-Bi_6-gg.tw.srt?raw=true) | 
 | 自信就是自己相信(官方頻道大樹教練38集 20191001) | [下载](https://y2mate.com/zh-cn/search/sen5jCvobPM) | [下载](../channels/bigtree/_sen5jCvobPM.srt?raw=true) | [下载](../channels/bigtree/_sen5jCvobPM.tw.srt?raw=true) | 
 | 智商70如何翻轉人生的真實故事(上集)(官方頻道大樹教練39集 20191004) | [下载](https://y2mate.com/zh-cn/search/CIo6pR1n6O8) | [下载](../channels/bigtree/_CIo6pR1n6O8.srt?raw=true) | [下载](../channels/bigtree/_CIo6pR1n6O8.tw.srt?raw=true) | 
 | 心念之間，水知道答案(官方頻道大樹教練37集 20190929) | [下载](https://y2mate.com/zh-cn/search/7G8WNAguFDg) | [下载](../channels/bigtree/_7G8WNAguFDg.srt?raw=true) | [下载](../channels/bigtree/_7G8WNAguFDg.tw.srt?raw=true) | 
