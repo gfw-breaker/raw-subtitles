@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 战狼闯祸！美锁定新疆党官！川普重申香港贸易挂钩，NBA南方四贱客掀全美反共潮！（2019_10_09_老北京茶馆_第188集） | [下载](https://y2mate.com/zh-cn/search/C1JPeadpbX4) | [下载](../channels/teahouse/_C1JPeadpbX4.srt?raw=true) | [下载](../channels/teahouse/_C1JPeadpbX4.tw.srt?raw=true) | 
 | 禁蒙面，林郑拉习下悬崖？美国惊现反共动漫！（2019_10_07_老北京茶馆_第187集） | [下载](https://y2mate.com/zh-cn/search/69YxrD6SuLQ) | [下载](../channels/teahouse/_69YxrD6SuLQ.srt?raw=true) | [下载](../channels/teahouse/_69YxrD6SuLQ.tw.srt?raw=true) | 
 | 习近平阅兵阅出大麻烦！内部分裂公开！香港枪击案大辩论！贸易谈判又出乱子？（2019_10_03_老北京茶馆_第186集） | [下载](https://y2mate.com/zh-cn/search/TwJq_q6IDPQ) | [下载](../channels/teahouse/_TwJq_q6IDPQ.srt?raw=true) | [下载](../channels/teahouse/_TwJq_q6IDPQ.tw.srt?raw=true) | 
 | 国殇日港警实弹行凶！川普十一怼中共：我醒了！大陆人民：我们也醒了！茶友之声（四）（2019_10_01_老北京茶馆_第185集） | [下载](https://y2mate.com/zh-cn/search/38KMsxfHVOk) | [下载](../channels/teahouse/_38KMsxfHVOk.srt?raw=true) | [下载](../channels/teahouse/_38KMsxfHVOk.tw.srt?raw=true) | 
