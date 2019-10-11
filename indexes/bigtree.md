@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 所有將生小孩的父母必看：千年不解的驚天秘密(官方頻道大樹教練42集 20191011) | [下载](https://y2mate.com/zh-cn/search/-6L6D253q0k) | [下载](../channels/bigtree/_-6L6D253q0k.srt?raw=true) | [下载](../channels/bigtree/_-6L6D253q0k.tw.srt?raw=true) | 
 | 才能遞減法則；家家都有天才兒童(官方頻道大樹教練41集 20191008) | [下载](https://y2mate.com/zh-cn/search/6NJNIMEnV7Y) | [下载](../channels/bigtree/_6NJNIMEnV7Y.srt?raw=true) | [下载](../channels/bigtree/_6NJNIMEnV7Y.tw.srt?raw=true) | 
 | 智商70如何翻轉人生的真實故事(下集)(官方頻道大樹教練40集 20191006) | [下载](https://y2mate.com/zh-cn/search/19s-Bi_6-gg) | [下载](../channels/bigtree/_19s-Bi_6-gg.srt?raw=true) | [下载](../channels/bigtree/_19s-Bi_6-gg.tw.srt?raw=true) | 
 | 自信就是自己相信(官方頻道大樹教練38集 20191001) | [下载](https://y2mate.com/zh-cn/search/sen5jCvobPM) | [下载](../channels/bigtree/_sen5jCvobPM.srt?raw=true) | [下载](../channels/bigtree/_sen5jCvobPM.tw.srt?raw=true) | 
