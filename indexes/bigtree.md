@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 付出者收獲：看起來是在幫別人，事實上在幫你自己(官方頻道大樹教練44集 20191015) | [下载](https://y2mate.com/zh-cn/search/uZmF4Ud3IT4) | [下载](../channels/bigtree/_uZmF4Ud3IT4.srt?raw=true) | [下载](../channels/bigtree/_uZmF4Ud3IT4.tw.srt?raw=true) | 
 | 一切都是最好的安排(官方頻道大樹教練43集 20191013) | [下载](https://y2mate.com/zh-cn/search/1b1XTQfT1No) | [下载](../channels/bigtree/_1b1XTQfT1No.srt?raw=true) | [下载](../channels/bigtree/_1b1XTQfT1No.tw.srt?raw=true) | 
 | 所有將生小孩的父母必看：千年不解的驚天秘密(官方頻道大樹教練42集 20191011) | [下载](https://y2mate.com/zh-cn/search/-6L6D253q0k) | [下载](../channels/bigtree/_-6L6D253q0k.srt?raw=true) | [下载](../channels/bigtree/_-6L6D253q0k.tw.srt?raw=true) | 
 | 才能遞減法則；家家都有天才兒童(官方頻道大樹教練41集 20191008) | [下载](https://y2mate.com/zh-cn/search/6NJNIMEnV7Y) | [下载](../channels/bigtree/_6NJNIMEnV7Y.srt?raw=true) | [下载](../channels/bigtree/_6NJNIMEnV7Y.tw.srt?raw=true) | 
