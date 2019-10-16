@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 《香港人权法案》三胞胎通过！全体港人获诺贝尔奖提名！习“粉身碎骨”喊给谁听？（2019_10_16_老北京茶馆_第191集） | [下载](https://y2mate.com/zh-cn/search/B6FsBWnuifc) | [下载](../channels/teahouse/_B6FsBWnuifc.srt?raw=true) | [下载](../channels/teahouse/_B6FsBWnuifc.tw.srt?raw=true) | 
 | 刘鹤送信陷尴尬：贸易协议内容愁坏官媒！习近平空车招魂，访印撞上2000蒙面习近平！（2019_10_14_老北京茶馆_第190集） | [下载](https://y2mate.com/zh-cn/search/rBK9dnvzD9Y) | [下载](../channels/teahouse/_rBK9dnvzD9Y.srt?raw=true) | [下载](../channels/teahouse/_rBK9dnvzD9Y.tw.srt?raw=true) | 
 | NBA为川普大选送大礼！双十国庆特别专辑：我和民国的故事（2019_10_10_老北京茶馆_第189集） | [下载](https://y2mate.com/zh-cn/search/jiu2Dhh7B3E) | [下载](../channels/teahouse/_jiu2Dhh7B3E.srt?raw=true) | [下载](../channels/teahouse/_jiu2Dhh7B3E.tw.srt?raw=true) | 
 | 战狼闯祸！美锁定新疆党官！川普重申香港贸易挂钩，NBA南方四贱客掀全美反共潮！（2019_10_09_老北京茶馆_第188集） | [下载](https://y2mate.com/zh-cn/search/C1JPeadpbX4) | [下载](../channels/teahouse/_C1JPeadpbX4.srt?raw=true) | [下载](../channels/teahouse/_C1JPeadpbX4.tw.srt?raw=true) | 

@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美国 - 移民生活】17 - 华人怎样找律师 | [下载](https://y2mate.com/zh-cn/search/hnQhqhTZbzU) | [下载](../channels/us-stories/_hnQhqhTZbzU.srt?raw=true) | [下载](../channels/us-stories/_hnQhqhTZbzU.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】教會學校的特點 | [下载](https://y2mate.com/zh-cn/search/lbkk1_V0gns) | [下载](../channels/us-stories/_lbkk1_V0gns.srt?raw=true) | [下载](../channels/us-stories/_lbkk1_V0gns.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】孩子的选择惊呆了父母 | [下载](https://y2mate.com/zh-cn/search/exTPI733vzo) | [下载](../channels/us-stories/_exTPI733vzo.srt?raw=true) | [下载](../channels/us-stories/_exTPI733vzo.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】孩子的选择惊呆了父母 | [下载](https://y2mate.com/zh-cn/search/x325WMzlIrg) | [下载](../channels/us-stories/_x325WMzlIrg.srt?raw=true) | [下载](../channels/us-stories/_x325WMzlIrg.tw.srt?raw=true) | 
