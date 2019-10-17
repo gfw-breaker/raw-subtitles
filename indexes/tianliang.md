@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| NBA事件应教会川普如何对待香港问题和中美贸易战（政论天下第59集 20191017）天亮时分 | [下载](https://y2mate.com/zh-cn/search/QX3Akty6lxE) | [下载](../channels/tianliang/_QX3Akty6lxE.srt?raw=true) | [下载](../channels/tianliang/_QX3Akty6lxE.tw.srt?raw=true) | 
+| NBA事件应教会川普如何对待香港问题和中美贸易战(政论天下第59集 20191017)天亮时分 | [下载](https://y2mate.com/zh-cn/search/QX3Akty6lxE) | [下载](../channels/tianliang/_QX3Akty6lxE.srt?raw=true) | [下载](../channels/tianliang/_QX3Akty6lxE.tw.srt?raw=true) | 
 | 中美贸易战暂时停火,透露出哪些关键信息_协议的输赢利弊分析,川普加税仍为大概率事件(政论天下第58集 20191011)天亮时分 | [下载](https://y2mate.com/zh-cn/search/E7fR0X2XiJw) | [下载](../channels/tianliang/_E7fR0X2XiJw.srt?raw=true) | [下载](../channels/tianliang/_E7fR0X2XiJw.tw.srt?raw=true) | 
 | 中美十月十日贸易谈判浮现凶兆,制裁哪些公司才是美国的大杀器香港人争取大陆民心的可行办法,与香港的未来出路所在(政论天下第57集 20191008)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CSQsk_vGhuw) | [下载](../channels/tianliang/_CSQsk_vGhuw.srt?raw=true) | [下载](../channels/tianliang/_CSQsk_vGhuw.tw.srt?raw=true) | 
 | 港府推《禁蒙面法》香港进入没有“宣布戒严”的戒严_我们将看到更大规模的流血冲突_与香港人未来的抗争策略(政论天下第56集 20191004)天亮时分 | [下载](https://y2mate.com/zh-cn/search/xer4s8F3Oro) | [下载](../channels/tianliang/_xer4s8F3Oro.srt?raw=true) | [下载](../channels/tianliang/_xer4s8F3Oro.tw.srt?raw=true) | 
