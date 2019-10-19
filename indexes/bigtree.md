@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 不要輕易的接受他人對你的好？從六大影響力看反送中事件(官方頻道大樹教練46集 20191020) | [下载](https://y2mate.com/zh-cn/search/n30TG1J66-8) | [下载](../channels/bigtree/_n30TG1J66-8.srt?raw=true) | [下载](../channels/bigtree/_n30TG1J66-8.tw.srt?raw=true) | 
 | 六大影響力與香港反送中有何關聯？(1.互惠原理)(官方頻道大樹教練45集 20191018) | [下载](https://y2mate.com/zh-cn/search/1Q-1Na_ohLA) | [下载](../channels/bigtree/_1Q-1Na_ohLA.srt?raw=true) | [下载](../channels/bigtree/_1Q-1Na_ohLA.tw.srt?raw=true) | 
 | 付出者收獲：看起來是在幫別人，事實上在幫你自己(官方頻道大樹教練44集 20191015) | [下载](https://y2mate.com/zh-cn/search/uZmF4Ud3IT4) | [下载](../channels/bigtree/_uZmF4Ud3IT4.srt?raw=true) | [下载](../channels/bigtree/_uZmF4Ud3IT4.tw.srt?raw=true) | 
 | 一切都是最好的安排(官方頻道大樹教練43集 20191013) | [下载](https://y2mate.com/zh-cn/search/1b1XTQfT1No) | [下载](../channels/bigtree/_1b1XTQfT1No.srt?raw=true) | [下载](../channels/bigtree/_1b1XTQfT1No.tw.srt?raw=true) | 
