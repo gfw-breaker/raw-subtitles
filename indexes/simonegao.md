@@ -6,10 +6,12 @@
 | (加长）第一阶段协议-- 战役的胜利，战争的不利？中美协议对香港意味着什么？ | [下载](https://y2mate.com/zh-cn/search/INHyoztBHtM) | [下载](../channels/simonegao/_INHyoztBHtM.srt?raw=true) | [下载](../channels/simonegao/_INHyoztBHtM.tw.srt?raw=true) | 
 | 中美贸易协议对香港意味着什么？第一阶段协议--战役的胜利，战争的不利？ | [下载](https://y2mate.com/zh-cn/search/PE_fU5Bb8J0) | [下载](../channels/simonegao/_PE_fU5Bb8J0.srt?raw=true) | [下载](../channels/simonegao/_PE_fU5Bb8J0.tw.srt?raw=true) | 
 | 采访印象(內幕）：川普對幾件重大事情的態度-班農理解 | [下载](https://y2mate.com/zh-cn/search/PIhL2i0n5-M) | [下载](../channels/simonegao/_PIhL2i0n5-M.srt?raw=true) | [下载](../channels/simonegao/_PIhL2i0n5-M.tw.srt?raw=true) | 
+| 香港临时政府会得到美国支持吗？一件事最关键；禁止蒙面——大动作前噤声欧美；紧急法，把贸易战逼到死角 | [下载](https://y2mate.com/zh-cn/search/Cfitz9hhhxM) | [下载](../channels/simonegao/_Cfitz9hhhxM.srt?raw=true) | [下载](../channels/simonegao/_Cfitz9hhhxM.tw.srt?raw=true) | 
+| 70周年大阅兵 中美对比 辉煌和简陋背后藏着大秘密 | [下载](https://y2mate.com/zh-cn/search/bILBCJbZXh0) | [下载](../channels/simonegao/_bILBCJbZXh0.srt?raw=true) | [下载](../channels/simonegao/_bILBCJbZXh0.tw.srt?raw=true) | 
 | 川普如何看待自己和美國的關係？香港代表團訪美的核心訴求透露了運動走向 | [下载](https://y2mate.com/zh-cn/search/rE5qxPA2xcI) | [下载](../channels/simonegao/_rE5qxPA2xcI.srt?raw=true) | [下载](../channels/simonegao/_rE5qxPA2xcI.tw.srt?raw=true) | 
 | 美國參議院中國委員會關於美國對香港政策的聽證會 | [下载](https://y2mate.com/zh-cn/search/sqbsRn98Bwg) | [下载](../channels/simonegao/_sqbsRn98Bwg.srt?raw=true) | [下载](../channels/simonegao/_sqbsRn98Bwg.tw.srt?raw=true) | 
+| 出塞曲 蕭茗演唱 （祝大家中秋快樂！） | [下载](https://y2mate.com/zh-cn/search/rLyiu-P71Xo) | [下载](../channels/simonegao/_rLyiu-P71Xo.srt?raw=true) | [下载](../channels/simonegao/_rLyiu-P71Xo.tw.srt?raw=true) | 
 | 临时协议还是金融战？我了解到川普顾问之间，和国会之间意见不一致 | [下载](https://y2mate.com/zh-cn/search/8_LJI0wSork) | [下载](../channels/simonegao/_8_LJI0wSork.srt?raw=true) | [下载](../channels/simonegao/_8_LJI0wSork.tw.srt?raw=true) | 
-| 出塞曲 蕭茗演唱 | [下载](https://y2mate.com/zh-cn/search/rLyiu-P71Xo) | [下载](../channels/simonegao/_rLyiu-P71Xo.srt?raw=true) | [下载](../channels/simonegao/_rLyiu-P71Xo.tw.srt?raw=true) | 
 | 撤送中，美国國會不买账，將對中共發”核彈級“大招，金融打擊即將開始 | [下载](https://y2mate.com/zh-cn/search/VhbT2jwZC1E) | [下载](../channels/simonegao/_VhbT2jwZC1E.srt?raw=true) | [下载](../channels/simonegao/_VhbT2jwZC1E.tw.srt?raw=true) | 
 | 中共在香港失控的時候會武力攻台嗎？林正月娥想辭職說明誰是真正的老闆？ | [下载](https://y2mate.com/zh-cn/search/BMCDfgapXrg) | [下载](../channels/simonegao/_BMCDfgapXrg.srt?raw=true) | [下载](../channels/simonegao/_BMCDfgapXrg.tw.srt?raw=true) | 
 | 暫緩關稅後貿易戰與香港掛鉤，川普和強硬鷹派能否殊途同歸？ | [下载](https://y2mate.com/zh-cn/search/M-9p6OTGNLw) | [下载](../channels/simonegao/_M-9p6OTGNLw.srt?raw=true) | [下载](../channels/simonegao/_M-9p6OTGNLw.tw.srt?raw=true) | 
