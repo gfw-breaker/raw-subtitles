@@ -4,7 +4,8 @@ baseDir=/raw-subtitles
 csv=channels.csv
 ytUrl=https://www.youtube.com/channel
 
-if [ $# -eq 0 ]; then
+if [ $# -eq 1 ]; then
+	echo $1
 	grep $1 channels.csv > tmp.csv
 	csv=tmp.csv
 fi
