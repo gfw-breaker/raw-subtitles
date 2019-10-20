@@ -1,7 +1,13 @@
 #!/bin/bash
 
 baseDir=/raw-subtitles
+csv=channels.csv
 ytUrl=https://www.youtube.com/channel
+
+if [ $# -eq 0 ]; then
+	grep $1 channels.csv > tmp.csv
+	csv=tmp.csv
+fi
 
 youtube-dl -U
 
@@ -70,7 +76,7 @@ while read line; do
 		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$nvid.srt?raw=true) | [下载](../channels/$folder/$nvid.tw.srt?raw=true) | " >> $index
 	done < $curDir/names.txt
 
-done < $baseDir/channels.csv
+done < $baseDir/$csv
 
 # git push
 cd $baseDir
