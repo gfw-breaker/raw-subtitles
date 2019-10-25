@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| (加长）第一阶段协议-- 战役的胜利，战争的不利？中美协议对香港意味着什么？ | [下载](https://y2mate.com/zh-cn/search/INHyoztBHtM) | [下载](../channels/simonegao/_INHyoztBHtM.srt?raw=true) | [下载](../channels/simonegao/_INHyoztBHtM.tw.srt?raw=true) | 
+| (加长字幕版）第一阶段协议-- 战役的胜利，战争的不利？中美协议对香港意味着什么？ | [下载](https://y2mate.com/zh-cn/search/INHyoztBHtM) | [下载](../channels/simonegao/_INHyoztBHtM.srt?raw=true) | [下载](../channels/simonegao/_INHyoztBHtM.tw.srt?raw=true) | 
 | 中美贸易协议对香港意味着什么？第一阶段协议--战役的胜利，战争的不利？ | [下载](https://y2mate.com/zh-cn/search/PE_fU5Bb8J0) | [下载](../channels/simonegao/_PE_fU5Bb8J0.srt?raw=true) | [下载](../channels/simonegao/_PE_fU5Bb8J0.tw.srt?raw=true) | 
 | 采访印象(內幕）：川普對幾件重大事情的態度-班農理解 | [下载](https://y2mate.com/zh-cn/search/PIhL2i0n5-M) | [下载](../channels/simonegao/_PIhL2i0n5-M.srt?raw=true) | [下载](../channels/simonegao/_PIhL2i0n5-M.tw.srt?raw=true) | 
 | 香港临时政府会得到美国支持吗？一件事最关键；禁止蒙面——大动作前噤声欧美；紧急法，把贸易战逼到死角 | [下载](https://y2mate.com/zh-cn/search/Cfitz9hhhxM) | [下载](../channels/simonegao/_Cfitz9hhhxM.srt?raw=true) | [下载](../channels/simonegao/_Cfitz9hhhxM.tw.srt?raw=true) | 
