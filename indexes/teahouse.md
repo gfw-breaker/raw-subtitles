@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 彭斯演讲温和了？蓬佩奥给答案！特朗普中共四中全会前抡双锤，习近平如何接招？（老北京茶馆_第195集_2019_10_25） | [下载](https://y2mate.com/zh-cn/search/7HwMoC54Uhs) | [下载](../channels/teahouse/_7HwMoC54Uhs.srt?raw=true) | [下载](../channels/teahouse/_7HwMoC54Uhs.tw.srt?raw=true) | 
 | 习近平全球推广中共404经验？赵紫阳终获自由！林郑百日后 将被抛弃？！（老北京茶馆_第194集_2019_10_23） | [下载](https://y2mate.com/zh-cn/search/dmdaPVK7Sio) | [下载](../channels/teahouse/_dmdaPVK7Sio.srt?raw=true) | [下载](../channels/teahouse/_dmdaPVK7Sio.tw.srt?raw=true) | 
 | 香港35万人蒙面大游行，林郑又耍花招？中共四中全会前升级帮规；大变局中的年轻人！（老北京茶馆_第193集_2019_10_21） | [下载](https://y2mate.com/zh-cn/search/BImIM-XE8Ew) | [下载](../channels/teahouse/_BImIM-XE8Ew.srt?raw=true) | [下载](../channels/teahouse/_BImIM-XE8Ew.tw.srt?raw=true) | 
 | 四中全会前猛料：林郑共产党员身份曝光！脸书小扎反共，党祸乱香港催动美国反共潮！（老北京茶馆_第192集_2019_10_19） | [下载](https://y2mate.com/zh-cn/search/Bii0Xu7KopM) | [下载](../channels/teahouse/_Bii0Xu7KopM.srt?raw=true) | [下载](../channels/teahouse/_Bii0Xu7KopM.tw.srt?raw=true) | 
