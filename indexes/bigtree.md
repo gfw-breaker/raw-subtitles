@@ -4,7 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 香港反送中事件與六大影響力：社會認同(官方頻道大樹教練48集 20191025) | [下载](https://y2mate.com/zh-cn/search/_aPO3y2ceoc) | [下载](../channels/bigtree/__aPO3y2ceoc.srt?raw=true) | [下载](../channels/bigtree/__aPO3y2ceoc.tw.srt?raw=true) | 
-| 承諾與一致性 _ 從六大影響力看反送中事件 _ (官方頻道大樹教練47集 20191022) | [下载](https://y2mate.com/zh-cn/search/A5R_sRXimwA) | [下载](../channels/bigtree/_A5R_sRXimwA.srt?raw=true) | [下载](../channels/bigtree/_A5R_sRXimwA.tw.srt?raw=true) | 
+| 承諾與一致性(上集) _ 從六大影響力看反送中事件 _ (官方頻道大樹教練47集 20191022) | [下载](https://y2mate.com/zh-cn/search/A5R_sRXimwA) | [下载](../channels/bigtree/_A5R_sRXimwA.srt?raw=true) | [下载](../channels/bigtree/_A5R_sRXimwA.tw.srt?raw=true) | 
 | 不要輕易的接受他人對你的好？從六大影響力看反送中事件(官方頻道大樹教練46集 20191020) | [下载](https://y2mate.com/zh-cn/search/n30TG1J66-8) | [下载](../channels/bigtree/_n30TG1J66-8.srt?raw=true) | [下载](../channels/bigtree/_n30TG1J66-8.tw.srt?raw=true) | 
 | 六大影響力與香港反送中有何關聯？(1.互惠原理)(官方頻道大樹教練45集 20191018) | [下载](https://y2mate.com/zh-cn/search/1Q-1Na_ohLA) | [下载](../channels/bigtree/_1Q-1Na_ohLA.srt?raw=true) | [下载](../channels/bigtree/_1Q-1Na_ohLA.tw.srt?raw=true) | 
 | 付出者收獲：看起來是在幫別人，事實上在幫你自己(官方頻道大樹教練44集 20191015) | [下载](https://y2mate.com/zh-cn/search/uZmF4Ud3IT4) | [下载](../channels/bigtree/_uZmF4Ud3IT4.srt?raw=true) | [下载](../channels/bigtree/_uZmF4Ud3IT4.tw.srt?raw=true) | 
