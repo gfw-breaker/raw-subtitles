@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| (官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/45Fm3cw5f-Q) | [下载](../channels/bigtree/_45Fm3cw5f-Q.srt?raw=true) | [下载](../channels/bigtree/_45Fm3cw5f-Q.tw.srt?raw=true) | 
+| 不要聽魔鬼的許諾因為他從一開始就沒打算履行承諾(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/45Fm3cw5f-Q) | [下载](../channels/bigtree/_45Fm3cw5f-Q.srt?raw=true) | [下载](../channels/bigtree/_45Fm3cw5f-Q.tw.srt?raw=true) | 
 | 承諾與一致性(下集) _ 從六大影響力看反送中事件 _ (官方頻道大樹教練48集 20191027) | [下载](https://y2mate.com/zh-cn/search/TXyGLfO9VDo) | [下载](../channels/bigtree/_TXyGLfO9VDo.srt?raw=true) | [下载](../channels/bigtree/_TXyGLfO9VDo.tw.srt?raw=true) | 
 | 香港反送中事件與六大影響力：社會認同(官方頻道大樹教練48集 20191025) | [下载](https://y2mate.com/zh-cn/search/_aPO3y2ceoc) | [下载](../channels/bigtree/__aPO3y2ceoc.srt?raw=true) | [下载](../channels/bigtree/__aPO3y2ceoc.tw.srt?raw=true) | 
 | 承諾與一致性(上集) _ 從六大影響力看反送中事件 _ (官方頻道大樹教練47集 20191022) | [下载](https://y2mate.com/zh-cn/search/A5R_sRXimwA) | [下载](../channels/bigtree/_A5R_sRXimwA.srt?raw=true) | [下载](../channels/bigtree/_A5R_sRXimwA.tw.srt?raw=true) | 
