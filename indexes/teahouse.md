@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 四中全会，王沪宁和军头戏耍习近平？美国步步紧逼，党该装横还是认怂？（老北京茶馆_第197集_2019_10_30） | [下载](https://y2mate.com/zh-cn/search/1FKhFSRrAVY) | [下载](../channels/teahouse/_1FKhFSRrAVY.srt?raw=true) | [下载](../channels/teahouse/_1FKhFSRrAVY.tw.srt?raw=true) | 
 | 四中全会召开，特朗普送大礼！习近平人类命运共同体在香港突然实现！林郑遭光头犯上？（老北京茶馆_第196集_2019_10_28） | [下载](https://y2mate.com/zh-cn/search/vOe1ds1CVaU) | [下载](../channels/teahouse/_vOe1ds1CVaU.srt?raw=true) | [下载](../channels/teahouse/_vOe1ds1CVaU.tw.srt?raw=true) | 
 | 彭斯演讲温和了？蓬佩奥给答案！特朗普中共四中全会前抡双锤，习近平如何接招？（老北京茶馆_第195集_2019_10_25） | [下载](https://y2mate.com/zh-cn/search/7HwMoC54Uhs) | [下载](../channels/teahouse/_7HwMoC54Uhs.srt?raw=true) | [下载](../channels/teahouse/_7HwMoC54Uhs.tw.srt?raw=true) | 
 | 习近平全球推广中共404经验？赵紫阳终获自由！林郑百日后 将被抛弃？！（老北京茶馆_第194集_2019_10_23） | [下载](https://y2mate.com/zh-cn/search/dmdaPVK7Sio) | [下载](../channels/teahouse/_dmdaPVK7Sio.srt?raw=true) | [下载](../channels/teahouse/_dmdaPVK7Sio.tw.srt?raw=true) | 

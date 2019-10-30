@@ -5,7 +5,7 @@
 |---|---|---|---|
 | 不要聽魔鬼的許諾因為他從一開始就沒打算履行承諾(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/45Fm3cw5f-Q) | [下载](../channels/bigtree/_45Fm3cw5f-Q.srt?raw=true) | [下载](../channels/bigtree/_45Fm3cw5f-Q.tw.srt?raw=true) | 
 | 承諾與一致性(下集) _ 從六大影響力看反送中事件 _ (官方頻道大樹教練48集 20191027) | [下载](https://y2mate.com/zh-cn/search/TXyGLfO9VDo) | [下载](../channels/bigtree/_TXyGLfO9VDo.srt?raw=true) | [下载](../channels/bigtree/_TXyGLfO9VDo.tw.srt?raw=true) | 
-| 香港反送中事件與六大影響力：社會認同(官方頻道大樹教練48集 20191025) | [下载](https://y2mate.com/zh-cn/search/_aPO3y2ceoc) | [下载](../channels/bigtree/__aPO3y2ceoc.srt?raw=true) | [下载](../channels/bigtree/__aPO3y2ceoc.tw.srt?raw=true) | 
+| 香港反送中事件與六大影響力：社會認同(官方頻道大樹教練49集 20191025) | [下载](https://y2mate.com/zh-cn/search/_aPO3y2ceoc) | [下载](../channels/bigtree/__aPO3y2ceoc.srt?raw=true) | [下载](../channels/bigtree/__aPO3y2ceoc.tw.srt?raw=true) | 
 | 承諾與一致性(上集) _ 從六大影響力看反送中事件 _ (官方頻道大樹教練47集 20191022) | [下载](https://y2mate.com/zh-cn/search/A5R_sRXimwA) | [下载](../channels/bigtree/_A5R_sRXimwA.srt?raw=true) | [下载](../channels/bigtree/_A5R_sRXimwA.tw.srt?raw=true) | 
 | 不要輕易的接受他人對你的好？從六大影響力看反送中事件(官方頻道大樹教練46集 20191020) | [下载](https://y2mate.com/zh-cn/search/n30TG1J66-8) | [下载](../channels/bigtree/_n30TG1J66-8.srt?raw=true) | [下载](../channels/bigtree/_n30TG1J66-8.tw.srt?raw=true) | 
 | 六大影響力與香港反送中有何關聯？(1.互惠原理)(官方頻道大樹教練45集 20191018) | [下载](https://y2mate.com/zh-cn/search/1Q-1Na_ohLA) | [下载](../channels/bigtree/_1Q-1Na_ohLA.srt?raw=true) | [下载](../channels/bigtree/_1Q-1Na_ohLA.tw.srt?raw=true) | 
