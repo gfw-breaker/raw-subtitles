@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 移民生活】21 - 怎樣給小费 | [下载](https://y2mate.com/zh-cn/search/JXSu4cLsWGU) | [下载](../channels/us-stories/_JXSu4cLsWGU.srt?raw=true) | [下载](../channels/us-stories/_JXSu4cLsWGU.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】20 - 送禮的文化 | [下载](https://y2mate.com/zh-cn/search/wOQZhbpjThE) | [下载](../channels/us-stories/_wOQZhbpjThE.srt?raw=true) | [下载](../channels/us-stories/_wOQZhbpjThE.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】19 - 出租房屋要小心 | [下载](https://y2mate.com/zh-cn/search/i7Mw9x1KLVA) | [下载](../channels/us-stories/_i7Mw9x1KLVA.srt?raw=true) | [下载](../channels/us-stories/_i7Mw9x1KLVA.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】18 - 交通法庭紀實 | [下载](https://y2mate.com/zh-cn/search/cBQ0AvQjNeM) | [下载](../channels/us-stories/_cBQ0AvQjNeM.srt?raw=true) | [下载](../channels/us-stories/_cBQ0AvQjNeM.tw.srt?raw=true) | 
