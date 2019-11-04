@@ -4,6 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 香港反送中事件與六大影響力：社會認同(上集)(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/j8i1DE3PQfY) | [下载](../channels/bigtree/_j8i1DE3PQfY.srt?raw=true) | [下载](../channels/bigtree/_j8i1DE3PQfY.tw.srt?raw=true) | 
+| 如何最短的時間建立信任感_六大影響力_喜好的力量(官方頻道大樹教練53集 20191105) | [下载](https://y2mate.com/zh-cn/search/WdnTj0cSFeg) | [下载](../channels/bigtree/_WdnTj0cSFeg.srt?raw=true) | [下载](../channels/bigtree/_WdnTj0cSFeg.tw.srt?raw=true) | 
 | 與人共鳴_找到知音最快的方式_六大影響力之喜好力量(官方頻道大樹教練52集 20191103) | [下载](https://y2mate.com/zh-cn/search/CcsvVQXVtUA) | [下载](../channels/bigtree/_CcsvVQXVtUA.srt?raw=true) | [下载](../channels/bigtree/_CcsvVQXVtUA.tw.srt?raw=true) | 
 | (官方頻道大樹教練51集 20191101) | [下载](https://y2mate.com/zh-cn/search/rzQV_CvLy5k) | [下载](../channels/bigtree/_rzQV_CvLy5k.srt?raw=true) | [下载](../channels/bigtree/_rzQV_CvLy5k.tw.srt?raw=true) | 
 | 承諾與一致性(下集) _ 從六大影響力看反送中事件(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/45Fm3cw5f-Q) | [下载](../channels/bigtree/_45Fm3cw5f-Q.srt?raw=true) | [下载](../channels/bigtree/_45Fm3cw5f-Q.tw.srt?raw=true) | 
