@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川习会在即,川普是否会降低中国商品关税最有效的做法是什么川普应学习中国的识人术(政论天下第64集 20191105)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ksACD5oMzNU) | [下载](../channels/tianliang/_ksACD5oMzNU.srt?raw=true) | [下载](../channels/tianliang/_ksACD5oMzNU.tw.srt?raw=true) | 
 | 四中全会后的区块链泡沫为何破得这么快中共真用区块链技术等同自杀(政论天下第63集 20191031)天亮时分 | [下载](https://y2mate.com/zh-cn/search/w7KliT4kIgM) | [下载](../channels/tianliang/_w7KliT4kIgM.srt?raw=true) | [下载](../channels/tianliang/_w7KliT4kIgM.tw.srt?raw=true) | 
 | 四中全会,恐怖平衡已经玩儿不下去_常委若由7变9,意味着习近平的全面溃败(政论天下第62集 20191028)天亮时分 | [下载](https://y2mate.com/zh-cn/search/gOwF8Qx0cX0) | [下载](../channels/tianliang/_gOwF8Qx0cX0.srt?raw=true) | [下载](../channels/tianliang/_gOwF8Qx0cX0.tw.srt?raw=true) | 
 | 彭斯演讲为四中全会投下阴影_习近平正失去党内的刀把子_中美贸易战与香港问题的性质已变_中共一切回应都已经太晚(政论天下第61集 20191024)天亮时分 | [下载](https://y2mate.com/zh-cn/search/LWMmHLC8lII) | [下载](../channels/tianliang/_LWMmHLC8lII.srt?raw=true) | [下载](../channels/tianliang/_LWMmHLC8lII.tw.srt?raw=true) | 
