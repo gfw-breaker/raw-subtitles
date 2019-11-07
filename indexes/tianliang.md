@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美同意分阶段取消关税_资产从中国出逃的好时机_中国人应如何因对即将到来的恶性通货膨胀(政论天下第65集 20191107)天亮时分 | [下载](https://y2mate.com/zh-cn/search/gS0nlMWGib4) | [下载](../channels/tianliang/_gS0nlMWGib4.srt?raw=true) | [下载](../channels/tianliang/_gS0nlMWGib4.tw.srt?raw=true) | 
 | 川习会在即,川普是否会降低中国商品关税最有效的做法是什么川普应学习中国的识人术(政论天下第64集 20191105)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ksACD5oMzNU) | [下载](../channels/tianliang/_ksACD5oMzNU.srt?raw=true) | [下载](../channels/tianliang/_ksACD5oMzNU.tw.srt?raw=true) | 
 | 四中全会后的区块链泡沫为何破得这么快中共真用区块链技术等同自杀(政论天下第63集 20191031)天亮时分 | [下载](https://y2mate.com/zh-cn/search/w7KliT4kIgM) | [下载](../channels/tianliang/_w7KliT4kIgM.srt?raw=true) | [下载](../channels/tianliang/_w7KliT4kIgM.tw.srt?raw=true) | 
 | 四中全会,恐怖平衡已经玩儿不下去_常委若由7变9,意味着习近平的全面溃败(政论天下第62集 20191028)天亮时分 | [下载](https://y2mate.com/zh-cn/search/gOwF8Qx0cX0) | [下载](../channels/tianliang/_gOwF8Qx0cX0.srt?raw=true) | [下载](../channels/tianliang/_gOwF8Qx0cX0.tw.srt?raw=true) | 
