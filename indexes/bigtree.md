@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 屈服權威或反抗權威(下集)(官方頻道大樹教練55集 20191110) | [下载](https://y2mate.com/zh-cn/search/mykcfS-QIJc) | [下载](../channels/bigtree/_mykcfS-QIJc.srt?raw=true) | [下载](../channels/bigtree/_mykcfS-QIJc.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(上集)(官方頻道大樹教練54集 20191108) | [下载](https://y2mate.com/zh-cn/search/ZuYdVKM_9rA) | [下载](../channels/bigtree/_ZuYdVKM_9rA.srt?raw=true) | [下载](../channels/bigtree/_ZuYdVKM_9rA.tw.srt?raw=true) | 
 | 香港反送中事件與六大影響力：社會認同(上集)(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/j8i1DE3PQfY) | [下载](../channels/bigtree/_j8i1DE3PQfY.srt?raw=true) | [下载](../channels/bigtree/_j8i1DE3PQfY.tw.srt?raw=true) | 
 | 如何最短的時間建立信任感_六大影響力_喜好的力量(官方頻道大樹教練53集 20191105) | [下载](https://y2mate.com/zh-cn/search/WdnTj0cSFeg) | [下载](../channels/bigtree/_WdnTj0cSFeg.srt?raw=true) | [下载](../channels/bigtree/_WdnTj0cSFeg.tw.srt?raw=true) | 
