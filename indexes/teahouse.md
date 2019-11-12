@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 香港事变！港警实弹连开三枪、抗争口号逆转；中共警长爆料、火凤凰飞临！启示录惊世预言（老北京茶馆_第202集_2019_11_11） | [下载](https://y2mate.com/zh-cn/search/qD7QIqeGclQ) | [下载](../channels/teahouse/_qD7QIqeGclQ.srt?raw=true) | [下载](../channels/teahouse/_qD7QIqeGclQ.tw.srt?raw=true) | 
 | 王沪宁封禁习近平？林郑败给香港中文大学！大湾区惠港政策遭遇粉红强力反弹！（老北京茶馆_第201集_2019_11_08） | [下载](https://y2mate.com/zh-cn/search/2RkBdD0f5AI) | [下载](../channels/teahouse/_2RkBdD0f5AI.srt?raw=true) | [下载](../channels/teahouse/_2RkBdD0f5AI.tw.srt?raw=true) | 
 | 重庆任学锋跳楼！习近平韩正力挺林郑？猪肉吃不起，苹果吃不起卖不出！（老北京茶馆_第200集_2019_11_06） | [下载](https://y2mate.com/zh-cn/search/IROF7zfUp24) | [下载](../channels/teahouse/_IROF7zfUp24.srt?raw=true) | [下载](../channels/teahouse/_IROF7zfUp24.tw.srt?raw=true) | 
 | 世界喊话习近平：你忘了你妈举报你了？放过香港孩子！战狼咬耳朵，香港深度沦陷？（老北京茶馆_第199集_2019_11_04） | [下载](https://y2mate.com/zh-cn/search/i_cRyslOPYI) | [下载](../channels/teahouse/_i_cRyslOPYI.srt?raw=true) | [下载](../channels/teahouse/_i_cRyslOPYI.tw.srt?raw=true) | 
