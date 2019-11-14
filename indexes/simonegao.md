@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 香港人權與民主法案今天重要關頭；川普說，第一階段協議簽不成，會大加關稅。 | [下载](https://y2mate.com/zh-cn/search/aIecqX8EdA0) | [下载](../channels/simonegao/_aIecqX8EdA0.srt?raw=true) | [下载](../channels/simonegao/_aIecqX8EdA0.tw.srt?raw=true) | 
 | “取消關稅”謠言背後的博弈；美國還會爲別人的自由而戰嗎？ | [下载](https://y2mate.com/zh-cn/search/nijXTXRsZ9Y) | [下载](../channels/simonegao/_nijXTXRsZ9Y.srt?raw=true) | [下载](../channels/simonegao/_nijXTXRsZ9Y.tw.srt?raw=true) | 
 | 美國務卿：正面抗擊中共所有挑戰！蓬佩奧演講和彭斯演講的比較和分析。 | [下载](https://y2mate.com/zh-cn/search/P6iKcx3IVTw) | [下载](../channels/simonegao/_P6iKcx3IVTw.srt?raw=true) | [下载](../channels/simonegao/_P6iKcx3IVTw.tw.srt?raw=true) | 
 | (加长字幕版）第一阶段协议-- 战役的胜利，战争的不利？中美协议对香港意味着什么？ | [下载](https://y2mate.com/zh-cn/search/INHyoztBHtM) | [下载](../channels/simonegao/_INHyoztBHtM.srt?raw=true) | [下载](../channels/simonegao/_INHyoztBHtM.tw.srt?raw=true) | 
