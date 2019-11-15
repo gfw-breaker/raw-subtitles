@@ -6,6 +6,7 @@
 | 稀少或短缺_六大影響力(官方頻道大樹教練56集 20191112) | [下载](https://y2mate.com/zh-cn/search/c_u7Gc5JRnE) | [下载](../channels/bigtree/_c_u7Gc5JRnE.srt?raw=true) | [下载](../channels/bigtree/_c_u7Gc5JRnE.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(下集)(官方頻道大樹教練55集 20191110) | [下载](https://y2mate.com/zh-cn/search/mykcfS-QIJc) | [下载](../channels/bigtree/_mykcfS-QIJc.srt?raw=true) | [下载](../channels/bigtree/_mykcfS-QIJc.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(上集)(官方頻道大樹教練54集 20191108) | [下载](https://y2mate.com/zh-cn/search/ZuYdVKM_9rA) | [下载](../channels/bigtree/_ZuYdVKM_9rA.srt?raw=true) | [下载](../channels/bigtree/_ZuYdVKM_9rA.tw.srt?raw=true) | 
+| 千年婆媳問題一招解(上集)(官方頻道大樹教練57集 20191115) | [下载](https://y2mate.com/zh-cn/search/7TxZhFanhO4) | [下载](../channels/bigtree/_7TxZhFanhO4.srt?raw=true) | [下载](../channels/bigtree/_7TxZhFanhO4.tw.srt?raw=true) | 
 | 香港反送中事件與六大影響力：社會認同(上集)(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/j8i1DE3PQfY) | [下载](../channels/bigtree/_j8i1DE3PQfY.srt?raw=true) | [下载](../channels/bigtree/_j8i1DE3PQfY.tw.srt?raw=true) | 
 | 如何最短的時間建立信任感_六大影響力_喜好的力量(官方頻道大樹教練53集 20191105) | [下载](https://y2mate.com/zh-cn/search/WdnTj0cSFeg) | [下载](../channels/bigtree/_WdnTj0cSFeg.srt?raw=true) | [下载](../channels/bigtree/_WdnTj0cSFeg.tw.srt?raw=true) | 
 | 與人共鳴_找到知音最快的方式_六大影響力之喜好力量(官方頻道大樹教練52集 20191103) | [下载](https://y2mate.com/zh-cn/search/CcsvVQXVtUA) | [下载](../channels/bigtree/_CcsvVQXVtUA.srt?raw=true) | [下载](../channels/bigtree/_CcsvVQXVtUA.tw.srt?raw=true) | 
