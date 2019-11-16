@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 中共可能在香港实施戒严和宵禁,取消区议会选举_美国的最佳回应策略(政论天下第68集 20191114)天亮时分 | [下载](https://y2mate.com/zh-cn/search/orq7YkmOmdA) | [下载](../channels/tianliang/_orq7YkmOmdA.srt?raw=true) | [下载](../channels/tianliang/_orq7YkmOmdA.tw.srt?raw=true) | 
+| 中共可能在香港实施戒严和宵禁,取消区议会选举_美国的最佳回应策略(政论天下第67集 20191114)天亮时分 | [下载](https://y2mate.com/zh-cn/search/orq7YkmOmdA) | [下载](../channels/tianliang/_orq7YkmOmdA.srt?raw=true) | [下载](../channels/tianliang/_orq7YkmOmdA.tw.srt?raw=true) | 
 | 香港形势急剧恶化——中美贸易战的变数；香港问题已经绑架了中共（政论天下第66集 20191112）天亮时分 | [下载](https://y2mate.com/zh-cn/search/LjPCofpjo04) | [下载](../channels/tianliang/_LjPCofpjo04.srt?raw=true) | [下载](../channels/tianliang/_LjPCofpjo04.tw.srt?raw=true) | 
 | 中美同意分阶段取消关税_资产从中国出逃的好时机_中国人应如何因对即将到来的恶性通货膨胀(政论天下第65集 20191107)天亮时分 | [下载](https://y2mate.com/zh-cn/search/gS0nlMWGib4) | [下载](../channels/tianliang/_gS0nlMWGib4.srt?raw=true) | [下载](../channels/tianliang/_gS0nlMWGib4.tw.srt?raw=true) | 
 | 川习会在即,川普是否会降低中国商品关税最有效的做法是什么川普应学习中国的识人术(政论天下第64集 20191105)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ksACD5oMzNU) | [下载](../channels/tianliang/_ksACD5oMzNU.srt?raw=true) | [下载](../channels/tianliang/_ksACD5oMzNU.tw.srt?raw=true) | 
