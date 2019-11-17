@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平对香港放狠话，美国会闪电回应：香港人权法案加速！大陆学生军警挺香港学生（老北京茶馆_第204集_2019_11_15） | [下载](https://y2mate.com/zh-cn/search/YCz7xcI9MBo) | [下载](../channels/teahouse/_YCz7xcI9MBo.srt?raw=true) | [下载](../channels/teahouse/_YCz7xcI9MBo.tw.srt?raw=true) | 
 | 特朗普瞄一眼习近平，开始动手终结中共！推背图勇士现身！香港全城中大保卫战（老北京茶馆_第203集_2019_11_13） | [下载](https://y2mate.com/zh-cn/search/JAR4JgGmfnk) | [下载](../channels/teahouse/_JAR4JgGmfnk.srt?raw=true) | [下载](../channels/teahouse/_JAR4JgGmfnk.tw.srt?raw=true) | 
 | 香港事变！港警实弹连开三枪、抗争口号逆转；中共警长爆料、火凤凰飞临！启示录惊世预言（老北京茶馆_第202集_2019_11_11） | [下载](https://y2mate.com/zh-cn/search/qD7QIqeGclQ) | [下载](../channels/teahouse/_qD7QIqeGclQ.srt?raw=true) | [下载](../channels/teahouse/_qD7QIqeGclQ.tw.srt?raw=true) | 
 | 王沪宁封禁习近平？林郑败给香港中文大学！大湾区惠港政策遭遇粉红强力反弹！（老北京茶馆_第201集_2019_11_08） | [下载](https://y2mate.com/zh-cn/search/2RkBdD0f5AI) | [下载](../channels/teahouse/_2RkBdD0f5AI.srt?raw=true) | [下载](../channels/teahouse/_2RkBdD0f5AI.tw.srt?raw=true) | 

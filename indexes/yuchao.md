@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 反共 vs. 反中 - 20191116 第66期 | [下载](https://y2mate.com/zh-cn/search/_3dtXCi4QVc) | [下载](../channels/yuchao/__3dtXCi4QVc.srt?raw=true) | [下载](../channels/yuchao/__3dtXCi4QVc.tw.srt?raw=true) | 
 | 天安門母親丁子霖給虞超的信 - 20191025 第65期 | [下载](https://y2mate.com/zh-cn/search/3TUvhprHEgs) | [下载](../channels/yuchao/_3TUvhprHEgs.srt?raw=true) | [下载](../channels/yuchao/_3TUvhprHEgs.tw.srt?raw=true) | 
 | 再談普雷格致布林書；對香港未來的估計；語言清晰幫助思考清晰 - 20191016 第64期 | [下载](https://y2mate.com/zh-cn/search/YUMqfjojLvw) | [下载](../channels/yuchao/_YUMqfjojLvw.srt?raw=true) | [下载](../channels/yuchao/_YUMqfjojLvw.tw.srt?raw=true) | 
 | PragerU的丹尼斯・普萊格致謝爾蓋・布林的公開信 - 20191015 第63期 | [下载](https://y2mate.com/zh-cn/search/y0ant6Mhk9s) | [下载](../channels/yuchao/_y0ant6Mhk9s.srt?raw=true) | [下载](../channels/yuchao/_y0ant6Mhk9s.tw.srt?raw=true) | 
