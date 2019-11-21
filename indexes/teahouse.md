@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 香港人权法案直指习近平？朱镕基对撞中共乱港计划？中共怕两种人，香港茶友泪目遗书（老北京茶馆_第206集_2019_11_20） | [下载](https://y2mate.com/zh-cn/search/_Ap0dnQ9UwU) | [下载](../channels/teahouse/__Ap0dnQ9UwU.srt?raw=true) | [下载](../channels/teahouse/__Ap0dnQ9UwU.tw.srt?raw=true) | 
 | 香港理工学生被困！禁蒙面法违宪！驻港部队上街，氯痤疮突袭港警，习近平你……（老北京茶馆_第205集_2019_11_18） | [下载](https://y2mate.com/zh-cn/search/8Hy5vYR-sEs) | [下载](../channels/teahouse/_8Hy5vYR-sEs.srt?raw=true) | [下载](../channels/teahouse/_8Hy5vYR-sEs.tw.srt?raw=true) | 
 | 习近平对香港放狠话，美国会闪电回应：香港人权法案加速！大陆学生军警挺香港学生（老北京茶馆_第204集_2019_11_15） | [下载](https://y2mate.com/zh-cn/search/YCz7xcI9MBo) | [下载](../channels/teahouse/_YCz7xcI9MBo.srt?raw=true) | [下载](../channels/teahouse/_YCz7xcI9MBo.tw.srt?raw=true) | 
 | 特朗普瞄一眼习近平，开始动手终结中共！推背图勇士现身！香港全城中大保卫战（老北京茶馆_第203集_2019_11_13） | [下载](https://y2mate.com/zh-cn/search/JAR4JgGmfnk) | [下载](../channels/teahouse/_JAR4JgGmfnk.srt?raw=true) | [下载](../channels/teahouse/_JAR4JgGmfnk.tw.srt?raw=true) | 
