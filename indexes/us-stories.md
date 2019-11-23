@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 美國教育】12 - 美國高中的育兒課 | [下载](https://y2mate.com/zh-cn/search/B9Wfs4lVr10) | [下载](../channels/us-stories/_B9Wfs4lVr10.srt?raw=true) | [下载](../channels/us-stories/_B9Wfs4lVr10.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】11 - 一场特殊的篮球赛 | [下载](https://y2mate.com/zh-cn/search/0a5hNVzllGs) | [下载](../channels/us-stories/_0a5hNVzllGs.srt?raw=true) | [下载](../channels/us-stories/_0a5hNVzllGs.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】10 - 外語課是這樣考試的 | [下载](https://y2mate.com/zh-cn/search/QsVz202pwbU) | [下载](../channels/us-stories/_QsVz202pwbU.srt?raw=true) | [下载](../channels/us-stories/_QsVz202pwbU.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】9 - 用音樂來完成閱讀作業 | [下载](https://y2mate.com/zh-cn/search/FiXI8OQMmE4) | [下载](../channels/us-stories/_FiXI8OQMmE4.srt?raw=true) | [下载](../channels/us-stories/_FiXI8OQMmE4.tw.srt?raw=true) | 
