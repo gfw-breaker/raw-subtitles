@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 成功十大關鍵報告(商業能力篇)(官方頻道大樹教練61集 20191124) | [下载](https://y2mate.com/zh-cn/search/tA7xlp_gvao) | [下载](../channels/bigtree/_tA7xlp_gvao.srt?raw=true) | [下载](../channels/bigtree/_tA7xlp_gvao.tw.srt?raw=true) | 
 | 稀少或短缺_六大影響力(官方頻道大樹教練56集 20191112) | [下载](https://y2mate.com/zh-cn/search/c_u7Gc5JRnE) | [下载](../channels/bigtree/_c_u7Gc5JRnE.srt?raw=true) | [下载](../channels/bigtree/_c_u7Gc5JRnE.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(下集)(官方頻道大樹教練55集 20191110) | [下载](https://y2mate.com/zh-cn/search/mykcfS-QIJc) | [下载](../channels/bigtree/_mykcfS-QIJc.srt?raw=true) | [下载](../channels/bigtree/_mykcfS-QIJc.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(上集)(官方頻道大樹教練54集 20191108) | [下载](https://y2mate.com/zh-cn/search/ZuYdVKM_9rA) | [下载](../channels/bigtree/_ZuYdVKM_9rA.srt?raw=true) | [下载](../channels/bigtree/_ZuYdVKM_9rA.tw.srt?raw=true) | 
