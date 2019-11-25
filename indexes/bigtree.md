@@ -6,9 +6,9 @@
 | 成功十大關鍵報告(商業能力篇)(官方頻道大樹教練61集 20191124) | [下载](https://y2mate.com/zh-cn/search/tA7xlp_gvao) | [下载](../channels/bigtree/_tA7xlp_gvao.srt?raw=true) | [下载](../channels/bigtree/_tA7xlp_gvao.tw.srt?raw=true) | 
 | 稀少或短缺_六大影響力(官方頻道大樹教練56集 20191112) | [下载](https://y2mate.com/zh-cn/search/c_u7Gc5JRnE) | [下载](../channels/bigtree/_c_u7Gc5JRnE.srt?raw=true) | [下载](../channels/bigtree/_c_u7Gc5JRnE.tw.srt?raw=true) | 
 | 屈服權威或反抗權威(下集)(官方頻道大樹教練55集 20191110) | [下载](https://y2mate.com/zh-cn/search/mykcfS-QIJc) | [下载](../channels/bigtree/_mykcfS-QIJc.srt?raw=true) | [下载](../channels/bigtree/_mykcfS-QIJc.tw.srt?raw=true) | 
-| 屈服權威或反抗權威(上集)(官方頻道大樹教練54集 20191108) | [下载](https://y2mate.com/zh-cn/search/ZuYdVKM_9rA) | [下载](../channels/bigtree/_ZuYdVKM_9rA.srt?raw=true) | [下载](../channels/bigtree/_ZuYdVKM_9rA.tw.srt?raw=true) | 
 | 成功十大關鍵報告(銷售能力篇)(官方頻道大樹教練60集 20191122) | [下载](https://y2mate.com/zh-cn/search/ECMaxBqzB20) | [下载](../channels/bigtree/_ECMaxBqzB20.srt?raw=true) | [下载](../channels/bigtree/_ECMaxBqzB20.tw.srt?raw=true) | 
 | 成功十大關鍵報告(個人能力篇)(官方頻道大樹教練59集 201919) | [下载](https://y2mate.com/zh-cn/search/qT58LYrsVZs) | [下载](../channels/bigtree/_qT58LYrsVZs.srt?raw=true) | [下载](../channels/bigtree/_qT58LYrsVZs.tw.srt?raw=true) | 
+| 屈服權威或反抗權威(上集)(官方頻道大樹教練54集 20191108) | [下载](https://y2mate.com/zh-cn/search/ZuYdVKM_9rA) | [下载](../channels/bigtree/_ZuYdVKM_9rA.srt?raw=true) | [下载](../channels/bigtree/_ZuYdVKM_9rA.tw.srt?raw=true) | 
 | 千年婆媳問題一招解(下集)(官方頻道大樹教練58集 20191117) | [下载](https://y2mate.com/zh-cn/search/KmuASWY-NHw) | [下载](../channels/bigtree/_KmuASWY-NHw.srt?raw=true) | [下载](../channels/bigtree/_KmuASWY-NHw.tw.srt?raw=true) | 
 | 千年婆媳問題一招解(上集)(官方頻道大樹教練57集 20191115) | [下载](https://y2mate.com/zh-cn/search/7TxZhFanhO4) | [下载](../channels/bigtree/_7TxZhFanhO4.srt?raw=true) | [下载](../channels/bigtree/_7TxZhFanhO4.tw.srt?raw=true) | 
 | 香港反送中事件與六大影響力：社會認同(上集)(官方頻道大樹教練50集 20191029) | [下载](https://y2mate.com/zh-cn/search/j8i1DE3PQfY) | [下载](../channels/bigtree/_j8i1DE3PQfY.srt?raw=true) | [下载](../channels/bigtree/_j8i1DE3PQfY.tw.srt?raw=true) | 

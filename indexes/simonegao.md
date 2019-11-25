@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 共产党颠覆美国的45个目标大部分实现了？--- 特約嘉賓-虞超 | [下载](https://y2mate.com/zh-cn/search/gaS3WqbwxrI) | [下载](../channels/simonegao/_gaS3WqbwxrI.srt?raw=true) | [下载](../channels/simonegao/_gaS3WqbwxrI.tw.srt?raw=true) | 
+| 虞超介紹《赤裸的共產黨人》 | [下载](https://y2mate.com/zh-cn/search/gaS3WqbwxrI) | [下载](../channels/simonegao/_gaS3WqbwxrI.srt?raw=true) | [下载](../channels/simonegao/_gaS3WqbwxrI.tw.srt?raw=true) | 
 | 香港人權與民主法案通過。我採訪盧比奧議員，他說這是美國內政 | [下载](https://y2mate.com/zh-cn/search/KSs5hSUBJDY) | [下载](../channels/simonegao/_KSs5hSUBJDY.srt?raw=true) | [下载](../channels/simonegao/_KSs5hSUBJDY.tw.srt?raw=true) | 
 | 香港人權與民主法案今天重要關頭；川普說，第一階段協議簽不成，會大加關稅。 | [下载](https://y2mate.com/zh-cn/search/aIecqX8EdA0) | [下载](../channels/simonegao/_aIecqX8EdA0.srt?raw=true) | [下载](../channels/simonegao/_aIecqX8EdA0.tw.srt?raw=true) | 
 | “取消關稅”謠言背後的博弈；美國還會爲別人的自由而戰嗎？ | [下载](https://y2mate.com/zh-cn/search/nijXTXRsZ9Y) | [下载](../channels/simonegao/_nijXTXRsZ9Y.srt?raw=true) | [下载](../channels/simonegao/_nijXTXRsZ9Y.tw.srt?raw=true) | 
