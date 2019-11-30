@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 特朗普秀肌肉，香港感恩节福利来啦！爆笑党媒口炮风云榜出炉！替党站台，好心酸！（老北京茶馆_第209集_2019_11_29） | [下载](https://y2mate.com/zh-cn/search/F2K_oCycNNU) | [下载](../channels/teahouse/_F2K_oCycNNU.srt?raw=true) | [下载](../channels/teahouse/_F2K_oCycNNU.tw.srt?raw=true) | 
 | 特朗普签署香港人权法案！香港民意大胜，共谍王立强反水，粉红觉悟？（老北京茶馆_第208集_2019_11_27） | [下载](https://y2mate.com/zh-cn/search/W-NV1sx6-sQ) | [下载](../channels/teahouse/_W-NV1sx6-sQ.srt?raw=true) | [下载](../channels/teahouse/_W-NV1sx6-sQ.tw.srt?raw=true) | 
 | 特朗普泄密：香港差点就……区议会选举：央视说2年前已普选！鼠疫抗击奇招：严查禁书！（老北京茶馆_第207集_2019_11_23） | [下载](https://y2mate.com/zh-cn/search/m62jH4hOaBU) | [下载](../channels/teahouse/_m62jH4hOaBU.srt?raw=true) | [下载](../channels/teahouse/_m62jH4hOaBU.tw.srt?raw=true) | 
 | 香港人权法案直指习近平？朱镕基对撞中共乱港计划？中共怕两种人，香港茶友泪目遗书（老北京茶馆_第206集_2019_11_20） | [下载](https://y2mate.com/zh-cn/search/_Ap0dnQ9UwU) | [下载](../channels/teahouse/__Ap0dnQ9UwU.srt?raw=true) | [下载](../channels/teahouse/__Ap0dnQ9UwU.tw.srt?raw=true) | 
