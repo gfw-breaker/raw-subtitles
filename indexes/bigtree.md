@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 成功十大關鍵之最終章(官方頻道大樹教練65集 20191203) | [下载](https://y2mate.com/zh-cn/search/fc-B81AWJv8) | [下载](../channels/bigtree/_fc-B81AWJv8.srt?raw=true) | [下载](../channels/bigtree/_fc-B81AWJv8.tw.srt?raw=true) | 
 | 成功十大關鍵之找到好的合夥人(官方頻道大樹教練64集 20191201) | [下载](https://y2mate.com/zh-cn/search/th7zlIr6SMI) | [下载](../channels/bigtree/_th7zlIr6SMI.srt?raw=true) | [下载](../channels/bigtree/_th7zlIr6SMI.tw.srt?raw=true) | 
 | 成功十大關鍵報告(貴人相助篇)(下集)(官方頻道大樹教練63集 20191129) | [下载](https://y2mate.com/zh-cn/search/-I7cNZG8weQ) | [下载](../channels/bigtree/_-I7cNZG8weQ.srt?raw=true) | [下载](../channels/bigtree/_-I7cNZG8weQ.tw.srt?raw=true) | 
 | 成功十大關鍵報告(貴人相助篇)(上集)(官方頻道大樹教練62集 20191126) | [下载](https://y2mate.com/zh-cn/search/6TUK2jXYrEA) | [下载](../channels/bigtree/_6TUK2jXYrEA.srt?raw=true) | [下载](../channels/bigtree/_6TUK2jXYrEA.tw.srt?raw=true) | 
