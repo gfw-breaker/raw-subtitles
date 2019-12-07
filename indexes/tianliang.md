@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 韩国瑜是否会坐牢五年共谍王立强投诚的核爆效应,中共溃坝的第一条裂缝(政论天下第72集 20191205)天亮时分 | [下载](https://y2mate.com/zh-cn/search/IPB6EHskwr8) | [下载](../channels/tianliang/_IPB6EHskwr8.srt?raw=true) | [下载](../channels/tianliang/_IPB6EHskwr8.tw.srt?raw=true) | 
 | 中美贸易协定泡汤,习近平的致命问题与中共奇怪的小动作(政论天下第71集 20191203)天亮时分 | [下载](https://y2mate.com/zh-cn/search/Mr3qF2_Fe3I) | [下载](../channels/tianliang/_Mr3qF2_Fe3I.srt?raw=true) | [下载](../channels/tianliang/_Mr3qF2_Fe3I.tw.srt?raw=true) | 
 | 区议会选举泛民大胜_香港局势何去何从(政论天下第70集 20191124)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_JIlO-84i48) | [下载](../channels/tianliang/__JIlO-84i48.srt?raw=true) | [下载](../channels/tianliang/__JIlO-84i48.tw.srt?raw=true) | 
 | 川普拯救香港中美贸易协议极可能泡汤,双方只是假装在谈判(政论天下第69集 20191122)天亮时分 | [下载](https://y2mate.com/zh-cn/search/fdjxgqHA-oQ) | [下载](../channels/tianliang/_fdjxgqHA-oQ.srt?raw=true) | [下载](../channels/tianliang/_fdjxgqHA-oQ.tw.srt?raw=true) | 
