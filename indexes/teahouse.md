@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 欧盟版马格尼茨基法案出炉！冰花男孩申请贫困户不成变富户！陈秋实被限制出境（老北京茶馆_第214集_2019_12_11） | [下载](https://y2mate.com/zh-cn/search/3pcGDXh_gIs) | [下载](../channels/teahouse/_3pcGDXh_gIs.srt?raw=true) | [下载](../channels/teahouse/_3pcGDXh_gIs.tw.srt?raw=true) | 
 | 香港128大游行人数搞错了！北京政协委员姜亦珊离奇逃共？香港台湾两对恋人的故事（老北京茶馆_第213集_2019_12_09） | [下载](https://y2mate.com/zh-cn/search/OLKpMtnfdhw) | [下载](../channels/teahouse/_OLKpMtnfdhw.srt?raw=true) | [下载](../channels/teahouse/_OLKpMtnfdhw.tw.srt?raw=true) | 
 | 华春莹战术突变，完胜耿爽模拟器！何君尧党员认证？高以翔留下动人遗产！（老北京茶馆_第212集_2019_12_07） | [下载](https://y2mate.com/zh-cn/search/7vqGLZFbkts) | [下载](../channels/teahouse/_7vqGLZFbkts.srt?raw=true) | [下载](../channels/teahouse/_7vqGLZFbkts.tw.srt?raw=true) | 
 | 美国会通过《新疆人权法案》！华为251李洪元PK孟晚舟！耿爽模拟器出炉！（老北京茶馆_第211集_2019_12_04） | [下载](https://y2mate.com/zh-cn/search/dqwTLRLR0kc) | [下载](../channels/teahouse/_dqwTLRLR0kc.srt?raw=true) | [下载](../channels/teahouse/_dqwTLRLR0kc.tw.srt?raw=true) | 
