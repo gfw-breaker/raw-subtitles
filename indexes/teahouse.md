@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美第一阶段贸易协议，特朗普让习近平占便宜？网民：党半个世纪后又庄严承诺啦！（老北京茶馆_第215集_2019_12_13） | [下载](https://y2mate.com/zh-cn/search/1QlP_ACesTo) | [下载](../channels/teahouse/_1QlP_ACesTo.srt?raw=true) | [下载](../channels/teahouse/_1QlP_ACesTo.tw.srt?raw=true) | 
 | 欧盟版马格尼茨基法案出炉！冰花男孩申请贫困户不成变富户！陈秋实被限制出境（老北京茶馆_第214集_2019_12_11） | [下载](https://y2mate.com/zh-cn/search/3pcGDXh_gIs) | [下载](../channels/teahouse/_3pcGDXh_gIs.srt?raw=true) | [下载](../channels/teahouse/_3pcGDXh_gIs.tw.srt?raw=true) | 
 | 香港128大游行人数搞错了！北京政协委员姜亦珊离奇逃共？香港台湾两对恋人的故事（老北京茶馆_第213集_2019_12_09） | [下载](https://y2mate.com/zh-cn/search/OLKpMtnfdhw) | [下载](../channels/teahouse/_OLKpMtnfdhw.srt?raw=true) | [下载](../channels/teahouse/_OLKpMtnfdhw.tw.srt?raw=true) | 
 | 华春莹战术突变，完胜耿爽模拟器！何君尧党员认证？高以翔留下动人遗产！（老北京茶馆_第212集_2019_12_07） | [下载](https://y2mate.com/zh-cn/search/7vqGLZFbkts) | [下载](../channels/teahouse/_7vqGLZFbkts.srt?raw=true) | [下载](../channels/teahouse/_7vqGLZFbkts.tw.srt?raw=true) | 
