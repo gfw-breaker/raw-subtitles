@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 第一阶段协议：美国大赢但有后患；美国贸易代表爆：中美勾结放假消息; | [下载](https://y2mate.com/zh-cn/search/WyuUuaIev84) | [下载](../channels/simonegao/_WyuUuaIev84.srt?raw=true) | [下载](../channels/simonegao/_WyuUuaIev84.tw.srt?raw=true) | 
 | 嘉賓特別節目：正義與秩序的源頭（上）- 虞超 | [下载](https://y2mate.com/zh-cn/search/CU3hB05xFV8) | [下载](../channels/simonegao/_CU3hB05xFV8.srt?raw=true) | [下载](../channels/simonegao/_CU3hB05xFV8.tw.srt?raw=true) | 
 | 川普签香港法案附带声明藏大玄机？ | [下载](https://y2mate.com/zh-cn/search/ybZs2cSEFSA) | [下载](../channels/simonegao/_ybZs2cSEFSA.srt?raw=true) | [下载](../channels/simonegao/_ybZs2cSEFSA.tw.srt?raw=true) | 
 | 虞超介紹《赤裸的共產黨人》 | [下载](https://y2mate.com/zh-cn/search/gaS3WqbwxrI) | [下载](../channels/simonegao/_gaS3WqbwxrI.srt?raw=true) | [下载](../channels/simonegao/_gaS3WqbwxrI.tw.srt?raw=true) | 
