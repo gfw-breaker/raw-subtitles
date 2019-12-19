@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平澳门做梦？复旦大学改章程引发歌声！环球时报高管赴美点灯！茂名保家立头功！（老北京茶馆_第217集_2019_12_18） | [下载](https://y2mate.com/zh-cn/search/bSOgQQmVQtM) | [下载](../channels/teahouse/_bSOgQQmVQtM.srt?raw=true) | [下载](../channels/teahouse/_bSOgQQmVQtM.tw.srt?raw=true) | 
 | 有求于她？习近平李克强高调给林郑月娥颁安慰奖！官场惊现辞职潮！中共十大预兆（老北京茶馆_第216集_2019_12_16） | [下载](https://y2mate.com/zh-cn/search/9Nti1qnwDn8) | [下载](../channels/teahouse/_9Nti1qnwDn8.srt?raw=true) | [下载](../channels/teahouse/_9Nti1qnwDn8.tw.srt?raw=true) | 
 | 中美第一阶段贸易协议，特朗普让习近平占便宜？网民：党半个世纪后又庄严承诺啦！（老北京茶馆_第215集_2019_12_13） | [下载](https://y2mate.com/zh-cn/search/1QlP_ACesTo) | [下载](../channels/teahouse/_1QlP_ACesTo.srt?raw=true) | [下载](../channels/teahouse/_1QlP_ACesTo.tw.srt?raw=true) | 
 | 欧盟版马格尼茨基法案出炉！冰花男孩申请贫困户不成变富户！陈秋实被限制出境（老北京茶馆_第214集_2019_12_11） | [下载](https://y2mate.com/zh-cn/search/3pcGDXh_gIs) | [下载](../channels/teahouse/_3pcGDXh_gIs.srt?raw=true) | [下载](../channels/teahouse/_3pcGDXh_gIs.tw.srt?raw=true) | 
