@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 我與父親 - 20191218 第69期 | [下载](https://y2mate.com/zh-cn/search/X7aM0cPrP-A) | [下载](../channels/yuchao/_X7aM0cPrP-A.srt?raw=true) | [下载](../channels/yuchao/_X7aM0cPrP-A.tw.srt?raw=true) | 
 | 原來的房主去哪了？ - 20191128 第68期 | [下载](https://y2mate.com/zh-cn/search/uV8aJsTimVQ) | [下载](../channels/yuchao/_uV8aJsTimVQ.srt?raw=true) | [下载](../channels/yuchao/_uV8aJsTimVQ.tw.srt?raw=true) | 
 | 從臺灣再談反共與反中；從香港抗爭再談識人與自省 - 20191124 第67期 | [下载](https://y2mate.com/zh-cn/search/DoO-kRcn9TU) | [下载](../channels/yuchao/_DoO-kRcn9TU.srt?raw=true) | [下载](../channels/yuchao/_DoO-kRcn9TU.tw.srt?raw=true) | 
 | 反共 vs. 反中 - 20191116 第66期 | [下载](https://y2mate.com/zh-cn/search/_3dtXCi4QVc) | [下载](../channels/yuchao/__3dtXCi4QVc.srt?raw=true) | [下载](../channels/yuchao/__3dtXCi4QVc.tw.srt?raw=true) | 
