@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【清聊美國 - 美國教育】17 - 女童子军的王牌活动 | [下载](https://y2mate.com/zh-cn/search/ISXC6wKywq4) | [下载](../channels/us-stories/_ISXC6wKywq4.srt?raw=true) | [下载](../channels/us-stories/_ISXC6wKywq4.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】16 - 童子军的起源 Boy Scouts of America | [下载](https://y2mate.com/zh-cn/search/YcVwDng7AOM) | [下载](../channels/us-stories/_YcVwDng7AOM.srt?raw=true) | [下载](../channels/us-stories/_YcVwDng7AOM.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】15 - 鼓励教育 | [下载](https://y2mate.com/zh-cn/search/bsQ6wrdc8uI) | [下载](../channels/us-stories/_bsQ6wrdc8uI.srt?raw=true) | [下载](../channels/us-stories/_bsQ6wrdc8uI.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】14 - 優秀教師的獨到之處：用苹果暗喻霸凌的後果 | [下载](https://y2mate.com/zh-cn/search/Rc5NDaKmX9o) | [下载](../channels/us-stories/_Rc5NDaKmX9o.srt?raw=true) | [下载](../channels/us-stories/_Rc5NDaKmX9o.tw.srt?raw=true) | 
