@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 北大郑也夫叫板中共七常委！特朗普宣布与习近平签协议！耿爽手撕求救信？香港平安！（老北京茶馆_第220集_2019_12_25） | [下载](https://y2mate.com/zh-cn/search/HKZ4hKVfeNM) | [下载](../channels/teahouse/_HKZ4hKVfeNM.srt?raw=true) | [下载](../channels/teahouse/_HKZ4hKVfeNM.tw.srt?raw=true) | 
 | 林郑老公澳门沉默原因曝光？圣诞节惊现大陆外籍人士求救信！全球茶友圣诞寄语（老北京茶馆_第219集_2019_12_23） | [下载](https://y2mate.com/zh-cn/search/kQp9tF5ifzI) | [下载](../channels/teahouse/_kQp9tF5ifzI.srt?raw=true) | [下载](../channels/teahouse/_kQp9tF5ifzI.tw.srt?raw=true) | 
 | 特朗普：被弹劾我有三重惊喜！习近平：我支持你！蔡英文：谢谢你也已经支持我啦！（老北京茶馆_第218集_2019_12_20） | [下载](https://y2mate.com/zh-cn/search/mPZfyM6PNgE) | [下载](../channels/teahouse/_mPZfyM6PNgE.srt?raw=true) | [下载](../channels/teahouse/_mPZfyM6PNgE.tw.srt?raw=true) | 
 | 习近平澳门做梦？复旦大学改章程引发歌声！环球时报高管赴美点灯！茂名保家立头功！（老北京茶馆_第217集_2019_12_18） | [下载](https://y2mate.com/zh-cn/search/bSOgQQmVQtM) | [下载](../channels/teahouse/_bSOgQQmVQtM.srt?raw=true) | [下载](../channels/teahouse/_bSOgQQmVQtM.tw.srt?raw=true) | 
