@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 圣诞变国丧_中共国务院紧急发文防范突发事件(政论天下第76集 20191226)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rvBZIKLPw0o) | [下载](../channels/tianliang/_rvBZIKLPw0o.srt?raw=true) | [下载](../channels/tianliang/_rvBZIKLPw0o.tw.srt?raw=true) | 
 | 决战2020(2)四届美国总统三十年误判中共(政论天下第75集 20191225)天亮时分 | [下载](https://y2mate.com/zh-cn/search/5wjZA1SR0MI) | [下载](../channels/tianliang/_5wjZA1SR0MI.srt?raw=true) | [下载](../channels/tianliang/_5wjZA1SR0MI.tw.srt?raw=true) | 
 | 马云的朋友五人借钱十人卖楼,为什么经济崩溃极可能会导致中共政权崩溃(政论天下第74集 20191223)天亮时分 | [下载](https://y2mate.com/zh-cn/search/AH8g6WRj2hs) | [下载](../channels/tianliang/_AH8g6WRj2hs.srt?raw=true) | [下载](../channels/tianliang/_AH8g6WRj2hs.tw.srt?raw=true) | 
 | 决战2020(1)我们应该为中共垮台做哪些准备(政论天下第73集 20191222)天亮时分 | [下载](https://y2mate.com/zh-cn/search/TVRYrko4BZ0) | [下载](../channels/tianliang/_TVRYrko4BZ0.srt?raw=true) | [下载](../channels/tianliang/_TVRYrko4BZ0.tw.srt?raw=true) | 
