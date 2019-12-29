@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李子柒、Papi酱、郭德纲和重新编译修改《圣经》的背后 (政论天下第78集 20191228)天亮时分 | [下载](https://y2mate.com/zh-cn/search/VLjVSqsk_FI) | [下载](../channels/tianliang/_VLjVSqsk_FI.srt?raw=true) | [下载](../channels/tianliang/_VLjVSqsk_FI.tw.srt?raw=true) | 
 | 决战2020(3)三十年养虎遗患,美国终于看到中共的威胁(政论天下第77集 20191227)天亮时分 | [下载](https://y2mate.com/zh-cn/search/bvfnJBe33Y8) | [下载](../channels/tianliang/_bvfnJBe33Y8.srt?raw=true) | [下载](../channels/tianliang/_bvfnJBe33Y8.tw.srt?raw=true) | 
 | 圣诞变国丧_中共国务院紧急发文防范突发事件(政论天下第76集 20191226)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rvBZIKLPw0o) | [下载](../channels/tianliang/_rvBZIKLPw0o.srt?raw=true) | [下载](../channels/tianliang/_rvBZIKLPw0o.tw.srt?raw=true) | 
 | 决战2020(2)四届美国总统三十年误判中共(政论天下第75集 20191225)天亮时分 | [下载](https://y2mate.com/zh-cn/search/5wjZA1SR0MI) | [下载](../channels/tianliang/_5wjZA1SR0MI.srt?raw=true) | [下载](../channels/tianliang/_5wjZA1SR0MI.tw.srt?raw=true) | 
