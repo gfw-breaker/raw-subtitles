@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共139亿资金流入台湾影响大选_台湾最应该做的是这个(政论天下第79集 20191229)天亮时分 | [下载](https://y2mate.com/zh-cn/search/MuNZxjjX1cU) | [下载](../channels/tianliang/_MuNZxjjX1cU.srt?raw=true) | [下载](../channels/tianliang/_MuNZxjjX1cU.tw.srt?raw=true) | 
 | 李子柒、Papi酱、郭德纲和重新编译修改《圣经》的背后 (政论天下第78集 20191228)天亮时分 | [下载](https://y2mate.com/zh-cn/search/VLjVSqsk_FI) | [下载](../channels/tianliang/_VLjVSqsk_FI.srt?raw=true) | [下载](../channels/tianliang/_VLjVSqsk_FI.tw.srt?raw=true) | 
 | 决战2020(3)三十年养虎遗患,美国终于看到中共的威胁(政论天下第77集 20191227)天亮时分 | [下载](https://y2mate.com/zh-cn/search/bvfnJBe33Y8) | [下载](../channels/tianliang/_bvfnJBe33Y8.srt?raw=true) | [下载](../channels/tianliang/_bvfnJBe33Y8.tw.srt?raw=true) | 
 | 圣诞变国丧_中共国务院紧急发文防范突发事件(政论天下第76集 20191226)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rvBZIKLPw0o) | [下载](../channels/tianliang/_rvBZIKLPw0o.srt?raw=true) | [下载](../channels/tianliang/_rvBZIKLPw0o.tw.srt?raw=true) | 
