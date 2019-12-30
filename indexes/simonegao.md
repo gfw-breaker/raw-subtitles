@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 台湾大选是对中共的公投；美国支持台湾有一个意想不到的原因； 彭斯和蓬佩奥为台湾站台为了什么？（2019年12月19日，萧茗看世界 第20期） | [下载](https://y2mate.com/zh-cn/search/gYz2D6lUhf0) | [下载](../channels/simonegao/_gYz2D6lUhf0.srt?raw=true) | [下载](../channels/simonegao/_gYz2D6lUhf0.tw.srt?raw=true) | 
 | 第一阶段协议：美国大赢但有后患；美国贸易代表爆：中美勾结放假消息; | [下载](https://y2mate.com/zh-cn/search/WyuUuaIev84) | [下载](../channels/simonegao/_WyuUuaIev84.srt?raw=true) | [下载](../channels/simonegao/_WyuUuaIev84.tw.srt?raw=true) | 
 | 嘉賓特別節目：正義與秩序的源頭（上）- 虞超 | [下载](https://y2mate.com/zh-cn/search/CU3hB05xFV8) | [下载](../channels/simonegao/_CU3hB05xFV8.srt?raw=true) | [下载](../channels/simonegao/_CU3hB05xFV8.tw.srt?raw=true) | 
 | 川普签香港法案附带声明藏大玄机？ | [下载](https://y2mate.com/zh-cn/search/ybZs2cSEFSA) | [下载](../channels/simonegao/_ybZs2cSEFSA.srt?raw=true) | [下载](../channels/simonegao/_ybZs2cSEFSA.tw.srt?raw=true) | 
