@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 北京小曲儿来啦！反渗透法三读通过！2019反转新闻大拼盘！2020大预言！（老北京茶馆_第222集_2019_12_31） | [下载](https://y2mate.com/zh-cn/search/v_6x5eAdnJs) | [下载](../channels/teahouse/_v_6x5eAdnJs.srt?raw=true) | [下载](../channels/teahouse/_v_6x5eAdnJs.tw.srt?raw=true) | 
 | 2020欢乐大跨年 之 爆笑北京平壤辟谣擂台赛：圣诞节来源去向大揭秘！我被喝茶奇遇记！（老北京茶馆_第221集_2019_12_27） | [下载](https://y2mate.com/zh-cn/search/n4avZGebLno) | [下载](../channels/teahouse/_n4avZGebLno.srt?raw=true) | [下载](../channels/teahouse/_n4avZGebLno.tw.srt?raw=true) | 
 | 北大郑也夫叫板中共七常委！特朗普宣布与习近平签协议！耿爽手撕求救信？香港平安！（老北京茶馆_第220集_2019_12_25） | [下载](https://y2mate.com/zh-cn/search/HKZ4hKVfeNM) | [下载](../channels/teahouse/_HKZ4hKVfeNM.srt?raw=true) | [下载](../channels/teahouse/_HKZ4hKVfeNM.tw.srt?raw=true) | 
 | 林郑老公澳门沉默原因曝光？圣诞节惊现大陆外籍人士求救信！全球茶友圣诞寄语（老北京茶馆_第219集_2019_12_23） | [下载](https://y2mate.com/zh-cn/search/kQp9tF5ifzI) | [下载](../channels/teahouse/_kQp9tF5ifzI.srt?raw=true) | [下载](../channels/teahouse/_kQp9tF5ifzI.tw.srt?raw=true) | 
