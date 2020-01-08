@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普炸死苏莱曼尼的合法性,惊心动魄的偷袭恩德培与慕尼黑惨案后的九年追杀,为什么恐怖分子都是胆小鬼(政论天下第83集 20200107)天亮时分 | [下载](https://y2mate.com/zh-cn/search/j5RjzHcj3ao) | [下载](../channels/tianliang/_j5RjzHcj3ao.srt?raw=true) | [下载](../channels/tianliang/_j5RjzHcj3ao.tw.srt?raw=true) | 
 | 决战2020(5)为中共垮台做好四项准备(政论天下第82集 20200102)天亮时分 | [下载](https://y2mate.com/zh-cn/search/orJlBjtSlSM) | [下载](../channels/tianliang/_orJlBjtSlSM.srt?raw=true) | [下载](../channels/tianliang/_orJlBjtSlSM.tw.srt?raw=true) | 
 | 央行与全民赌博,28万亿房贷重贷款_LPR加点模式是利好还是大坑判断方法其实很简单(政论天下第81集 20200101)天亮时分 | [下载](https://y2mate.com/zh-cn/search/NY4ReQwvTVM) | [下载](../channels/tianliang/_NY4ReQwvTVM.srt?raw=true) | [下载](../channels/tianliang/_NY4ReQwvTVM.tw.srt?raw=true) | 
 | 决战2020(4)美国的衰落与觉醒,对华政策全面转向(政论天下第80集 20191230)天亮时分 | [下载](https://y2mate.com/zh-cn/search/jkPtS8eAoz0) | [下载](../channels/tianliang/_jkPtS8eAoz0.srt?raw=true) | [下载](../channels/tianliang/_jkPtS8eAoz0.tw.srt?raw=true) | 
