@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 台湾大选正在投票,但结果已定_中共是否会狗急跳墙打台湾独裁者的本性就是答案(政论天下第85集 20200110)天亮时分 | [下载](https://y2mate.com/zh-cn/search/T-LuL4e8Ru8) | [下载](../channels/tianliang/_T-LuL4e8Ru8.srt?raw=true) | [下载](../channels/tianliang/_T-LuL4e8Ru8.tw.srt?raw=true) | 
 | 王立强遭利诱和死亡威胁,国民党义务副秘书长蔡正元亲自出马_为何国安可能成为颠覆中共的力量(政论天下第84集 20200109)天亮时分 | [下载](https://y2mate.com/zh-cn/search/1Ijm5BZRyek) | [下载](../channels/tianliang/_1Ijm5BZRyek.srt?raw=true) | [下载](../channels/tianliang/_1Ijm5BZRyek.tw.srt?raw=true) | 
 | 川普炸死苏莱曼尼的合法性,惊心动魄的偷袭恩德培与慕尼黑惨案后的九年追杀,为什么恐怖分子都是胆小鬼(政论天下第83集 20200107)天亮时分 | [下载](https://y2mate.com/zh-cn/search/j5RjzHcj3ao) | [下载](../channels/tianliang/_j5RjzHcj3ao.srt?raw=true) | [下载](../channels/tianliang/_j5RjzHcj3ao.tw.srt?raw=true) | 
 | 决战2020(5)为中共垮台做好四项准备(政论天下第82集 20200102)天亮时分 | [下载](https://y2mate.com/zh-cn/search/orJlBjtSlSM) | [下载](../channels/tianliang/_orJlBjtSlSM.srt?raw=true) | [下载](../channels/tianliang/_orJlBjtSlSM.tw.srt?raw=true) | 
