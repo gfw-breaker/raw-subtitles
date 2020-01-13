@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 台湾大选蔡英文成功连任！中共力推小英护台湾民主自由、抵制一国两制！港人齐撑台湾！（老北京茶馆_第226集_2020_01_11） | [下载](https://y2mate.com/zh-cn/search/p9ThXUPZ1mU) | [下载](../channels/teahouse/_p9ThXUPZ1mU.srt?raw=true) | [下载](../channels/teahouse/_p9ThXUPZ1mU.tw.srt?raw=true) | 
 | 伊朗局势大逆转！15枚导弹坠机地震后，伊朗外长：报复行动已经结束！特朗普讲话啥意思？（老北京茶馆_第225集_2020_01_08） | [下载](https://y2mate.com/zh-cn/search/XCk_4nKrvGc) | [下载](../channels/teahouse/_XCk_4nKrvGc.srt?raw=true) | [下载](../channels/teahouse/_XCk_4nKrvGc.tw.srt?raw=true) | 
 | 美伊大聚焦！特朗普：游戏规则变了！北京：真虽远必诛？我们还是拿下王志民吧！ （老北京茶馆_第224集_2020_01_06） | [下载](https://y2mate.com/zh-cn/search/xIwkfevmJIs) | [下载](../channels/teahouse/_xIwkfevmJIs.srt?raw=true) | [下载](../channels/teahouse/_xIwkfevmJIs.tw.srt?raw=true) | 
 | 武汉SARS疫情疑云，香港103万人元旦大游行！党国专家袜子藏21瓶美国癌细胞样本被抓！（老北京茶馆_第223集_2020_01_03） | [下载](https://y2mate.com/zh-cn/search/OD5VlDiTDRE) | [下载](../channels/teahouse/_OD5VlDiTDRE.srt?raw=true) | [下载](../channels/teahouse/_OD5VlDiTDRE.tw.srt?raw=true) | 
