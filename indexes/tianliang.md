@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国的小康有多康美国的穷人有多穷从43斤的女大学生吴花燕谈起,顺便纠正一个对小康的误解(政论天下第88集 20200114)天亮时分 | [下载](https://y2mate.com/zh-cn/search/iZu42OFyG0Q) | [下载](../channels/tianliang/_iZu42OFyG0Q.srt?raw=true) | [下载](../channels/tianliang/_iZu42OFyG0Q.tw.srt?raw=true) | 
 | 川普警告伊朗不要屠杀抗议者,推文吓坏中共领导人_川普终于抓住了对抗独裁者的要害(政论天下第86集 20200113)天亮时分 | [下载](https://y2mate.com/zh-cn/search/iEXydgmgoH8) | [下载](../channels/tianliang/_iEXydgmgoH8.srt?raw=true) | [下载](../channels/tianliang/_iEXydgmgoH8.tw.srt?raw=true) | 
 | 蔡英文无悬念当选_那些跟着中共就倒霉的事儿_蔡英文应该马上做好的三件事(政论天下第86集 20200111)天亮时分 | [下载](https://y2mate.com/zh-cn/search/s0JUMdHYzkU) | [下载](../channels/tianliang/_s0JUMdHYzkU.srt?raw=true) | [下载](../channels/tianliang/_s0JUMdHYzkU.tw.srt?raw=true) | 
 | 台湾大选正在投票,但结果已定_中共是否会狗急跳墙打台湾独裁者的本性就是答案(政论天下第85集 20200110)天亮时分 | [下载](https://y2mate.com/zh-cn/search/T-LuL4e8Ru8) | [下载](../channels/tianliang/_T-LuL4e8Ru8.srt?raw=true) | [下载](../channels/tianliang/_T-LuL4e8Ru8.tw.srt?raw=true) | 
