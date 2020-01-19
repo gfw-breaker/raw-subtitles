@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李子柒现实版！天子脚下新年第一拆：果庄村山居别墅被清空！党，你还我诗意远方！（老北京茶馆_第229集_2020_01_17） | [下载](https://y2mate.com/zh-cn/search/snWEmy9cic4) | [下载](../channels/teahouse/_snWEmy9cic4.srt?raw=true) | [下载](../channels/teahouse/_snWEmy9cic4.tw.srt?raw=true) | 
 | 中美签署第一阶段贸易协议！43斤女大学生吴花燕爱国，倒不完茅台酒的副省长也爱国（老北京茶馆_第228集_2020_01_15） | [下载](https://y2mate.com/zh-cn/search/7CRmvK0pRMQ) | [下载](../channels/teahouse/_7CRmvK0pRMQ.srt?raw=true) | [下载](../channels/teahouse/_7CRmvK0pRMQ.tw.srt?raw=true) | 
 | 习近平反思蔡英文连任：年轻人的两岸三地，下一个轮到大陆？请关注师娘的优美感！（老北京茶馆_第227集_2020_01_13） | [下载](https://y2mate.com/zh-cn/search/66MHHAuBXAE) | [下载](../channels/teahouse/_66MHHAuBXAE.srt?raw=true) | [下载](../channels/teahouse/_66MHHAuBXAE.tw.srt?raw=true) | 
 | 台湾大选蔡英文成功连任！中共力推小英护台湾民主自由、抵制一国两制！港人齐撑台湾！（老北京茶馆_第226集_2020_01_11） | [下载](https://y2mate.com/zh-cn/search/p9ThXUPZ1mU) | [下载](../channels/teahouse/_p9ThXUPZ1mU.srt?raw=true) | [下载](../channels/teahouse/_p9ThXUPZ1mU.tw.srt?raw=true) | 
