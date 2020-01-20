@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 吴花燕背后的慈善黑幕;黄菊的老婆余慧文,郭美美也干过这事 _ 吴花燕爱的是谁的国(政论天下第90集 20200119)天亮时分 | [下载](https://y2mate.com/zh-cn/search/i3VySEQH2_0) | [下载](../channels/tianliang/_i3VySEQH2_0.srt?raw=true) | [下载](../channels/tianliang/_i3VySEQH2_0.tw.srt?raw=true) | 
 | 中美签署贸易协定,习近平自己为啥不来执行机制可能毁掉整个协议_川普对第二阶段时间表为何摇摆(政论天下第89集 20200116)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ZYCdpHKXdG4) | [下载](../channels/tianliang/_ZYCdpHKXdG4.srt?raw=true) | [下载](../channels/tianliang/_ZYCdpHKXdG4.tw.srt?raw=true) | 
 | 蔡英文无悬念当选_那些跟着中共就倒霉的事儿_蔡英文应该马上做好的三件事(政论天下第86集 20200111)天亮时分 | [下载](https://y2mate.com/zh-cn/search/s0JUMdHYzkU) | [下载](../channels/tianliang/_s0JUMdHYzkU.srt?raw=true) | [下载](../channels/tianliang/_s0JUMdHYzkU.tw.srt?raw=true) | 
 | 中国的小康有多康美国的穷人有多穷从43斤的女大学生吴花燕谈起,顺便纠正一个对小康的误解(政论天下第88集 20200114)天亮时分 | [下载](https://y2mate.com/zh-cn/search/iZu42OFyG0Q) | [下载](../channels/tianliang/_iZu42OFyG0Q.srt?raw=true) | [下载](../channels/tianliang/_iZu42OFyG0Q.tw.srt?raw=true) | 
