@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 第一階段協議，迫使中共簽的不是關稅， 是這個。。。 | [下载](https://y2mate.com/zh-cn/search/SLdzrZQYW_Q) | [下载](../channels/simonegao/_SLdzrZQYW_Q.srt?raw=true) | [下载](../channels/simonegao/_SLdzrZQYW_Q.tw.srt?raw=true) | 
 | 臺灣大選是對中共的公投；美國支持臺灣有一個意想不到的原因； 彭斯和蓬佩奧為臺灣站臺為了什麽？（2019年12月29日，蕭茗看世界 第35期） | [下载](https://y2mate.com/zh-cn/search/gYz2D6lUhf0) | [下载](../channels/simonegao/_gYz2D6lUhf0.srt?raw=true) | [下载](../channels/simonegao/_gYz2D6lUhf0.tw.srt?raw=true) | 
 | 第一阶段协议：美国大赢但有后患；美国贸易代表爆：中美勾结放假消息; | [下载](https://y2mate.com/zh-cn/search/WyuUuaIev84) | [下载](../channels/simonegao/_WyuUuaIev84.srt?raw=true) | [下载](../channels/simonegao/_WyuUuaIev84.tw.srt?raw=true) | 
 | 嘉賓特別節目：正義與秩序的源頭（上）- 虞超 | [下载](https://y2mate.com/zh-cn/search/CU3hB05xFV8) | [下载](../channels/simonegao/_CU3hB05xFV8.srt?raw=true) | [下载](../channels/simonegao/_CU3hB05xFV8.tw.srt?raw=true) | 
