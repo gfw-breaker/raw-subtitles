@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武汉封城,武汉肺炎的严重程度恐远超想象_2003年萨斯突然消失之谜(政论天下第92集 20200122)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UZukiGnWAqc) | [下载](../channels/tianliang/_UZukiGnWAqc.srt?raw=true) | [下载](../channels/tianliang/_UZukiGnWAqc.tw.srt?raw=true) | 
 | 武汉肺炎十二小时夺命,元宵节前后会否全国爆发(政论天下第91集 20200119)天亮时分 | [下载](https://y2mate.com/zh-cn/search/6OstahpDDDg) | [下载](../channels/tianliang/_6OstahpDDDg.srt?raw=true) | [下载](../channels/tianliang/_6OstahpDDDg.tw.srt?raw=true) | 
 | 吴花燕背后的慈善黑幕;黄菊的老婆余慧文,郭美美也干过这事 _ 吴花燕爱的是谁的国(政论天下第90集 20200119)天亮时分 | [下载](https://y2mate.com/zh-cn/search/i3VySEQH2_0) | [下载](../channels/tianliang/_i3VySEQH2_0.srt?raw=true) | [下载](../channels/tianliang/_i3VySEQH2_0.tw.srt?raw=true) | 
 | 中美签署贸易协定,习近平自己为啥不来执行机制可能毁掉整个协议_川普对第二阶段时间表为何摇摆(政论天下第89集 20200116)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ZYCdpHKXdG4) | [下载](../channels/tianliang/_ZYCdpHKXdG4.srt?raw=true) | [下载](../channels/tianliang/_ZYCdpHKXdG4.tw.srt?raw=true) | 
