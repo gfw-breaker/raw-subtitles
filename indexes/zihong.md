@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武汉肺炎1月底扩散人数达到8万人，武汉封城空军出动撒播消毒粉，中国楼市将何种走势（上） | [下载](https://y2mate.com/zh-cn/search/jv6k3NZd1hM) | [下载](../channels/zihong/_jv6k3NZd1hM.srt?raw=true) | [下载](../channels/zihong/_jv6k3NZd1hM.tw.srt?raw=true) | 
 | 惊爆！！！威力比SARS大十倍的武汉肺炎要引爆中国经济，香港患者暴增109例，台湾疫情异常危险。。。 | [下载](https://y2mate.com/zh-cn/search/bRMBnTUnkb8) | [下载](../channels/zihong/_bRMBnTUnkb8.srt?raw=true) | [下载](../channels/zihong/_bRMBnTUnkb8.tw.srt?raw=true) | 
 | 香港的临时政府宣言吹响了中共倒台的号角，乙亥革命即将展开？中共下一步要如何对付香港 | [下载](https://y2mate.com/zh-cn/search/1oJXB6AHwKw) | [下载](../channels/zihong/_1oJXB6AHwKw.srt?raw=true) | [下载](../channels/zihong/_1oJXB6AHwKw.tw.srt?raw=true) | 
 | 注意，中国经济又一次到了引进外资才能存活的地步！PAYPAL进入中国是福还是祸？靠PAYPAL能转移人民币出境吗 | [下载](https://y2mate.com/zh-cn/search/jkFSFHvHqhY) | [下载](../channels/zihong/_jkFSFHvHqhY.srt?raw=true) | [下载](../channels/zihong/_jkFSFHvHqhY.tw.srt?raw=true) | 
