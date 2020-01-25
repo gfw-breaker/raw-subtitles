@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武漢肺炎封城扩至湖北八市！武漢病患哭求救命、医护人员情绪激动，党媒继续过年！（老北京茶馆_第231集_2020_01_23） | [下载](https://y2mate.com/zh-cn/search/VJeheQLGlwM) | [下载](../channels/teahouse/_VJeheQLGlwM.srt?raw=true) | [下载](../channels/teahouse/_VJeheQLGlwM.tw.srt?raw=true) | 
 | 武漢肺炎爆发后武漢封城！中国外国反应对比！重大消息来自民间！武漢疫情自救紧急包！（老北京茶馆_第230集_2020_01_22） | [下载](https://y2mate.com/zh-cn/search/mSf6j5NnWLM) | [下载](../channels/teahouse/_mSf6j5NnWLM.srt?raw=true) | [下载](../channels/teahouse/_mSf6j5NnWLM.tw.srt?raw=true) | 
 | 李子柒现实版！天子脚下新年第一拆：果庄村山居别墅被清空！党，你还我诗意远方！（老北京茶馆_第229集_2020_01_17） | [下载](https://y2mate.com/zh-cn/search/snWEmy9cic4) | [下载](../channels/teahouse/_snWEmy9cic4.srt?raw=true) | [下载](../channels/teahouse/_snWEmy9cic4.tw.srt?raw=true) | 
 | 中美签署第一阶段贸易协议！43斤女大学生吴花燕爱国，倒不完茅台酒的副省长也爱国（老北京茶馆_第228集_2020_01_15） | [下载](https://y2mate.com/zh-cn/search/7CRmvK0pRMQ) | [下载](../channels/teahouse/_7CRmvK0pRMQ.srt?raw=true) | [下载](../channels/teahouse/_7CRmvK0pRMQ.tw.srt?raw=true) | 

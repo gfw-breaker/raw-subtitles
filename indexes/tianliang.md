@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武汉肺炎病毒变异,人突然倒地毙命,传染性暴增,北京市是否会重蹈武汉覆辙(政论天下第93集 20200124)天亮时分 | [下载](https://y2mate.com/zh-cn/search/NQL6WjCLZEg) | [下载](../channels/tianliang/_NQL6WjCLZEg.srt?raw=true) | [下载](../channels/tianliang/_NQL6WjCLZEg.tw.srt?raw=true) | 
+| 新年特别节目 -说说古代的钱币(史海扬帆第15集 20200124)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_VOyvVjNBY0) | [下载](../channels/tianliang/__VOyvVjNBY0.srt?raw=true) | [下载](../channels/tianliang/__VOyvVjNBY0.tw.srt?raw=true) | 
 | 武汉肺炎,八城市封城,效果恐适得其反 -这招儿对付肺炎或许管用,从埃及和古罗马的大瘟疫说起(史海扬帆第14集 20200123)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ofOU4C-ljWk) | [下载](../channels/tianliang/_ofOU4C-ljWk.srt?raw=true) | [下载](../channels/tianliang/_ofOU4C-ljWk.tw.srt?raw=true) | 
 | 武汉封城,武汉肺炎的严重程度恐远超想象_2003年萨斯突然消失之谜(政论天下第92集 20200122)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UZukiGnWAqc) | [下载](../channels/tianliang/_UZukiGnWAqc.srt?raw=true) | [下载](../channels/tianliang/_UZukiGnWAqc.tw.srt?raw=true) | 
 | 武汉肺炎十二小时夺命,元宵节前后会否全国爆发(政论天下第91集 20200119)天亮时分 | [下载](https://y2mate.com/zh-cn/search/6OstahpDDDg) | [下载](../channels/tianliang/_6OstahpDDDg.srt?raw=true) | [下载](../channels/tianliang/_6OstahpDDDg.tw.srt?raw=true) | 
