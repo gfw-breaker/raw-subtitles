@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武汉确诊患者已经停止统计，接下来两周武汉，上海，北京怎么走 | [下载](https://y2mate.com/zh-cn/search/TARLZNNbdWY) | [下载](../channels/zihong/_TARLZNNbdWY.srt?raw=true) | [下载](../channels/zihong/_TARLZNNbdWY.tw.srt?raw=true) | 
 | 武汉肺炎被关进火神山医院后的遭遇...中国房地产和人民币核弹级别大崩溃 | [下载](https://y2mate.com/zh-cn/search/ZeVWi0pE38M) | [下载](../channels/zihong/_ZeVWi0pE38M.srt?raw=true) | [下载](../channels/zihong/_ZeVWi0pE38M.tw.srt?raw=true) | 
 | 武汉肺炎1月底扩散人数达到8万人，武汉封城空军出动撒播消毒粉，中国楼市将何种走势（上） | [下载](https://y2mate.com/zh-cn/search/jv6k3NZd1hM) | [下载](../channels/zihong/_jv6k3NZd1hM.srt?raw=true) | [下载](../channels/zihong/_jv6k3NZd1hM.tw.srt?raw=true) | 
 | 惊爆！！！威力比SARS大十倍的武汉肺炎要引爆中国经济，香港患者暴增109例，台湾疫情异常危险。。。 | [下载](https://y2mate.com/zh-cn/search/bRMBnTUnkb8) | [下载](../channels/zihong/_bRMBnTUnkb8.srt?raw=true) | [下载](../channels/zihong/_bRMBnTUnkb8.tw.srt?raw=true) | 
