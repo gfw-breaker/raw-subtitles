@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武漢肺炎封口令：传谣者拘留判刑！谣言分类集萃来啦！拦不住病毒，还拦不住你的嘴！（老北京茶馆_第234集_2020_01_27） | [下载](https://y2mate.com/zh-cn/search/ZpvmQI_5vWA) | [下载](../channels/teahouse/_ZpvmQI_5vWA.srt?raw=true) | [下载](../channels/teahouse/_ZpvmQI_5vWA.tw.srt?raw=true) | 
 | 北京封城启动？武漢肺炎直击：领导消失！陈秋实疫区走访，中共：不接受境外援助！（老北京茶馆_第233集_2020_01_26） | [下载](https://y2mate.com/zh-cn/search/-Hbr6D8C7nw) | [下载](../channels/teahouse/_-Hbr6D8C7nw.srt?raw=true) | [下载](../channels/teahouse/_-Hbr6D8C7nw.tw.srt?raw=true) | 
 | 刘卓李正出镜拜年！2020新年特别节目：回顾与展望，您的金鼠年，和自由尊严结伴同行吧！（老北京茶馆_第232集_2020_01_24） | [下载](https://y2mate.com/zh-cn/search/TXlDucI1vHE) | [下载](../channels/teahouse/_TXlDucI1vHE.srt?raw=true) | [下载](../channels/teahouse/_TXlDucI1vHE.tw.srt?raw=true) | 
 | 武漢肺炎封城扩至湖北八市！武漢病患哭求救命、医护人员情绪激动，党媒继续过年！（老北京茶馆_第231集_2020_01_23） | [下载](https://y2mate.com/zh-cn/search/VJeheQLGlwM) | [下载](../channels/teahouse/_VJeheQLGlwM.srt?raw=true) | [下载](../channels/teahouse/_VJeheQLGlwM.tw.srt?raw=true) | 
