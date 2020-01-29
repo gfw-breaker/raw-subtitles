@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武汉肺炎伪装躲过检测;病毒不止一种,毒源不止一个_亡党威胁隐现(政论天下第96集 20200128)天亮时分 | [下载](https://y2mate.com/zh-cn/search/tBLioSXF4jI) | [下载](../channels/tianliang/_tBLioSXF4jI.srt?raw=true) | [下载](../channels/tianliang/_tBLioSXF4jI.tw.srt?raw=true) | 
 | 武汉肺炎六月才达高潮,军队中招儿,京沪渝危急_注意这个疫情领导小组的副组长(政论天下第95集 20200127)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ouUrGLYmeKM) | [下载](../channels/tianliang/_ouUrGLYmeKM.srt?raw=true) | [下载](../channels/tianliang/_ouUrGLYmeKM.tw.srt?raw=true) | 
 | 上海成武汉肺炎的第二大疫区,一级响应影响13亿人(政论天下第94集 20200126)天亮时分 | [下载](https://y2mate.com/zh-cn/search/4Iwc66MoO8E) | [下载](../channels/tianliang/_4Iwc66MoO8E.srt?raw=true) | [下载](../channels/tianliang/_4Iwc66MoO8E.tw.srt?raw=true) | 
 | 武汉肺炎病毒变异,人突然倒地毙命,传染性暴增,北京市是否会重蹈武汉覆辙(政论天下第93集 20200124)天亮时分 | [下载](https://y2mate.com/zh-cn/search/NQL6WjCLZEg) | [下载](../channels/tianliang/_NQL6WjCLZEg.srt?raw=true) | [下载](../channels/tianliang/_NQL6WjCLZEg.tw.srt?raw=true) | 
