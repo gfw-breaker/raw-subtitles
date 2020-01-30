@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 疫情趋势的中国经济通胀要来了；武汉消灭被传染者的方法，两座火炉开足马力 | [下载](https://y2mate.com/zh-cn/search/uAJWicIeEPE) | [下载](../channels/zihong/_uAJWicIeEPE.srt?raw=true) | [下载](../channels/zihong/_uAJWicIeEPE.tw.srt?raw=true) | 
 | 习近平民族危难时玩权术！李克强弱总理无奈走马上任！无症状传染者已出现 | [下载](https://y2mate.com/zh-cn/search/d4VaQNLkmPk) | [下载](../channels/zihong/_d4VaQNLkmPk.srt?raw=true) | [下载](../channels/zihong/_d4VaQNLkmPk.tw.srt?raw=true) | 
 | 武汉肺炎海外预测：2月8日前25万人传染，武汉医院内部通话曝光，无法少症状直接死亡的例子 | [下载](https://y2mate.com/zh-cn/search/X3cmuSoOdzw) | [下载](../channels/zihong/_X3cmuSoOdzw.srt?raw=true) | [下载](../channels/zihong/_X3cmuSoOdzw.tw.srt?raw=true) | 
 | 武汉确诊患者已经停止统计，接下来两周武汉，上海，北京怎么走 | [下载](https://y2mate.com/zh-cn/search/TARLZNNbdWY) | [下载](../channels/zihong/_TARLZNNbdWY.srt?raw=true) | [下载](../channels/zihong/_TARLZNNbdWY.tw.srt?raw=true) | 

@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| “中国人民的老朋友”哈佛纳米神经科学家Charles Lieber查尔斯利伯是否用活人大脑做過實驗 - 20200128 第73期 | [下载](https://y2mate.com/zh-cn/search/261DNDaRHPc) | [下载](../channels/yuchao/_261DNDaRHPc.srt?raw=true) | [下载](../channels/yuchao/_261DNDaRHPc.tw.srt?raw=true) | 
 | 在武汉瘟疫中如何挑选和使用口罩 - 20200127 第72期 | [下载](https://y2mate.com/zh-cn/search/EkFQsCinPrQ) | [下载](../channels/yuchao/_EkFQsCinPrQ.srt?raw=true) | [下载](../channels/yuchao/_EkFQsCinPrQ.tw.srt?raw=true) | 
 | 勇氣 恐懼 信念 - 20200120 第71期 | [下载](https://y2mate.com/zh-cn/search/pD_wWDGNNEQ) | [下载](../channels/yuchao/_pD_wWDGNNEQ.srt?raw=true) | [下载](../channels/yuchao/_pD_wWDGNNEQ.tw.srt?raw=true) | 
 | 天下皆知美之爲美——再談親子關係、孝 - 20191219 第70期 | [下载](https://y2mate.com/zh-cn/search/5aZWpOMxErY) | [下载](../channels/yuchao/_5aZWpOMxErY.srt?raw=true) | [下载](../channels/yuchao/_5aZWpOMxErY.tw.srt?raw=true) | 
