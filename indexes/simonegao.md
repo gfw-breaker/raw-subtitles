@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 生化武器专家认为中共没开发生物武器，原因出人意料；哈佛教授：肺炎疫苗四个月出，药物半年；患者家门被封，功利主义社会酿人间惨剧。 | [下载](https://y2mate.com/zh-cn/search/_ZlE-LURXQg) | [下载](../channels/simonegao/__ZlE-LURXQg.srt?raw=true) | [下载](../channels/simonegao/__ZlE-LURXQg.tw.srt?raw=true) | 
 | 美专家：中国病毒实验室为何泄漏机率高？仅次西班牙流感的世纪瘟疫 | [下载](https://y2mate.com/zh-cn/search/jjtQMB4VxCI) | [下载](../channels/simonegao/_jjtQMB4VxCI.srt?raw=true) | [下载](../channels/simonegao/_jjtQMB4VxCI.tw.srt?raw=true) | 
 | 第一階段協議，迫使中共簽的不是關稅， 是脫鉤。 | [下载](https://y2mate.com/zh-cn/search/SLdzrZQYW_Q) | [下载](../channels/simonegao/_SLdzrZQYW_Q.srt?raw=true) | [下载](../channels/simonegao/_SLdzrZQYW_Q.tw.srt?raw=true) | 
 | 臺灣大選是對中共的公投；美國支持臺灣有一個意想不到的原因； 彭斯和蓬佩奧為臺灣站臺為了什麽？（2019年12月29日，蕭茗看世界 第35期） | [下载](https://y2mate.com/zh-cn/search/gYz2D6lUhf0) | [下载](../channels/simonegao/_gYz2D6lUhf0.srt?raw=true) | [下载](../channels/simonegao/_gYz2D6lUhf0.tw.srt?raw=true) | 
