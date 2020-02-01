@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 世卫宣布全球卫生紧急状态！武汉肺炎疫情惊现次生灾害！持台湾护照被禁止回台湾！（老北京茶馆_第237集_2020_01_31） | [下载](https://y2mate.com/zh-cn/search/APg1MZR5Jb0) | [下载](../channels/teahouse/_APg1MZR5Jb0.srt?raw=true) | [下载](../channels/teahouse/_APg1MZR5Jb0.tw.srt?raw=true) | 
 | 武漢肺炎疫情真实数字流出？真相与谎言之间，只差了一个脚趾头的距离！（老北京茶馆_第236集_2020_01_30） | [下载](https://y2mate.com/zh-cn/search/5bOGvUX0QSs) | [下载](../channels/teahouse/_5bOGvUX0QSs.srt?raw=true) | [下载](../channels/teahouse/_5bOGvUX0QSs.tw.srt?raw=true) | 
 | 武漢人，在自己的祖国流浪……武漢肺炎纪实 之一：游走在生活边缘的武漢同胞（老北京茶馆_第235集_2020_01_28） | [下载](https://y2mate.com/zh-cn/search/MknK50263M4) | [下载](../channels/teahouse/_MknK50263M4.srt?raw=true) | [下载](../channels/teahouse/_MknK50263M4.tw.srt?raw=true) | 
 | 武漢肺炎封口令：传谣者拘留判刑！谣言分类集萃来啦！拦不住病毒，还拦不住你的嘴！（老北京茶馆_第234集_2020_01_27） | [下载](https://y2mate.com/zh-cn/search/ZpvmQI_5vWA) | [下载](../channels/teahouse/_ZpvmQI_5vWA.srt?raw=true) | [下载](../channels/teahouse/_ZpvmQI_5vWA.tw.srt?raw=true) | 
