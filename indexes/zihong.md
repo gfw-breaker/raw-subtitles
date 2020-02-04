@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 湖北集中四类人群入住集中营，2月3日返程开工酝酿更大危机，方斌和陈秋是同属一类？ | [下载](https://y2mate.com/zh-cn/search/7RaXOtmg7xk) | [下载](../channels/zihong/_7RaXOtmg7xk.srt?raw=true) | [下载](../channels/zihong/_7RaXOtmg7xk.tw.srt?raw=true) | 
 | 习近平调集军医入驻火神山，卫健委强制肺炎死者就地火化！武汉肺炎太强呼吸道消化神经全面攻击 | [下载](https://y2mate.com/zh-cn/search/LTkRzOG3rx8) | [下载](../channels/zihong/_LTkRzOG3rx8.srt?raw=true) | [下载](../channels/zihong/_LTkRzOG3rx8.tw.srt?raw=true) | 
 | 疫情趋势的中国经济通胀要来了；武汉消灭被传染者的方法，两座火炉开足马力 | [下载](https://y2mate.com/zh-cn/search/uAJWicIeEPE) | [下载](../channels/zihong/_uAJWicIeEPE.srt?raw=true) | [下载](../channels/zihong/_uAJWicIeEPE.tw.srt?raw=true) | 
 | 习近平民族危难时玩权术！李克强弱总理无奈走马上任！无症状传染者已出现 | [下载](https://y2mate.com/zh-cn/search/d4VaQNLkmPk) | [下载](../channels/zihong/_d4VaQNLkmPk.srt?raw=true) | [下载](../channels/zihong/_d4VaQNLkmPk.tw.srt?raw=true) | 

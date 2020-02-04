@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武漢肺炎疫情：火神山医院军管暗藏惊人秘密？武汉方斌勇士再陷隔离险情！新浪报道治肺炎美国神奇药方？ | [下载](https://y2mate.com/zh-cn/search/idwGHh4zJxo) | [下载](../channels/teahouse/_idwGHh4zJxo.srt?raw=true) | [下载](../channels/teahouse/_idwGHh4zJxo.tw.srt?raw=true) | 
 | 美國封关！武漢疫情下，党的目标泄露：解决全部武汉人？党来信：老乡，请花光你的钱再走！（老北京茶馆_第238集_2020_02_01） | [下载](https://y2mate.com/zh-cn/search/yUP0zvlSgFQ) | [下载](../channels/teahouse/_yUP0zvlSgFQ.srt?raw=true) | [下载](../channels/teahouse/_yUP0zvlSgFQ.tw.srt?raw=true) | 
 | 世卫宣布全球卫生紧急状态！武汉肺炎疫情惊现次生灾害！持台湾护照被禁止回台湾！（老北京茶馆_第237集_2020_01_31） | [下载](https://y2mate.com/zh-cn/search/APg1MZR5Jb0) | [下载](../channels/teahouse/_APg1MZR5Jb0.srt?raw=true) | [下载](../channels/teahouse/_APg1MZR5Jb0.tw.srt?raw=true) | 
 | 武漢肺炎疫情真实数字流出？真相与谎言之间，只差了一个脚趾头的距离！（老北京茶馆_第236集_2020_01_30） | [下载](https://y2mate.com/zh-cn/search/5bOGvUX0QSs) | [下载](../channels/teahouse/_5bOGvUX0QSs.srt?raw=true) | [下载](../channels/teahouse/_5bOGvUX0QSs.tw.srt?raw=true) | 
