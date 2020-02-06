@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 弹劾川普失败,议长佩洛西当众撕掉川普的国情咨文讲稿,美国为何如此分裂(政论天下第103集 20200205)天亮时分 | [下载](https://y2mate.com/zh-cn/search/0Xd4RTxCT-0) | [下载](../channels/tianliang/_0Xd4RTxCT-0.srt?raw=true) | [下载](../channels/tianliang/_0Xd4RTxCT-0.tw.srt?raw=true) | 
 | 杭州、南京、郑州、哈尔滨等发封闭小区禁令，武汉突建方舱医院，新增万余床位透露了什么？政治局开会，十二分钟报道无一常委露面（政论天下第102集 20200204）天亮时分 | [下载](https://y2mate.com/zh-cn/search/ZMznRo4SkBw) | [下载](../channels/tianliang/_ZMznRo4SkBw.srt?raw=true) | [下载](../channels/tianliang/_ZMznRo4SkBw.tw.srt?raw=true) | 
 | 武汉肺炎面前的道德困境，以及解决办法（哲思心语第6集 20200202）天亮时分 | [下载](https://y2mate.com/zh-cn/search/a1_B4fnZtQM) | [下载](../channels/tianliang/_a1_B4fnZtQM.srt?raw=true) | [下载](../channels/tianliang/_a1_B4fnZtQM.tw.srt?raw=true) | 
 | 武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人 (政论天下第101集 20200203)天亮时分 | [下载](https://y2mate.com/zh-cn/search/otwVoNuMv8o) | [下载](../channels/tianliang/_otwVoNuMv8o.srt?raw=true) | [下载](../channels/tianliang/_otwVoNuMv8o.tw.srt?raw=true) | 
