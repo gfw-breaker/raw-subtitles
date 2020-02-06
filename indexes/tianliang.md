@@ -4,8 +4,8 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 杭州、南京、郑州、哈尔滨等发封闭小区禁令，武汉突建方舱医院，新增万余床位透露了什么？政治局开会，十二分钟报道无一常委露面（政论天下第102集 20200204）天亮时分 | [下载](https://y2mate.com/zh-cn/search/ZMznRo4SkBw) | [下载](../channels/tianliang/_ZMznRo4SkBw.srt?raw=true) | [下载](../channels/tianliang/_ZMznRo4SkBw.tw.srt?raw=true) | 
+| 武汉肺炎面前的道德困境，以及解决办法（哲思心语第6集 20200202）天亮时分 | [下载](https://y2mate.com/zh-cn/search/a1_B4fnZtQM) | [下载](../channels/tianliang/_a1_B4fnZtQM.srt?raw=true) | [下载](../channels/tianliang/_a1_B4fnZtQM.tw.srt?raw=true) | 
 | 武汉肺炎感染率，法国侨民为13.8%；钟南山：远未到高潮；为什么我们不该惩罚说真话的人 (政论天下第101集 20200203)天亮时分 | [下载](https://y2mate.com/zh-cn/search/otwVoNuMv8o) | [下载](../channels/tianliang/_otwVoNuMv8o.srt?raw=true) | [下载](../channels/tianliang/_otwVoNuMv8o.tw.srt?raw=true) | 
-| 武汉肺炎引起温州骚乱；大疫面前的道德困境，以及解决办法（哲思心语第6集 20200202）天亮时分 | [下载](https://y2mate.com/zh-cn/search/a1_B4fnZtQM) | [下载](../channels/tianliang/_a1_B4fnZtQM.srt?raw=true) | [下载](../channels/tianliang/_a1_B4fnZtQM.tw.srt?raw=true) | 
 | 美国全面对华封关，澳洲跟进；美国找到了对付武汉肺炎的方法？武汉肺炎病毒是否人造？复工在即，中共拿命跟病毒赌（政论天下第100集 20200201）天亮时分 | [下载](https://y2mate.com/zh-cn/search/4VfWwfF5BfA) | [下载](../channels/tianliang/_4VfWwfF5BfA.srt?raw=true) | [下载](../channels/tianliang/_4VfWwfF5BfA.tw.srt?raw=true) | 
 | 武汉肺炎二次爆发迫在眉睫？美国将中国旅游警示提至最高级_多国彻底断航(政论天下第99集 20200131)天亮时分 | [下载](https://y2mate.com/zh-cn/search/In1gRFZGRFc) | [下载](../channels/tianliang/_In1gRFZGRFc.srt?raw=true) | [下载](../channels/tianliang/_In1gRFZGRFc.tw.srt?raw=true) | 
 | 撤侨与断航,武汉封城还要多久到底死了多少人(政论天下第97集 20200129)天亮时分 | [下载](https://y2mate.com/zh-cn/search/FnWLAo1IDzc) | [下载](../channels/tianliang/_FnWLAo1IDzc.srt?raw=true) | [下载](../channels/tianliang/_FnWLAo1IDzc.tw.srt?raw=true) | 
