@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 庚子年，我在武漢當醫生……武漢肺炎紀實之二：李文亮和他的同事，在死神身邊起舞的人（老北京茶館_第241集_2020_02_07） | [下载](https://y2mate.com/zh-cn/search/0yKFM1I9-q4) | [下载](../channels/teahouse/_0yKFM1I9-q4.srt?raw=true) | [下载](../channels/teahouse/_0yKFM1I9-q4.tw.srt?raw=true) | 
 | 武漢肺炎肆虐，习近平哪去了？外交部华春莹说漏嘴泄秘密！封城时代宅家最优方案！（老北京茶馆_第240集_2020_02_04） | [下载](https://y2mate.com/zh-cn/search/kbwvcn5dpHo) | [下载](../channels/teahouse/_kbwvcn5dpHo.srt?raw=true) | [下载](../channels/teahouse/_kbwvcn5dpHo.tw.srt?raw=true) | 
 | 武漢肺炎疫情：火神山医院军管暗藏惊人秘密？武汉方斌勇士再陷隔离险情！新浪报道治肺炎美国神奇药方？ | [下载](https://y2mate.com/zh-cn/search/idwGHh4zJxo) | [下载](../channels/teahouse/_idwGHh4zJxo.srt?raw=true) | [下载](../channels/teahouse/_idwGHh4zJxo.tw.srt?raw=true) | 
 | 美國封关！武漢疫情下，党的目标泄露：解决全部武汉人？党来信：老乡，请花光你的钱再走！（老北京茶馆_第238集_2020_02_01） | [下载](https://y2mate.com/zh-cn/search/yUP0zvlSgFQ) | [下载](../channels/teahouse/_yUP0zvlSgFQ.srt?raw=true) | [下载](../channels/teahouse/_yUP0zvlSgFQ.tw.srt?raw=true) | 
