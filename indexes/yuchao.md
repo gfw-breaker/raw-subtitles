@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武漢瘟疫，天譴，救命的辦法 - 20200208 第76期 | [下载](https://y2mate.com/zh-cn/search/8crPOuTGnJ8) | [下载](../channels/yuchao/_8crPOuTGnJ8.srt?raw=true) | [下载](../channels/yuchao/_8crPOuTGnJ8.tw.srt?raw=true) | 
 | 社會失序下道德與倫理的抉擇 - 20200131 第75期 | [下载](https://y2mate.com/zh-cn/search/zpf9yLzSFhI) | [下载](../channels/yuchao/_zpf9yLzSFhI.srt?raw=true) | [下载](../channels/yuchao/_zpf9yLzSFhI.tw.srt?raw=true) | 
 | 社會失序下如何應對的思考 - 20200130 第74期 | [下载](https://y2mate.com/zh-cn/search/qaQZRvBF6pM) | [下载](../channels/yuchao/_qaQZRvBF6pM.srt?raw=true) | [下载](../channels/yuchao/_qaQZRvBF6pM.tw.srt?raw=true) | 
 | “中国人民的老朋友”哈佛纳米神经科学家Charles Lieber查尔斯利伯是否用活人大脑做過實驗 - 20200128 第73期 | [下载](https://y2mate.com/zh-cn/search/261DNDaRHPc) | [下载](../channels/yuchao/_261DNDaRHPc.srt?raw=true) | [下载](../channels/yuchao/_261DNDaRHPc.tw.srt?raw=true) | 
