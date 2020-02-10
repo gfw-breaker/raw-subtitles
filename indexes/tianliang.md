@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 一个修行人对疫情的反思和避难之道(哲思心语第7集 20200209)天亮时分 | [下载](https://y2mate.com/zh-cn/search/KzSvhOHPxB4) | [下载](../channels/tianliang/_KzSvhOHPxB4.srt?raw=true) | [下载](../channels/tianliang/_KzSvhOHPxB4.tw.srt?raw=true) | 
 | 今年中国经济受到的影响可能有多大？（政论天下第107集 20200208）天亮时分 | [下载](https://y2mate.com/zh-cn/search/DFexSf3EI1M) | [下载](../channels/tianliang/_DFexSf3EI1M.srt?raw=true) | [下载](../channels/tianliang/_DFexSf3EI1M.tw.srt?raw=true) | 
 | 广州与深圳封城,北京复兴医院群聚性感染，两会是个重要的时间点;孙春兰亲自督阵,武汉开始地毯式排查,四个角度讨论该策略是否会奏效？(政论天下第106集 20200207)天亮时分 | [下载](https://y2mate.com/zh-cn/search/j60FAY0UeEs) | [下载](../channels/tianliang/_j60FAY0UeEs.srt?raw=true) | [下载](../channels/tianliang/_j60FAY0UeEs.tw.srt?raw=true) | 
 | 李文亮是否是个英雄？(政论天下第105集 20200207)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DLpOZzTSGfY) | [下载](../channels/tianliang/_DLpOZzTSGfY.srt?raw=true) | [下载](../channels/tianliang/_DLpOZzTSGfY.tw.srt?raw=true) | 
