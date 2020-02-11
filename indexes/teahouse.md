@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 疫情拐点没来！武漢方斌被抓！潜伏期变24天！北京封城上海紧跟？五毛反美遭拘留电视认罪！（老北京茶館_第243集_2020_02_10） | [下载](https://y2mate.com/zh-cn/search/xT8yH1oi51A) | [下载](../channels/teahouse/_xT8yH1oi51A.srt?raw=true) | [下载](../channels/teahouse/_xT8yH1oi51A.tw.srt?raw=true) | 
 | 白宫突然调查武漢肺炎源头！陈秋实遭隔离！李文亮去世党国如临大敌！云南抓5医生！（老北京茶館_第242集_2020_02_09） | [下载](https://y2mate.com/zh-cn/search/HqWoc3p-3jY) | [下载](../channels/teahouse/_HqWoc3p-3jY.srt?raw=true) | [下载](../channels/teahouse/_HqWoc3p-3jY.tw.srt?raw=true) | 
 | 庚子年，我在武漢當醫生……武漢肺炎紀實之二：李文亮和他的同事，在死神身邊起舞的人（老北京茶館_第241集_2020_02_07） | [下载](https://y2mate.com/zh-cn/search/0yKFM1I9-q4) | [下载](../channels/teahouse/_0yKFM1I9-q4.srt?raw=true) | [下载](../channels/teahouse/_0yKFM1I9-q4.tw.srt?raw=true) | 
 | 武漢肺炎肆虐，习近平哪去了？外交部华春莹说漏嘴泄秘密！封城时代宅家最优方案！（老北京茶馆_第240集_2020_02_04） | [下载](https://y2mate.com/zh-cn/search/kbwvcn5dpHo) | [下载](../channels/teahouse/_kbwvcn5dpHo.srt?raw=true) | [下载](../channels/teahouse/_kbwvcn5dpHo.tw.srt?raw=true) | 
