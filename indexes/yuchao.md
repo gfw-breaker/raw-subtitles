@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 歲月靜好兩腳羊；清晰的言語與思路以策安全 - 20200211 第78期 | [下载](https://y2mate.com/zh-cn/search/jfx-EALvPuI) | [下载](../channels/yuchao/_jfx-EALvPuI.srt?raw=true) | [下载](../channels/yuchao/_jfx-EALvPuI.tw.srt?raw=true) | 
 | 武漢瘟疫是中共鎮壓法輪功的報應；谷歌打壓批評中共的內容；如何決定是否支持貌似反共的名人 - 20200210 第77期 | [下载](https://y2mate.com/zh-cn/search/IsiGcaYN8Zw) | [下载](../channels/yuchao/_IsiGcaYN8Zw.srt?raw=true) | [下载](../channels/yuchao/_IsiGcaYN8Zw.tw.srt?raw=true) | 
 | 武漢瘟疫，天譴，救命的辦法 - 20200208 第76期 | [下载](https://y2mate.com/zh-cn/search/8crPOuTGnJ8) | [下载](../channels/yuchao/_8crPOuTGnJ8.srt?raw=true) | [下载](../channels/yuchao/_8crPOuTGnJ8.tw.srt?raw=true) | 
 | 社會失序下道德與倫理的抉擇 - 20200131 第75期 | [下载](https://y2mate.com/zh-cn/search/zpf9yLzSFhI) | [下载](../channels/yuchao/_zpf9yLzSFhI.srt?raw=true) | [下载](../channels/yuchao/_zpf9yLzSFhI.tw.srt?raw=true) | 
