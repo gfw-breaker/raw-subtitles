@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 两会如期召开,而且不戴口罩 想“让领导先走”？ (政论天下第110集 20200212)天亮时分 | [下载](https://y2mate.com/zh-cn/search/l2X0rpc6vsE) | [下载](../channels/tianliang/_l2X0rpc6vsE.srt?raw=true) | [下载](../channels/tianliang/_l2X0rpc6vsE.tw.srt?raw=true) | 
 | 习近平强令复工的政治和经济考量，从秦始皇那里可以找到答案。（政论天下第109集 20200211）天亮时分 | [下载](https://y2mate.com/zh-cn/search/NlzaUygJht8) | [下载](../channels/tianliang/_NlzaUygJht8.srt?raw=true) | [下载](../channels/tianliang/_NlzaUygJht8.tw.srt?raw=true) | 
 | 方斌与陈秋实被抓;北京上海封闭式管理,疫情拐点何时方至对武汉疫情的分析(政论天下第108集 20200210)天亮时分 | [下载](https://y2mate.com/zh-cn/search/zXHa9aXVNSA) | [下载](../channels/tianliang/_zXHa9aXVNSA.srt?raw=true) | [下载](../channels/tianliang/_zXHa9aXVNSA.tw.srt?raw=true) | 
 | 一个修行人对疫情的反思和避难之道(哲思心语第7集 20200209)天亮时分 | [下载](https://y2mate.com/zh-cn/search/KzSvhOHPxB4) | [下载](../channels/tianliang/_KzSvhOHPxB4.srt?raw=true) | [下载](../channels/tianliang/_KzSvhOHPxB4.tw.srt?raw=true) | 
