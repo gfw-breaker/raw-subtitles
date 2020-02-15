@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 重磅！南開大學論文揭開神秘的人工基因剪輯細節！北京喊大仗來臨！情人節穿幫戲演砸了？（老北京茶館_第247集_2020_02_14） | [下载](https://y2mate.com/zh-cn/search/i9FqCk4-Ytw) | [下载](../channels/teahouse/_i9FqCk4-Ytw.srt?raw=true) | [下载](../channels/teahouse/_i9FqCk4-Ytw.tw.srt?raw=true) | 
 | 替罪羊出笼？武汉病毒所石正丽难脱罪，党补关键一刀！武汉肺炎来历揭晓，真凶隐匿！（老北京茶館_第246集_2020_02_13） | [下载](https://y2mate.com/zh-cn/search/xDZQCXjRK20) | [下载](../channels/teahouse/_xDZQCXjRK20.srt?raw=true) | [下载](../channels/teahouse/_xDZQCXjRK20.tw.srt?raw=true) | 
 | 中共三军起疫！真男儿戴错口罩！蔡英文喊话习：别绕台了，快隔离去！李文亮同事集体崩溃！（老北京茶館_第245集_2020_02_12） | [下载](https://y2mate.com/zh-cn/search/D_M81qGFHYE) | [下载](../channels/teahouse/_D_M81qGFHYE.srt?raw=true) | [下载](../channels/teahouse/_D_M81qGFHYE.tw.srt?raw=true) | 
 | 武漢肺炎病毒突变！潜伏期42天！方斌被抓后，习出来招手！武漢放弃百步亭？（老北京茶館_第244集_2020_02_11） | [下载](https://y2mate.com/zh-cn/search/3BmGLtJEwZ0) | [下载](../channels/teahouse/_3BmGLtJEwZ0.srt?raw=true) | [下载](../channels/teahouse/_3BmGLtJEwZ0.tw.srt?raw=true) | 
