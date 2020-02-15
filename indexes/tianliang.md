@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习中央正失去权威,中共各级地方政权还能撑多久社会维系需要这四项流动(政论天下第112集 20200214)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mb4HXKOyb2w) | [下载](../channels/tianliang/_mb4HXKOyb2w.srt?raw=true) | [下载](../channels/tianliang/_mb4HXKOyb2w.tw.srt?raw=true) | 
 | FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集 20200213)天亮时分 | [下载](https://y2mate.com/zh-cn/search/XZRuCsec6kE) | [下载](../channels/tianliang/_XZRuCsec6kE.srt?raw=true) | [下载](../channels/tianliang/_XZRuCsec6kE.tw.srt?raw=true) | 
 | 两会如期召开,而且不戴口罩 想“让领导先走”？ (政论天下第110集 20200212)天亮时分 | [下载](https://y2mate.com/zh-cn/search/l2X0rpc6vsE) | [下载](../channels/tianliang/_l2X0rpc6vsE.srt?raw=true) | [下载](../channels/tianliang/_l2X0rpc6vsE.tw.srt?raw=true) | 
 | 习近平强令复工的政治和经济考量，从秦始皇那里可以找到答案。（政论天下第109集 20200211）天亮时分 | [下载](https://y2mate.com/zh-cn/search/NlzaUygJht8) | [下载](../channels/tianliang/_NlzaUygJht8.srt?raw=true) | [下载](../channels/tianliang/_NlzaUygJht8.tw.srt?raw=true) | 
