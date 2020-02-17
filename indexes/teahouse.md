@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 華春瑩領銜造反？習近平發威整肅官場？導演和頂尖教授接連死亡，武漢女義士怒吼！（老北京茶館_第248集_2020_02_16） | [下载](https://y2mate.com/zh-cn/search/sEVlHScoBGU) | [下载](../channels/teahouse/_sEVlHScoBGU.srt?raw=true) | [下载](../channels/teahouse/_sEVlHScoBGU.tw.srt?raw=true) | 
 | 重磅！南開大學論文揭開神秘的人工基因剪輯細節！北京喊大仗來臨！情人節穿幫戲演砸了？（老北京茶館_第247集_2020_02_14） | [下载](https://y2mate.com/zh-cn/search/i9FqCk4-Ytw) | [下载](../channels/teahouse/_i9FqCk4-Ytw.srt?raw=true) | [下载](../channels/teahouse/_i9FqCk4-Ytw.tw.srt?raw=true) | 
 | 替罪羊出笼？武汉病毒所石正丽难脱罪，党补关键一刀！武汉肺炎来历揭晓，真凶隐匿！（老北京茶館_第246集_2020_02_13） | [下载](https://y2mate.com/zh-cn/search/xDZQCXjRK20) | [下载](../channels/teahouse/_xDZQCXjRK20.srt?raw=true) | [下载](../channels/teahouse/_xDZQCXjRK20.tw.srt?raw=true) | 
 | 中共三军起疫！真男儿戴错口罩！蔡英文喊话习：别绕台了，快隔离去！李文亮同事集体崩溃！（老北京茶館_第245集_2020_02_12） | [下载](https://y2mate.com/zh-cn/search/D_M81qGFHYE) | [下载](../channels/teahouse/_D_M81qGFHYE.srt?raw=true) | [下载](../channels/teahouse/_D_M81qGFHYE.tw.srt?raw=true) | 
