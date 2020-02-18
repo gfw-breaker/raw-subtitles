@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 死亡後的人道災難——昨天是法輪功，今天可能就是你 - 20200217 第81期 | [下载](https://y2mate.com/zh-cn/search/-hQ1IVFSUA0) | [下载](../channels/yuchao/_-hQ1IVFSUA0.srt?raw=true) | [下载](../channels/yuchao/_-hQ1IVFSUA0.tw.srt?raw=true) | 
 | 武漢瘟疫、戰時管制情形下，如何生存 - 20200215 第80期 | [下载](https://y2mate.com/zh-cn/search/wi8eYGuSviQ) | [下载](../channels/yuchao/_wi8eYGuSviQ.srt?raw=true) | [下载](../channels/yuchao/_wi8eYGuSviQ.tw.srt?raw=true) | 
 | 覺醒與懺悔；以打擊親共華人在排華中自保 - 20200212 第79期 | [下载](https://y2mate.com/zh-cn/search/Ad0gmI6f-fw) | [下载](../channels/yuchao/_Ad0gmI6f-fw.srt?raw=true) | [下载](../channels/yuchao/_Ad0gmI6f-fw.tw.srt?raw=true) | 
 | 歲月靜好兩腳羊；清晰的言語與思路以策安全 - 20200211 第78期 | [下载](https://y2mate.com/zh-cn/search/jfx-EALvPuI) | [下载](../channels/yuchao/_jfx-EALvPuI.srt?raw=true) | [下载](../channels/yuchao/_jfx-EALvPuI.tw.srt?raw=true) | 
