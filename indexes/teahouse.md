@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 孝感造反！40台移動火化爐驚現武漢！黨抗疫新招：軟禁許章潤！武漢女實錘：這是社會主義肺炎！（老北京茶館_第250集_2020_02_18） | [下载](https://y2mate.com/zh-cn/search/mx6uEPIkwO0) | [下载](../channels/teahouse/_mx6uEPIkwO0.srt?raw=true) | [下载](../channels/teahouse/_mx6uEPIkwO0.tw.srt?raw=true) | 
+| 俠女金燕杠上習近平！北京封鎖八大胡同！殯儀館頻鬧鬼？防肺炎切記先防大腦炎！（老北京茶館_第249集_2020_02_18） | [下载](https://y2mate.com/zh-cn/search/KA15Y_p-14Y) | [下载](../channels/teahouse/_KA15Y_p-14Y.srt?raw=true) | [下载](../channels/teahouse/_KA15Y_p-14Y.tw.srt?raw=true) | 
 | 華春瑩領銜造反？習近平發威整肅官場？導演和頂尖教授接連死亡，武漢女義士怒吼！（老北京茶館_第248集_2020_02_16） | [下载](https://y2mate.com/zh-cn/search/sEVlHScoBGU) | [下载](../channels/teahouse/_sEVlHScoBGU.srt?raw=true) | [下载](../channels/teahouse/_sEVlHScoBGU.tw.srt?raw=true) | 
 | 重磅！南開大學論文揭開神秘的人工基因剪輯細節！北京喊大仗來臨！情人節穿幫戲演砸了？（老北京茶館_第247集_2020_02_14） | [下载](https://y2mate.com/zh-cn/search/i9FqCk4-Ytw) | [下载](../channels/teahouse/_i9FqCk4-Ytw.srt?raw=true) | [下载](../channels/teahouse/_i9FqCk4-Ytw.tw.srt?raw=true) | 
 | 替罪羊出笼？武汉病毒所石正丽难脱罪，党补关键一刀！武汉肺炎来历揭晓，真凶隐匿！（老北京茶館_第246集_2020_02_13） | [下载](https://y2mate.com/zh-cn/search/xDZQCXjRK20) | [下载](../channels/teahouse/_xDZQCXjRK20.srt?raw=true) | [下载](../channels/teahouse/_xDZQCXjRK20.tw.srt?raw=true) | 

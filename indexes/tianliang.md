@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 两会推迟与强制复工,习近平的豪赌;三月初是一个重要的观察点(政论天下第115集 20200218)天亮时分 | [下载](https://y2mate.com/zh-cn/search/r_0DyGOGdnY) | [下载](../channels/tianliang/_r_0DyGOGdnY.srt?raw=true) | [下载](../channels/tianliang/_r_0DyGOGdnY.tw.srt?raw=true) | 
+| 各地宵禁封门,再谈“应收尽收”与“不惜一切代价”的道德困境(政论天下第114集 20200217)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CAJ8hUCGD0s) | [下载](../channels/tianliang/_CAJ8hUCGD0s.srt?raw=true) | [下载](../channels/tianliang/_CAJ8hUCGD0s.tw.srt?raw=true) | 
 | 习近平1月7日做了什么防控指示中共在向北韩学习应对方法(政论天下第113集 20200215)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_p18shRXMRY) | [下载](../channels/tianliang/__p18shRXMRY.srt?raw=true) | [下载](../channels/tianliang/__p18shRXMRY.tw.srt?raw=true) | 
 | 习中央正失去权威,中共各级地方政权还能撑多久社会维系需要这四项流动(政论天下第112集 20200214)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mb4HXKOyb2w) | [下载](../channels/tianliang/_mb4HXKOyb2w.srt?raw=true) | [下载](../channels/tianliang/_mb4HXKOyb2w.tw.srt?raw=true) | 
 | FBI特别小组调查中共渗透,高科技公司无法例外(政论天下第111集 20200213)天亮时分 | [下载](https://y2mate.com/zh-cn/search/XZRuCsec6kE) | [下载](../channels/tianliang/_XZRuCsec6kE.srt?raw=true) | [下载](../channels/tianliang/_XZRuCsec6kE.tw.srt?raw=true) | 
