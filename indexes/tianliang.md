@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 封城难阻逃生路,平均每天近万人逃离;对患者去库存与数据造假将酿成更严重后果;次生灾祸正在袭来(政论天下第116集 20200220)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_w_FWiPW4co) | [下载](../channels/tianliang/__w_FWiPW4co.srt?raw=true) | [下载](../channels/tianliang/__w_FWiPW4co.tw.srt?raw=true) | 
 | 两会推迟与强制复工,习近平的豪赌;三月初是一个重要的观察点(政论天下第115集 20200218)天亮时分 | [下载](https://y2mate.com/zh-cn/search/r_0DyGOGdnY) | [下载](../channels/tianliang/_r_0DyGOGdnY.srt?raw=true) | [下载](../channels/tianliang/_r_0DyGOGdnY.tw.srt?raw=true) | 
 | 各地宵禁封门,再谈“应收尽收”与“不惜一切代价”的道德困境(政论天下第114集 20200217)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CAJ8hUCGD0s) | [下载](../channels/tianliang/_CAJ8hUCGD0s.srt?raw=true) | [下载](../channels/tianliang/_CAJ8hUCGD0s.tw.srt?raw=true) | 
 | 习近平1月7日做了什么防控指示中共在向北韩学习应对方法(政论天下第113集 20200215)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_p18shRXMRY) | [下载](../channels/tianliang/__p18shRXMRY.srt?raw=true) | [下载](../channels/tianliang/__p18shRXMRY.tw.srt?raw=true) | 
