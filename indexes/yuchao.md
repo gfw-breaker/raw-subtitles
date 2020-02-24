@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 教會治理與修行 - 20200223 第84期 | [下载](https://y2mate.com/zh-cn/search/Vn4QHjDaRc4) | [下载](../channels/yuchao/_Vn4QHjDaRc4.srt?raw=true) | [下载](../channels/yuchao/_Vn4QHjDaRc4.tw.srt?raw=true) | 
 | 錢、渣男、使命 - 20200221 第83期 | [下载](https://y2mate.com/zh-cn/search/Cz5OmtyPPg4) | [下载](../channels/yuchao/_Cz5OmtyPPg4.srt?raw=true) | [下载](../channels/yuchao/_Cz5OmtyPPg4.tw.srt?raw=true) | 
 | 識人、容人，可以更好地救人 - 20200219 第82期 | [下载](https://y2mate.com/zh-cn/search/BSzyo86d4bQ) | [下载](../channels/yuchao/_BSzyo86d4bQ.srt?raw=true) | [下载](../channels/yuchao/_BSzyo86d4bQ.tw.srt?raw=true) | 
 | 死亡後的人道災難——昨天是法輪功，今天可能就是你 - 20200217 第81期 | [下载](https://y2mate.com/zh-cn/search/-hQ1IVFSUA0) | [下载](../channels/yuchao/_-hQ1IVFSUA0.srt?raw=true) | [下载](../channels/yuchao/_-hQ1IVFSUA0.tw.srt?raw=true) | 
