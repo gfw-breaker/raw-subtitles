@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 驚！武漢解封！習近平不戴口罩喊三最，方斌現行蹤！美驚爆中共高層出逃計畫！（老北京茶館_第254集_2020_02_24） | [下载](https://y2mate.com/zh-cn/search/4xUPu4ocNZY) | [下载](../channels/teahouse/_4xUPu4ocNZY.srt?raw=true) | [下载](../channels/teahouse/_4xUPu4ocNZY.tw.srt?raw=true) | 
 | 精准投放中南海？北京瘋傳習近平消息！線民大笑党媒暖聞，齊推武漢肺炎真最暖故事！（老北京茶館_第253集_2020_02_23） | [下载](https://y2mate.com/zh-cn/search/FMwG46CVzz0) | [下载](../channels/teahouse/_FMwG46CVzz0.srt?raw=true) | [下载](../channels/teahouse/_FMwG46CVzz0.tw.srt?raw=true) | 
 | 突然解封！武漢肺炎危機解除？零確診數各省放衛星！鐘南山遭黨拋棄？（老北京茶館_第252集_2020_02_20） | [下载](https://y2mate.com/zh-cn/search/aj6JLcxyDxo) | [下载](../channels/teahouse/_aj6JLcxyDxo.srt?raw=true) | [下载](../channels/teahouse/_aj6JLcxyDxo.tw.srt?raw=true) | 
 | 特朗普閃電撤銷中共五大官媒身份！中產家庭12天消失！被困公主號，蝗蟲烏鴉太陽送信？（老北京茶館_第251集_2020_02_19） | [下载](https://y2mate.com/zh-cn/search/LUZgz8npa6U) | [下载](../channels/teahouse/_LUZgz8npa6U.srt?raw=true) | [下载](../channels/teahouse/_LUZgz8npa6U.tw.srt?raw=true) | 
