@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美怒目挥拳相向，多少企业无工可复？3月1号会断网吗？（政论天下第120集 20200225）天亮时分 | [下载](https://y2mate.com/zh-cn/search/qE2t8SsYFNE) | [下载](../channels/tianliang/_qE2t8SsYFNE.srt?raw=true) | [下载](../channels/tianliang/_qE2t8SsYFNE.tw.srt?raw=true) | 
 | 道琼斯指数暴跌千点，习近平在17万人大会上说了什么？（政论天下第119集 20200224）天亮时分 | [下载](https://y2mate.com/zh-cn/search/OKpJUVbTGPA) | [下载](../channels/tianliang/_OKpJUVbTGPA.srt?raw=true) | [下载](../channels/tianliang/_OKpJUVbTGPA.tw.srt?raw=true) | 
 | 北京情势严峻,习近平承认拐点未到;粮荒才是大问题;实锤数据真实显示出民间对中共的信任度;美国已在做社区传播准备(政论天下第117集 20200222)天亮时分 | [下载](https://y2mate.com/zh-cn/search/9014JQNZgVo) | [下载](../channels/tianliang/_9014JQNZgVo.srt?raw=true) | [下载](../channels/tianliang/_9014JQNZgVo.tw.srt?raw=true) | 
 | 封城难阻逃生路,平均每天近万人逃离;对患者去库存与数据造假将酿成更严重后果;次生灾祸正在袭来(政论天下第116集 20200220)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_w_FWiPW4co) | [下载](../channels/tianliang/__w_FWiPW4co.srt?raw=true) | [下载](../channels/tianliang/__w_FWiPW4co.tw.srt?raw=true) | 
