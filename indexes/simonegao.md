@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 世卫专家自曝：调查受习近平授意；旨在向世界展示中国抗疫成效。 | [下载](https://y2mate.com/zh-cn/search/QtFTBR9Y8Jw) | [下载](../channels/simonegao/_QtFTBR9Y8Jw.srt?raw=true) | [下载](../channels/simonegao/_QtFTBR9Y8Jw.tw.srt?raw=true) | 
 | 多种迹象指向新型冠状病毒为人工合成，被泄漏。中或有艾滋病毒的基因插入，指向此病毒为合成病毒。 | [下载](https://y2mate.com/zh-cn/search/S9o2AvZmGXo) | [下载](../channels/simonegao/_S9o2AvZmGXo.srt?raw=true) | [下载](../channels/simonegao/_S9o2AvZmGXo.tw.srt?raw=true) | 
 | (重新发布）哈佛教授：肺炎疫苗四个月出，药物半年；患者家门被封，功利主义社会酿人间惨剧。 生化武器专家认为中共没开发生物武器，原因出人意料； | [下载](https://y2mate.com/zh-cn/search/PP1UsEebcCQ) | [下载](../channels/simonegao/_PP1UsEebcCQ.srt?raw=true) | [下载](../channels/simonegao/_PP1UsEebcCQ.tw.srt?raw=true) | 
 | 哈佛教授：肺炎疫苗四个月出，药物半年；患者家门被封，功利主义社会伤害弱势群体利益。 | [下载](https://y2mate.com/zh-cn/search/_ZlE-LURXQg) | [下载](../channels/simonegao/__ZlE-LURXQg.srt?raw=true) | [下载](../channels/simonegao/__ZlE-LURXQg.tw.srt?raw=true) | 
