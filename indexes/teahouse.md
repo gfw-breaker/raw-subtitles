@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李澤華尋真炒了央視和逆淘汰！重慶小夥黃洋四帖火了！壓不彎的中國人，貌似希望已噴發啦！（老北京茶館_第2567集_2020_02_27） | [下载](https://y2mate.com/zh-cn/search/pVEJYpcxaqk) | [下载](../channels/teahouse/_pVEJYpcxaqk.srt?raw=true) | [下载](../channels/teahouse/_pVEJYpcxaqk.tw.srt?raw=true) | 
 | 劇情突然反轉，中共宣传自己又成大贏家？晕！伊朗卫生部副部长中招！（老北京茶館_第256集_2020_02_26） | [下载](https://y2mate.com/zh-cn/search/SXlh-3neMMo) | [下载](../channels/teahouse/_SXlh-3neMMo.srt?raw=true) | [下载](../channels/teahouse/_SXlh-3neMMo.tw.srt?raw=true) | 
 | 監獄疫情與人道災難全面爆發！前央視主持遭圍攻！美國驅逐數百黨媒記者？（老北京茶館_第255集_2020_02_25） | [下载](https://y2mate.com/zh-cn/search/gwOd5su9M3M) | [下载](../channels/teahouse/_gwOd5su9M3M.srt?raw=true) | [下载](../channels/teahouse/_gwOd5su9M3M.tw.srt?raw=true) | 
 | 驚！武漢解封！習近平不戴口罩喊三最，方斌現行蹤！美驚爆中共高層出逃計畫！（老北京茶館_第254集_2020_02_24） | [下载](https://y2mate.com/zh-cn/search/4xUPu4ocNZY) | [下载](../channels/teahouse/_4xUPu4ocNZY.srt?raw=true) | [下载](../channels/teahouse/_4xUPu4ocNZY.tw.srt?raw=true) | 
