@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普亲信告知习近平，美国怀疑病毒源自实验室；彭斯说“美国CDC专家同意中国政府判断”是怎么回事？ | [下载](https://y2mate.com/zh-cn/search/UEmnHsP7FAc) | [下载](../channels/simonegao/_UEmnHsP7FAc.srt?raw=true) | [下载](../channels/simonegao/_UEmnHsP7FAc.tw.srt?raw=true) | 
 | 蕭茗在CPAC現場直播川普演講 | [下载](https://y2mate.com/zh-cn/search/HOJqFPnBG-k) | [下载](../channels/simonegao/_HOJqFPnBG-k.srt?raw=true) | [下载](../channels/simonegao/_HOJqFPnBG-k.tw.srt?raw=true) | 
 | 世卫专家自曝：调查受习近平授意；旨在向世界展示中国抗疫成效。 | [下载](https://y2mate.com/zh-cn/search/QtFTBR9Y8Jw) | [下载](../channels/simonegao/_QtFTBR9Y8Jw.srt?raw=true) | [下载](../channels/simonegao/_QtFTBR9Y8Jw.tw.srt?raw=true) | 
 | 多种迹象指向新型冠状病毒为人工合成，被泄漏。中或有艾滋病毒的基因插入，指向此病毒为合成病毒。 | [下载](https://y2mate.com/zh-cn/search/S9o2AvZmGXo) | [下载](../channels/simonegao/_S9o2AvZmGXo.srt?raw=true) | [下载](../channels/simonegao/_S9o2AvZmGXo.tw.srt?raw=true) | 
