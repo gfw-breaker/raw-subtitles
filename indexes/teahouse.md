@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 鐘南山主持火線入黨，川普轟走60党媒記者！伊朗醫院堆滿屍體，抄作業引發口水戰！（老北京茶館_第261集_2020_03_03） | [下载](https://y2mate.com/zh-cn/search/-W9OM1gHb38) | [下载](../channels/teahouse/_-W9OM1gHb38.srt?raw=true) | [下载](../channels/teahouse/_-W9OM1gHb38.tw.srt?raw=true) | 
 | 拐點真來了！人民領袖習近平下贊己詔！可怕的零新增真相！（老北京茶館_第260集_2020_03_02） | [下载](https://y2mate.com/zh-cn/search/8A1U9UJB1Co) | [下载](../channels/teahouse/_8A1U9UJB1Co.srt?raw=true) | [下载](../channels/teahouse/_8A1U9UJB1Co.tw.srt?raw=true) | 
 | 習近平捐款洩密？大國戰役藏預言被緊急下架！鐘南山替黨甩鍋，黃亮發表我的認罪書！（老北京茶館_第259集_2020_03_01） | [下载](https://y2mate.com/zh-cn/search/yYdnWqQL-YE) | [下载](../channels/teahouse/_yYdnWqQL-YE.srt?raw=true) | [下载](../channels/teahouse/_yYdnWqQL-YE.tw.srt?raw=true) | 
 | 尋找李澤華陳秋實方斌，再賦阿房宮（老北京茶館_第258集_2020_02_28） | [下载](https://y2mate.com/zh-cn/search/FhaLRKD02iY) | [下载](../channels/teahouse/_FhaLRKD02iY.srt?raw=true) | [下载](../channels/teahouse/_FhaLRKD02iY.tw.srt?raw=true) | 
