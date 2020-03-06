@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共为什么要给外国人发绿卡？历史上的中国一直是一个移民国家（政论天下第125集 20200304）天亮时分 | [下载](https://y2mate.com/zh-cn/search/FX93C8NIL70) | [下载](../channels/tianliang/_FX93C8NIL70.srt?raw=true) | [下载](../channels/tianliang/_FX93C8NIL70.tw.srt?raw=true) | 
 | 史上最严的互联网新规出台;美国形同驱逐中国记者;中共自称“最大赢家”,其体制优势还不如北韩(政论天下第124集 20200303)天亮时分 | [下载](https://y2mate.com/zh-cn/search/3DgRVQ255Zs) | [下载](../channels/tianliang/_3DgRVQ255Zs.srt?raw=true) | [下载](../channels/tianliang/_3DgRVQ255Zs.tw.srt?raw=true) | 
 | PMI指数跌倒经济萧条线以下,七常委带头捐款与崇祯帝拿出私房钱,民间为什么不愿意捐款(政论天下第123集 20200229)天亮时分 | [下载](https://y2mate.com/zh-cn/search/wWHlZ4ycsIc) | [下载](../channels/tianliang/_wWHlZ4ycsIc.srt?raw=true) | [下载](../channels/tianliang/_wWHlZ4ycsIc.tw.srt?raw=true) | 
 | 中共网信办失守,抓捕李泽华和黎智英背后的权谋计算(政论天下第122集 20200228)天亮时分 | [下载](https://y2mate.com/zh-cn/search/t03dU5CKv4w) | [下载](../channels/tianliang/_t03dU5CKv4w.srt?raw=true) | [下载](../channels/tianliang/_t03dU5CKv4w.tw.srt?raw=true) | 
