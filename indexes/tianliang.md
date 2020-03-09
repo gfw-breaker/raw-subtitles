@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共竟然再给这个组织捐了2000万美元！为了“必也正名乎”吗叫什么名字更加恰当兼谈另类解决思路 (政论天下第129集 20200308)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UL2gQtrViZ4) | [下载](../channels/tianliang/_UL2gQtrViZ4.srt?raw=true) | [下载](../channels/tianliang/_UL2gQtrViZ4.tw.srt?raw=true) | 
 | 硅谷关闭;“二王”给习近平挖坑,智商多低才会掉進去从贪天之功说说修行人的谦卑与感恩(政论天下第128集 20200307)天亮时分 | [下载](https://y2mate.com/zh-cn/search/u9xdSnp-5v4) | [下载](../channels/tianliang/_u9xdSnp-5v4.srt?raw=true) | [下载](../channels/tianliang/_u9xdSnp-5v4.tw.srt?raw=true) | 
 | 王岐山与习近平闹掰习近平走错棋就是从这里开始的(政论天下第127集 20200306)天亮时分 | [下载](https://y2mate.com/zh-cn/search/a31lSI1pl-c) | [下载](../channels/tianliang/_a31lSI1pl-c.srt?raw=true) | [下载](../channels/tianliang/_a31lSI1pl-c.tw.srt?raw=true) | 
 | YouTube回应“黄标”事件；一次造假不到位的视察；飞往北京上海的多部航班被停飞（政论天下第126集 20200305）天亮时分 | [下载](https://y2mate.com/zh-cn/search/i2zAyKOq_-I) | [下载](../channels/tianliang/_i2zAyKOq_-I.srt?raw=true) | [下载](../channels/tianliang/_i2zAyKOq_-I.tw.srt?raw=true) | 
