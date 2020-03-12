@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平前脚刚走，世卫即宣布“全球大流行”；川普的经济刺激与中共的二次甩锅（政论天下第130集 20200311）天亮时分 | [下载](https://y2mate.com/zh-cn/search/Kwi3eSEf0So) | [下载](../channels/tianliang/_Kwi3eSEf0So.srt?raw=true) | [下载](../channels/tianliang/_Kwi3eSEf0So.tw.srt?raw=true) | 
 | 中共竟然再给这个组织捐了2000万美元！为了“必也正名乎”吗叫什么名字更加恰当兼谈另类解决思路 (政论天下第129集 20200308)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UL2gQtrViZ4) | [下载](../channels/tianliang/_UL2gQtrViZ4.srt?raw=true) | [下载](../channels/tianliang/_UL2gQtrViZ4.tw.srt?raw=true) | 
 | 硅谷关闭;“二王”给习近平挖坑,智商多低才会掉進去从贪天之功说说修行人的谦卑与感恩(政论天下第128集 20200307)天亮时分 | [下载](https://y2mate.com/zh-cn/search/u9xdSnp-5v4) | [下载](../channels/tianliang/_u9xdSnp-5v4.srt?raw=true) | [下载](../channels/tianliang/_u9xdSnp-5v4.tw.srt?raw=true) | 
 | 王岐山与习近平闹掰习近平走错棋就是从这里开始的(政论天下第127集 20200306)天亮时分 | [下载](https://y2mate.com/zh-cn/search/a31lSI1pl-c) | [下载](../channels/tianliang/_a31lSI1pl-c.srt?raw=true) | [下载](../channels/tianliang/_a31lSI1pl-c.tw.srt?raw=true) | 
