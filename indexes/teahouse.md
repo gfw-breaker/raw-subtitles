@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 特朗普宣佈斷航，世衛承認大流行！習近平人類命運共同體實現？黨媒建築現啟示錄大淫婦真容！（老北京茶館_第267集_2020_03_12） | [下载](https://y2mate.com/zh-cn/search/sLuBGWb0l7g) | [下载](../channels/teahouse/_sLuBGWb0l7g.srt?raw=true) | [下载](../channels/teahouse/_sLuBGWb0l7g.tw.srt?raw=true) | 
 | 習近平訪武漢，驚現靈異現象！市民曲線喊“全是假的！”華南海鮮市場現病毒剋星？（老北京茶館_第266集_2020_03_11） | [下载](https://y2mate.com/zh-cn/search/RZfoUSEGaVM) | [下载](../channels/teahouse/_RZfoUSEGaVM.srt?raw=true) | [下载](../channels/teahouse/_RZfoUSEGaVM.tw.srt?raw=true) | 
 | 茶館黃標奇案！譚德塞段子來啦！茶友曝光醫院新動作，大淫婦北京拉誰下水？（老北京茶館_第265集_2020_03_09） | [下载](https://y2mate.com/zh-cn/search/wAbrC_DrPyg) | [下载](../channels/teahouse/_wAbrC_DrPyg.srt?raw=true) | [下载](../channels/teahouse/_wAbrC_DrPyg.tw.srt?raw=true) | 
 | 烏龍！習家軍玩“感恩”加入黑習陣營，習近平保党陷高級黑迴圈？華春瑩丈夫你到底是誰……（老北京茶館_第264集_2020_03_08） | [下载](https://y2mate.com/zh-cn/search/DdNyVYLG-eQ) | [下载](../channels/teahouse/_DdNyVYLG-eQ.srt?raw=true) | [下载](../channels/teahouse/_DdNyVYLG-eQ.tw.srt?raw=true) | 
