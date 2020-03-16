@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 我们应该如何祈祷？从川普的全国祈祷日说起（政论天下第133集_第一部分_ 20200314）天亮时分 | [下载](https://y2mate.com/zh-cn/search/VBKsAl2TfgI) | [下载](../channels/tianliang/_VBKsAl2TfgI.srt?raw=true) | [下载](../channels/tianliang/_VBKsAl2TfgI.tw.srt?raw=true) | 
 | 川普宣布国家紧急状态;加拿大总理夫人中招儿,总理自我隔离;赵立坚战狼式推特与南华早报泄机密.中共对美国连番指控和威胁的三个目的(政论天下第132集 20200313)天亮时分 | [下载](https://y2mate.com/zh-cn/search/hvHEAAMeTsw) | [下载](../channels/tianliang/_hvHEAAMeTsw.srt?raw=true) | [下载](../channels/tianliang/_hvHEAAMeTsw.tw.srt?raw=true) | 
 | 欧州封禁,股市暴跌,美国如何应对前所未有的状况(政论天下第131集 20200312)天亮时分 | [下载](https://y2mate.com/zh-cn/search/Nse0lePdYgU) | [下载](../channels/tianliang/_Nse0lePdYgU.srt?raw=true) | [下载](../channels/tianliang/_Nse0lePdYgU.tw.srt?raw=true) | 
 | 习近平前脚刚走，世卫即宣布“全球大流行”；川普的经济刺激与中共的二次甩锅（政论天下第130集 20200311）天亮时分 | [下载](https://y2mate.com/zh-cn/search/Kwi3eSEf0So) | [下载](../channels/tianliang/_Kwi3eSEf0So.srt?raw=true) | [下载](../channels/tianliang/_Kwi3eSEf0So.tw.srt?raw=true) | 
