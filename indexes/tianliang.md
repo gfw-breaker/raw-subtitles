@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普发放现金；海外华人抢机票回国，准备充当肥羊和背锅侠；信息大战，川普父子怒怼中共(政论天下第136集 20200317)天亮时分 | [下载](https://y2mate.com/zh-cn/search/leELh6BjXoA) | [下载](../channels/tianliang/_leELh6BjXoA.srt?raw=true) | [下载](../channels/tianliang/_leELh6BjXoA.tw.srt?raw=true) | 
 | 任志强失联,王岐山是否会出手相救新一轮内斗是否会发生(政论天下第135集 20200316)天亮时分 | [下载](https://y2mate.com/zh-cn/search/IAl6nSg0wDE) | [下载](../channels/tianliang/_IAl6nSg0wDE.srt?raw=true) | [下载](../channels/tianliang/_IAl6nSg0wDE.tw.srt?raw=true) | 
 | 美联储削减利率至0,另加7000亿量化宽松,利好出尽是利空美国政府还有哪些措施(政论天下第134集 20200315)天亮时分 | [下载](https://y2mate.com/zh-cn/search/PYc8AL1nAck) | [下载](../channels/tianliang/_PYc8AL1nAck.srt?raw=true) | [下载](../channels/tianliang/_PYc8AL1nAck.tw.srt?raw=true) | 
 | 我们应该如何祈祷？从川普的全国祈祷日说起（政论天下第133集_第一部分_ 20200314）天亮时分 | [下载](https://y2mate.com/zh-cn/search/VBKsAl2TfgI) | [下载](../channels/tianliang/_VBKsAl2TfgI.srt?raw=true) | [下载](../channels/tianliang/_VBKsAl2TfgI.tw.srt?raw=true) | 
