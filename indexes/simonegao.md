@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 不要求隔离, 英国疫情堪忧；股市大跌 全球经济进入衰退？中共甩锅新花样：华人回国被起诉； | [下载](https://y2mate.com/zh-cn/search/vrAHdL5dTFM) | [下载](../channels/simonegao/_vrAHdL5dTFM.srt?raw=true) | [下载](../channels/simonegao/_vrAHdL5dTFM.tw.srt?raw=true) | 
 | 美国进入紧急状态！川普40小时内两次讲话，商业天才完救股市；中国贸易协议跑不掉；川普回答记者问藏玄机； | [下载](https://y2mate.com/zh-cn/search/GYo6oEHZYoM) | [下载](../channels/simonegao/_GYo6oEHZYoM.srt?raw=true) | [下载](../channels/simonegao/_GYo6oEHZYoM.tw.srt?raw=true) | 
 | 川普亲信告知习近平，美国怀疑病毒源自实验室；彭斯说“美国CDC专家同意中国政府判断”是怎么回事？ | [下载](https://y2mate.com/zh-cn/search/UEmnHsP7FAc) | [下载](../channels/simonegao/_UEmnHsP7FAc.srt?raw=true) | [下载](../channels/simonegao/_UEmnHsP7FAc.tw.srt?raw=true) | 
 | 蕭茗在CPAC現場直播川普演講 | [下载](https://y2mate.com/zh-cn/search/HOJqFPnBG-k) | [下载](../channels/simonegao/_HOJqFPnBG-k.srt?raw=true) | [下载](../channels/simonegao/_HOJqFPnBG-k.tw.srt?raw=true) | 
