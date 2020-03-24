@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普对习近平表示失望；战狼赵立坚再撕咬，武汗市民梁旭光起诉美国政府；华邮说：中美经济这些方面应该脱钩（政论天下第140集 20200323）天亮时分 | [下载](https://y2mate.com/zh-cn/search/hOTFPRJqFmA) | [下载](../channels/tianliang/_hOTFPRJqFmA.srt?raw=true) | [下载](../channels/tianliang/_hOTFPRJqFmA.tw.srt?raw=true) | 
 | 政治局扩大会议罢免习近平？美律师起诉中共求偿20万亿美元；将改变中共国际环境的白宫联署正名运动（政论天下第139集 20200322）天亮时分 | [下载](https://y2mate.com/zh-cn/search/GoE0yqyVep8) | [下载](../channels/tianliang/_GoE0yqyVep8.srt?raw=true) | [下载](../channels/tianliang/_GoE0yqyVep8.tw.srt?raw=true) | 
 | 高盛对美国经济前景的悲观预计;中共经济恐怕更糟(政论天下第138集 20200321)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ksO3hvblSSw) | [下载](../channels/tianliang/_ksO3hvblSSw.srt?raw=true) | [下载](../channels/tianliang/_ksO3hvblSSw.tw.srt?raw=true) | 
 | 美医称3到4周会制造出抗体；从川普自称战时总统看民主国家的动员力；美国发钱数额;任志强案更新 (政论天下第137集 20200320)天亮时分 | [下载](https://y2mate.com/zh-cn/search/1wvBGclzvNg) | [下载](../channels/tianliang/_1wvBGclzvNg.srt?raw=true) | [下载](../channels/tianliang/_1wvBGclzvNg.tw.srt?raw=true) | 
