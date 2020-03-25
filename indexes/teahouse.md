@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共病毒實錘！美國再辱華！大數據探微：中共病毒到底卷走多少武漢人？（老北京茶館_第272集_2020_03_23） | [下载](https://y2mate.com/zh-cn/search/pmUG7Q36c_M) | [下载](../channels/teahouse/_pmUG7Q36c_M.srt?raw=true) | [下载](../channels/teahouse/_pmUG7Q36c_M.tw.srt?raw=true) | 
 | 美國中大獎？紐約封城！中美第二輪PK，全民加入！中共宣佈“零新增”之後，強行吃喝開始！（老北京茶館_第271集_2020_03_21） | [下载](https://y2mate.com/zh-cn/search/ZZyLLXGlWEA) | [下载](../channels/teahouse/_ZZyLLXGlWEA.srt?raw=true) | [下载](../channels/teahouse/_ZZyLLXGlWEA.tw.srt?raw=true) | 
 | 特朗普扔下一萬億就跑！這作業，黨抄不？臺灣防控成典範，小英展示自由社會辦大事能力！（老北京茶館_第270集_2020_03_19） | [下载](https://y2mate.com/zh-cn/search/nR9EGj6I8Ck) | [下载](../channels/teahouse/_nR9EGj6I8Ck.srt?raw=true) | [下载](../channels/teahouse/_nR9EGj6I8Ck.tw.srt?raw=true) | 
 | 特朗普宣佈中國病毒，網友改中共病毒！華人回國秒後悔：遭全套服務，成二次疫情背鍋俠！（老北京茶館_第269集_2020_03_18） | [下载](https://y2mate.com/zh-cn/search/mcPmp7BlNLA) | [下载](../channels/teahouse/_mcPmp7BlNLA.srt?raw=true) | [下载](../channels/teahouse/_mcPmp7BlNLA.tw.srt?raw=true) | 
