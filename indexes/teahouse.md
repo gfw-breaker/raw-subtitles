@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 習近平之惑：割據真開始了？員警助孫春蘭扳回一局？領取裝親人盒子洩密，清零真相再曝光！（老北京茶館_第275集_2020_03_28） | [下载](https://y2mate.com/zh-cn/search/230EU0STsXU) | [下载](../channels/teahouse/_230EU0STsXU.srt?raw=true) | [下载](../channels/teahouse/_230EU0STsXU.tw.srt?raw=true) | 
 | 【獨家】甩鍋惹禍，急轉彎親美！一尊屈尊放軟招：崔天凱胡錫進趙立堅，齊繳械投降？（老北京茶館_第274集_2020_03_26） | [下载](https://y2mate.com/zh-cn/search/S8ThbgvMv1E) | [下载](../channels/teahouse/_S8ThbgvMv1E.srt?raw=true) | [下载](../channels/teahouse/_S8ThbgvMv1E.tw.srt?raw=true) | 
 | 崔天凱趙立堅唱雙簧？馬列教授千里散送大禮！瀋陽慶祝美國形勢失控！紐約分得親共紅利！（老北京茶館_第273集_2020_03_24） | [下载](https://y2mate.com/zh-cn/search/8SbIzzX5O2I) | [下载](../channels/teahouse/_8SbIzzX5O2I.srt?raw=true) | [下载](../channels/teahouse/_8SbIzzX5O2I.tw.srt?raw=true) | 
 | 中共病毒實錘！美國再辱華！大數據探微：中共病毒到底卷走多少武漢人？（老北京茶館_第272集_2020_03_23） | [下载](https://y2mate.com/zh-cn/search/pmUG7Q36c_M) | [下载](../channels/teahouse/_pmUG7Q36c_M.srt?raw=true) | [下载](../channels/teahouse/_pmUG7Q36c_M.tw.srt?raw=true) | 
