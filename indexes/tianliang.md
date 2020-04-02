@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 从佛州女疯狂囤货落法网,说说中共对全世界的隐形战争(政论天下第144集 20200401)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DAEWwvkTghc) | [下载](../channels/tianliang/_DAEWwvkTghc.srt?raw=true) | [下载](../channels/tianliang/_DAEWwvkTghc.tw.srt?raw=true) | 
 | 英国首相对中共出离愤怒,华为5G欧洲泡汤,当前危机将重塑全球秩序(哲思心语第8集 20200330)天亮时分 | [下载](https://y2mate.com/zh-cn/search/qKnw2z3p13Y) | [下载](../channels/tianliang/_qKnw2z3p13Y.srt?raw=true) | [下载](../channels/tianliang/_qKnw2z3p13Y.tw.srt?raw=true) | 
 | 中央对地方权威下坠,党内反习势力集结,习近平日子很难过;任志强儿子和秘书被抓,对党内大佬与民营企业家上书营救的分析(政论天下第143集 20200328)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-753gNiMRME) | [下载](../channels/tianliang/_-753gNiMRME.srt?raw=true) | [下载](../channels/tianliang/_-753gNiMRME.tw.srt?raw=true) | 
 | 国内经济大跌与国外索赔要求,击垮中共的风暴正在形成,兼谈”国家主权豁免“和为何要”正名“(政论天下第142集 20200325)天亮时分 | [下载](https://y2mate.com/zh-cn/search/dOOPFrLm0Tw) | [下载](../channels/tianliang/_dOOPFrLm0Tw.srt?raw=true) | [下载](../channels/tianliang/_dOOPFrLm0Tw.tw.srt?raw=true) | 
