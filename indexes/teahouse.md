@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 特朗普變臉：拒絕習近平物資！華春瑩蹦高：某人一貫撒謊欺騙！華人求助大使館遭拒！（老北京茶館_第279集_2020_04_02） | [下载](https://y2mate.com/zh-cn/search/B15JIwg1p6k) | [下载](../channels/teahouse/_B15JIwg1p6k.srt?raw=true) | [下载](../channels/teahouse/_B15JIwg1p6k.tw.srt?raw=true) | 
 | 美國總統约翰肯尼迪大去之日突然降臨！是外星人干的嗎？（探索與洞見_第001集_老北京茶館_2020_04_01） | [下载](https://y2mate.com/zh-cn/search/PrUyK1_qqAc) | [下载](../channels/teahouse/_PrUyK1_qqAc.srt?raw=true) | [下载](../channels/teahouse/_PrUyK1_qqAc.tw.srt?raw=true) | 
 | 【探索与洞见】预告片 | [下载](https://y2mate.com/zh-cn/search/uGaWQI1Qnbc) | [下载](../channels/teahouse/_uGaWQI1Qnbc.srt?raw=true) | [下载](../channels/teahouse/_uGaWQI1Qnbc.tw.srt?raw=true) | 
 | 華春瑩比爛，小粉紅反了，北京交警也反了？大不列顛首相帶頭反共，習近平如何是好？（老北京茶館_第278集_2020_03_31） | [下载](https://y2mate.com/zh-cn/search/H5CcpyE1D0I) | [下载](../channels/teahouse/_H5CcpyE1D0I.srt?raw=true) | [下载](../channels/teahouse/_H5CcpyE1D0I.tw.srt?raw=true) | 
