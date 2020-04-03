@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平不拿真金白银救经济的真正原因；美国拿⅓ GDP 救经济，中共拿不出还是不愿意拿？习近平去浙江释放什么信号？川普准备再拿2万亿建基础设施 | [下载](https://y2mate.com/zh-cn/search/D8eaPasdvM8) | [下载](../channels/simonegao/_D8eaPasdvM8.srt?raw=true) | [下载](../channels/simonegao/_D8eaPasdvM8.tw.srt?raw=true) | 
 | （大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥和川普不同调？ | [下载](https://y2mate.com/zh-cn/search/NRo-P-wMxPI) | [下载](../channels/simonegao/_NRo-P-wMxPI.srt?raw=true) | [下载](../channels/simonegao/_NRo-P-wMxPI.tw.srt?raw=true) | 
 | 默克尔隔离；美参议员检测阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？ | [下载](https://y2mate.com/zh-cn/search/lW4CJQ2rv5Q) | [下载](../channels/simonegao/_lW4CJQ2rv5Q.srt?raw=true) | [下载](../channels/simonegao/_lW4CJQ2rv5Q.tw.srt?raw=true) | 
 | 不要求隔离, 英国疫情堪忧；股市大跌 全球经济进入衰退？中共甩锅新花样：华人回国被起诉； | [下载](https://y2mate.com/zh-cn/search/vrAHdL5dTFM) | [下载](../channels/simonegao/_vrAHdL5dTFM.srt?raw=true) | [下载](../channels/simonegao/_vrAHdL5dTFM.tw.srt?raw=true) | 
