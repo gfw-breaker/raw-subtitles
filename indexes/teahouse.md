@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美國總統约翰肯尼迪大去之日突然降臨！是外星人干的嗎？（探索與洞見_第001集_老北京茶館_2020_04_01） | [下载](https://y2mate.com/zh-cn/search/PrUyK1_qqAc) | [下载](../channels/teahouse/_PrUyK1_qqAc.srt?raw=true) | [下载](../channels/teahouse/_PrUyK1_qqAc.tw.srt?raw=true) | 
 | 【探索与洞见】预告片 | [下载](https://y2mate.com/zh-cn/search/uGaWQI1Qnbc) | [下载](../channels/teahouse/_uGaWQI1Qnbc.srt?raw=true) | [下载](../channels/teahouse/_uGaWQI1Qnbc.tw.srt?raw=true) | 
 | 華春瑩比爛，小粉紅反了，北京交警也反了？大不列顛首相帶頭反共，習近平如何是好？（老北京茶館_第278集_2020_03_31） | [下载](https://y2mate.com/zh-cn/search/H5CcpyE1D0I) | [下载](../channels/teahouse/_H5CcpyE1D0I.srt?raw=true) | [下载](../channels/teahouse/_H5CcpyE1D0I.tw.srt?raw=true) | 
 | 慶功！中共外交部耿爽離奇預言給習近平成功挖坑！世界各國感謝中共，感謝清單出爐啦……（老北京茶館_第277集_2020_03_30） | [下载](https://y2mate.com/zh-cn/search/RfcsKYc-5EI) | [下载](../channels/teahouse/_RfcsKYc-5EI.srt?raw=true) | [下载](../channels/teahouse/_RfcsKYc-5EI.tw.srt?raw=true) | 
