@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 惊悚的政变传闻与美元伪钞案,被误读的3月PMI与实实在在的粮荒(政论天下第145集 20200403)天亮时分 | [下载](https://y2mate.com/zh-cn/search/1OlkC6gdsp4) | [下载](../channels/tianliang/_1OlkC6gdsp4.srt?raw=true) | [下载](../channels/tianliang/_1OlkC6gdsp4.tw.srt?raw=true) | 
 | 从佛州女疯狂囤货落法网,说说中共对全世界的隐形战争(政论天下第144集 20200401)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DAEWwvkTghc) | [下载](../channels/tianliang/_DAEWwvkTghc.srt?raw=true) | [下载](../channels/tianliang/_DAEWwvkTghc.tw.srt?raw=true) | 
 | 英国首相对中共出离愤怒,华为5G欧洲泡汤,当前危机将重塑全球秩序(哲思心语第8集 20200330)天亮时分 | [下载](https://y2mate.com/zh-cn/search/qKnw2z3p13Y) | [下载](../channels/tianliang/_qKnw2z3p13Y.srt?raw=true) | [下载](../channels/tianliang/_qKnw2z3p13Y.tw.srt?raw=true) | 
 | 中央对地方权威下坠,党内反习势力集结,习近平日子很难过;任志强儿子和秘书被抓,对党内大佬与民营企业家上书营救的分析(政论天下第143集 20200328)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-753gNiMRME) | [下载](../channels/tianliang/_-753gNiMRME.srt?raw=true) | [下载](../channels/tianliang/_-753gNiMRME.tw.srt?raw=true) | 
