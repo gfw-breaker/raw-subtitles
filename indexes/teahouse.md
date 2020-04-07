@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆_第282集_2020_04_06） | [下载](https://y2mate.com/zh-cn/search/Z0V1-x27AXA) | [下载](../channels/teahouse/_Z0V1-x27AXA.srt?raw=true) | [下载](../channels/teahouse/_Z0V1-x27AXA.tw.srt?raw=true) | 
 | 王沪宁挟习近平党媒亮剑：给你点颜色看看！印度正式索赔二十万亿！重大政治错误出炉？（老北京茶馆_第281集_2020_04_05） | [下载](https://y2mate.com/zh-cn/search/vnE45CbyORw) | [下载](../channels/teahouse/_vnE45CbyORw.srt?raw=true) | [下载](../channels/teahouse/_vnE45CbyORw.tw.srt?raw=true) | 
 | 白邦瑞美國作證：特朗普很委婉，沒說习近平那句難聽！動畫甩鍋；党媒闢謠，民眾搶米！（老北京茶館_第280集_2020_04_03） | [下载](https://y2mate.com/zh-cn/search/_AfmzXC2a-c) | [下载](../channels/teahouse/__AfmzXC2a-c.srt?raw=true) | [下载](../channels/teahouse/__AfmzXC2a-c.tw.srt?raw=true) | 
 | 特朗普變臉：拒絕習近平物資！華春瑩蹦高：某人一貫撒謊欺騙！華人求助大使館遭拒！（老北京茶館_第279集_2020_04_02） | [下载](https://y2mate.com/zh-cn/search/B15JIwg1p6k) | [下载](../channels/teahouse/_B15JIwg1p6k.srt?raw=true) | [下载](../channels/teahouse/_B15JIwg1p6k.tw.srt?raw=true) | 
