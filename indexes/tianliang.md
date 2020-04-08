@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 任志强案更新;川普回答凤凰卫视时给出重要暗示,英国首相进ICU,全球追责中共的四大选项(政论天下第147集 20200407)天亮时分 | [下载](https://y2mate.com/zh-cn/search/AER2J5HvlJE) | [下载](../channels/tianliang/_AER2J5HvlJE.srt?raw=true) | [下载](../channels/tianliang/_AER2J5HvlJE.tw.srt?raw=true) | 
 | 用胸罩做口罩,中共可能面临全球双重起诉;印度的起诉找错了仲裁(政论天下第146集 20200405)天亮时分 | [下载](https://y2mate.com/zh-cn/search/GNNsHKUCCwU) | [下载](../channels/tianliang/_GNNsHKUCCwU.srt?raw=true) | [下载](../channels/tianliang/_GNNsHKUCCwU.tw.srt?raw=true) | 
 | 惊悚的政变传闻与美元伪钞案,被误读的3月PMI与实实在在的粮荒(政论天下第145集 20200403)天亮时分 | [下载](https://y2mate.com/zh-cn/search/1OlkC6gdsp4) | [下载](../channels/tianliang/_1OlkC6gdsp4.srt?raw=true) | [下载](../channels/tianliang/_1OlkC6gdsp4.tw.srt?raw=true) | 
 | 从佛州女疯狂囤货落法网,说说中共对全世界的隐形战争(政论天下第144集 20200401)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DAEWwvkTghc) | [下载](../channels/tianliang/_DAEWwvkTghc.srt?raw=true) | [下载](../channels/tianliang/_DAEWwvkTghc.tw.srt?raw=true) | 
