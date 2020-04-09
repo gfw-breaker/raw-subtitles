@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 任志强会软着陆吗？川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？ | [下载](https://y2mate.com/zh-cn/search/3T49LC0Nt_M) | [下载](../channels/simonegao/_3T49LC0Nt_M.srt?raw=true) | [下载](../channels/simonegao/_3T49LC0Nt_M.tw.srt?raw=true) | 
 | 习近平不拿真金白银救经济的真正原因；美国拿⅓ GDP 救经济，中共拿不出还是不愿意拿？习近平去浙江释放什么信号？川普准备再拿2万亿建基础设施 | [下载](https://y2mate.com/zh-cn/search/D8eaPasdvM8) | [下载](../channels/simonegao/_D8eaPasdvM8.srt?raw=true) | [下载](../channels/simonegao/_D8eaPasdvM8.tw.srt?raw=true) | 
 | （大声版）德国总理隔离；美参议员阳性；美国将惩罚中共隐瞒；蓬佩奥和川普不同调？ | [下载](https://y2mate.com/zh-cn/search/NRo-P-wMxPI) | [下载](../channels/simonegao/_NRo-P-wMxPI.srt?raw=true) | [下载](../channels/simonegao/_NRo-P-wMxPI.tw.srt?raw=true) | 
 | 默克尔隔离；美参议员检测阳性；美国将惩罚中共隐瞒；蓬佩奥公开和川普唱反调？ | [下载](https://y2mate.com/zh-cn/search/lW4CJQ2rv5Q) | [下载](../channels/simonegao/_lW4CJQ2rv5Q.srt?raw=true) | [下载](../channels/simonegao/_lW4CJQ2rv5Q.tw.srt?raw=true) | 
