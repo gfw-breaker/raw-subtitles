@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平：老朋友变脸、中美关系脆弱、美两党联手追责、牡丹江告急，要做长期准备了！（老北京茶馆_第284集_2020_04_09） | [下载](https://y2mate.com/zh-cn/search/85tcMh5eADk) | [下载](../channels/teahouse/_85tcMh5eADk.srt?raw=true) | [下载](../channels/teahouse/_85tcMh5eADk.tw.srt?raw=true) | 
 | 任志强被查，习近平铁了心？崔天凯紧急向美示好，全网404，赵立坚复出问答被秒删！（老北京茶馆_第283集_2020_04_07） | [下载](https://y2mate.com/zh-cn/search/Gp69u7KKDYs) | [下载](../channels/teahouse/_Gp69u7KKDYs.srt?raw=true) | [下载](../channels/teahouse/_Gp69u7KKDYs.tw.srt?raw=true) | 
 | 英国首相约翰逊升舱，中共头大了！中国第二轮迹象显现？王全璋出狱后首度发声！（老北京茶馆_第282集_2020_04_06） | [下载](https://y2mate.com/zh-cn/search/Z0V1-x27AXA) | [下载](../channels/teahouse/_Z0V1-x27AXA.srt?raw=true) | [下载](../channels/teahouse/_Z0V1-x27AXA.tw.srt?raw=true) | 
 | 王沪宁挟习近平党媒亮剑：给你点颜色看看！印度正式索赔二十万亿！重大政治错误出炉？（老北京茶馆_第281集_2020_04_05） | [下载](https://y2mate.com/zh-cn/search/vnE45CbyORw) | [下载](../channels/teahouse/_vnE45CbyORw.srt?raw=true) | [下载](../channels/teahouse/_vnE45CbyORw.tw.srt?raw=true) | 
