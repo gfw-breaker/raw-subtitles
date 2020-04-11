@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 面对全球“去中国化”,习近平这一心理特征极为不利(政论天下第149集 20200411)天亮时分 | [下载](https://y2mate.com/zh-cn/search/Dm4sfnZf1hw) | [下载](../channels/tianliang/_Dm4sfnZf1hw.srt?raw=true) | [下载](../channels/tianliang/_Dm4sfnZf1hw.tw.srt?raw=true) | 
 | 任志强必遭重判,危机四伏中,习近平的心理分析(政论天下第148集 20200409)天亮时分 | [下载](https://y2mate.com/zh-cn/search/l5urEy4EpZs) | [下载](../channels/tianliang/_l5urEy4EpZs.srt?raw=true) | [下载](../channels/tianliang/_l5urEy4EpZs.tw.srt?raw=true) | 
 | 任志强案更新;川普回答凤凰卫视时给出重要暗示,英国首相进ICU,全球追责中共的四大选项(政论天下第147集 20200407)天亮时分 | [下载](https://y2mate.com/zh-cn/search/AER2J5HvlJE) | [下载](../channels/tianliang/_AER2J5HvlJE.srt?raw=true) | [下载](../channels/tianliang/_AER2J5HvlJE.tw.srt?raw=true) | 
 | 用胸罩做口罩,中共可能面临全球双重起诉;印度的起诉找错了仲裁(政论天下第146集 20200405)天亮时分 | [下载](https://y2mate.com/zh-cn/search/GNNsHKUCCwU) | [下载](../channels/tianliang/_GNNsHKUCCwU.srt?raw=true) | [下载](../channels/tianliang/_GNNsHKUCCwU.tw.srt?raw=true) | 
