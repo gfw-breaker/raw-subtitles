@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平遭遇王沪宁史上最高级黑！复工复产达标秘方出炉啦！英法被逼用5G换物资？（老北京茶馆_第287集_2020_04_13） | [下载](https://y2mate.com/zh-cn/search/Rg5u7JAUROE) | [下载](../channels/teahouse/_Rg5u7JAUROE.srt?raw=true) | [下载](../channels/teahouse/_Rg5u7JAUROE.tw.srt?raw=true) | 
 | 【重磅】绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？（老北京茶馆_第286集_2020_04_12） | [下载](https://y2mate.com/zh-cn/search/FK8FqalXLAg) | [下载](../channels/teahouse/_FK8FqalXLAg.srt?raw=true) | [下载](../channels/teahouse/_FK8FqalXLAg.tw.srt?raw=true) | 
 | 方方遭遇胡锡进，崔永元救援！大义当前，各国政府给国人发钱一览，中外政府在干啥？（老北京茶馆_第285集_2020_04_10） | [下载](https://y2mate.com/zh-cn/search/ZVceG_0wwLg) | [下载](../channels/teahouse/_ZVceG_0wwLg.srt?raw=true) | [下载](../channels/teahouse/_ZVceG_0wwLg.tw.srt?raw=true) | 
 | 习近平：老朋友变脸、中美关系脆弱、美两党联手追责、牡丹江告急，要做长期准备了！（老北京茶馆_第284集_2020_04_09） | [下载](https://y2mate.com/zh-cn/search/85tcMh5eADk) | [下载](../channels/teahouse/_85tcMh5eADk.srt?raw=true) | [下载](../channels/teahouse/_85tcMh5eADk.tw.srt?raw=true) | 
