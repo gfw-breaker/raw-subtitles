@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国经济之2，上海为买房大打出手，2020年应不应该卖房子 | [下载](https://y2mate.com/zh-cn/search/FUyqEYDx5GY) | [下载](../channels/zihong/_FUyqEYDx5GY.srt?raw=true) | [下载](../channels/zihong/_FUyqEYDx5GY.tw.srt?raw=true) | 
 | 中国2020后的经济冲击之1,体制内的人员将要面对失业 | [下载](https://y2mate.com/zh-cn/search/Vy6v2DdMxLg) | [下载](../channels/zihong/_Vy6v2DdMxLg.srt?raw=true) | [下载](../channels/zihong/_Vy6v2DdMxLg.tw.srt?raw=true) | 
 | 湖北集中四类人群入住集中营，2月3日返程开工酝酿更大危机，方斌和陈秋是同属一类？ | [下载](https://y2mate.com/zh-cn/search/7RaXOtmg7xk) | [下载](../channels/zihong/_7RaXOtmg7xk.srt?raw=true) | [下载](../channels/zihong/_7RaXOtmg7xk.tw.srt?raw=true) | 
 | 习近平调集军医入驻火神山，卫健委强制肺炎死者就地火化！武汉肺炎太强呼吸道消化神经全面攻击 | [下载](https://y2mate.com/zh-cn/search/LTkRzOG3rx8) | [下载](../channels/zihong/_LTkRzOG3rx8.srt?raw=true) | [下载](../channels/zihong/_LTkRzOG3rx8.tw.srt?raw=true) | 
