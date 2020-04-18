@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 突然！三镇修改神秘数字，特朗普金句回应！香港完胜纽约！西方重灾国家惊现共同点！（老北京茶馆_第290集_2020_04_17） | [下载](https://y2mate.com/zh-cn/search/g_s0lr6z-IM) | [下载](../channels/teahouse/_g_s0lr6z-IM.srt?raw=true) | [下载](../channels/teahouse/_g_s0lr6z-IM.tw.srt?raw=true) | 
 | 胡锡进华春莹给党上眼药！特朗普：怎么惩罚中共我先不说！中共农业部的温情警告！（老北京茶馆_第289集_2020_04_16） | [下载](https://y2mate.com/zh-cn/search/H8MhOSqzCs4) | [下载](../channels/teahouse/_H8MhOSqzCs4.srt?raw=true) | [下载](../channels/teahouse/_H8MhOSqzCs4.tw.srt?raw=true) | 
 | 中国华为任正非上海管理层塌方！俄罗斯华人被拒入国门，黑龙江中俄边境抓特务？（老北京茶馆_第288集_2020_04_14） | [下载](https://y2mate.com/zh-cn/search/eqhJpzjTtlA) | [下载](../channels/teahouse/_eqhJpzjTtlA.srt?raw=true) | [下载](../channels/teahouse/_eqhJpzjTtlA.tw.srt?raw=true) | 
 | 习近平遭遇王沪宁史上最高级黑！复工复产达标秘方出炉啦！英法被逼用5G换物资？（老北京茶馆_第287集_2020_04_13） | [下载](https://y2mate.com/zh-cn/search/Rg5u7JAUROE) | [下载](../channels/teahouse/_Rg5u7JAUROE.srt?raw=true) | [下载](../channels/teahouse/_Rg5u7JAUROE.tw.srt?raw=true) | 
