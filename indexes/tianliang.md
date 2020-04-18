@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 一季度GDP暴跌,死亡人数突增,中共示弱意味着什么;破解中国经济增长的迷思(政论天下第152集 20200417)天亮时分 | [下载](https://y2mate.com/zh-cn/search/8UjDE9qppOA) | [下载](../channels/tianliang/_8UjDE9qppOA.srt?raw=true) | [下载](../channels/tianliang/_8UjDE9qppOA.tw.srt?raw=true) | 
 | 川普对世卫的调查与问责;5月10日开两会经济与外交危机同至,中共会否打台湾转移视线(政论天下第151集 20200415)天亮时分 | [下载](https://y2mate.com/zh-cn/search/75XPBlJOiVI) | [下载](../channels/tianliang/_75XPBlJOiVI.srt?raw=true) | [下载](../channels/tianliang/_75XPBlJOiVI.tw.srt?raw=true) | 
 | 川普对世卫的调查与问责;5月10日开两会经济与外交危机同至,中共会否打台湾转移视线(政论天下第151集 20200415)天亮时分 | [下载](https://y2mate.com/zh-cn/search/5ZyFrTVo2Ws) | [下载](../channels/tianliang/_5ZyFrTVo2Ws.srt?raw=true) | [下载](../channels/tianliang/_5ZyFrTVo2Ws.tw.srt?raw=true) | 
 | 政府发钱和强制消费,为什么两个我都不喜欢频道开通一周年感言,点评江峰,文昭和萧茗的自媒体频道(政论天下第150集 20200413)天亮时分 | [下载](https://y2mate.com/zh-cn/search/tVQXNEGULtY) | [下载](../channels/tianliang/_tVQXNEGULtY.srt?raw=true) | [下载](../channels/tianliang/_tVQXNEGULtY.tw.srt?raw=true) | 
