@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国经济之5，美国日本的操作能开启中国的外企撤离潮吗？政府用何种手段用1块钱买下2000万美元资产？？ | [下载](https://y2mate.com/zh-cn/search/ycyH6d6S2yc) | [下载](../channels/zihong/_ycyH6d6S2yc.srt?raw=true) | [下载](../channels/zihong/_ycyH6d6S2yc.tw.srt?raw=true) | 
 | 中国经济之4，为什么说央行数字货币是人民币的自取灭亡？从央行数字货币的本质去谈普通民众所应该提前做的 | [下载](https://y2mate.com/zh-cn/search/y-DndgW7pGg) | [下载](../channels/zihong/_y-DndgW7pGg.srt?raw=true) | [下载](../channels/zihong/_y-DndgW7pGg.tw.srt?raw=true) | 
 | 中国经济之3，最新统计局数据GDP大造假，失业率突破11%，如此明星公司都裁员； | [下载](https://y2mate.com/zh-cn/search/2kS1E2dtaaM) | [下载](../channels/zihong/_2kS1E2dtaaM.srt?raw=true) | [下载](../channels/zihong/_2kS1E2dtaaM.tw.srt?raw=true) | 
 | 中国经济之2，上海为买房大打出手，2020年应不应该卖房子 | [下载](https://y2mate.com/zh-cn/search/FUyqEYDx5GY) | [下载](../channels/zihong/_FUyqEYDx5GY.srt?raw=true) | [下载](../channels/zihong/_FUyqEYDx5GY.tw.srt?raw=true) | 
