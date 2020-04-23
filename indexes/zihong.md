@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国经济之7，中国的房地产彻底要完蛋，26%的失业潮将要引爆断供潮，和中国最后的银行业危机 | [下载](https://y2mate.com/zh-cn/search/Iyt6XHstIZg) | [下载](../channels/zihong/_Iyt6XHstIZg.srt?raw=true) | [下载](../channels/zihong/_Iyt6XHstIZg.tw.srt?raw=true) | 
 | 中国经济之6，美国原油期货价格跌至-37美元，买石油送美金，别傻了！中国老百姓油价无任何变化，因为。。 | [下载](https://y2mate.com/zh-cn/search/6NyXRHW1S_Y) | [下载](../channels/zihong/_6NyXRHW1S_Y.srt?raw=true) | [下载](../channels/zihong/_6NyXRHW1S_Y.tw.srt?raw=true) | 
 | 中国时事之1，中共全世界掀起【求求你表扬我】外交闹剧，为什么领事夫人用HOTMAIL？ | [下载](https://y2mate.com/zh-cn/search/FBbZE3X2HcQ) | [下载](../channels/zihong/_FBbZE3X2HcQ.srt?raw=true) | [下载](../channels/zihong/_FBbZE3X2HcQ.tw.srt?raw=true) | 
 | 中国经济之5，美国日本的操作能开启中国的外企撤离潮吗？政府用何种手段用1块钱买下2000万美元资产？？ | [下载](https://y2mate.com/zh-cn/search/ycyH6d6S2yc) | [下载](../channels/zihong/_ycyH6d6S2yc.srt?raw=true) | [下载](../channels/zihong/_ycyH6d6S2yc.tw.srt?raw=true) | 

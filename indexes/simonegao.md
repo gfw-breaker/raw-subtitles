@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 武力攻台可能吗？美国能保护台湾吗？中共不怕粮荒的原因源于3月特殊举措？美军太平洋舰队前情报主任采访要点；中共最怕国内民变还是国外压力？ | [下载](https://y2mate.com/zh-cn/search/jnnpBOB2olc) | [下载](../channels/simonegao/_jnnpBOB2olc.srt?raw=true) | [下载](../channels/simonegao/_jnnpBOB2olc.tw.srt?raw=true) | 
 | 川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？ | [下载](https://y2mate.com/zh-cn/search/dFmMi6xom3Y) | [下载](../channels/simonegao/_dFmMi6xom3Y.srt?raw=true) | [下载](../channels/simonegao/_dFmMi6xom3Y.tw.srt?raw=true) | 
 | （双声道）任志强被调查，习近平达到目的了吗？ | [下载](https://y2mate.com/zh-cn/search/vJ0SI2tKs0g) | [下载](../channels/simonegao/_vJ0SI2tKs0g.srt?raw=true) | [下载](../channels/simonegao/_vJ0SI2tKs0g.tw.srt?raw=true) | 
 | 任志强会软着陆吗？川普对贸易协议执行不满意，还给习多少时间？川普质问凤凰卫视记者，习近平将失去川普最后支持？ | [下载](https://y2mate.com/zh-cn/search/3T49LC0Nt_M) | [下载](../channels/simonegao/_3T49LC0Nt_M.srt?raw=true) | [下载](../channels/simonegao/_3T49LC0Nt_M.tw.srt?raw=true) | 
