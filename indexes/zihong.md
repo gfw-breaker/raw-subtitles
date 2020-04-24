@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【第九期】投资1万元亏2.66亿的中行原油宝，赌局一场下投资者难逃割韭菜命运！主权豁免条例修改后中共难保1.1万亿美债！ | [下载](https://y2mate.com/zh-cn/search/Qf6elRaLTaA) | [下载](../channels/zihong/_Qf6elRaLTaA.srt?raw=true) | [下载](../channels/zihong/_Qf6elRaLTaA.tw.srt?raw=true) | 
+| 【第八期】金正恩染病毒开胸手术，金正恩死因将会导致中朝决裂！！！死亡后的金与正将会如何处理朝鲜走向？？ | [下载](https://y2mate.com/zh-cn/search/fKM9Jkoi1To) | [下载](../channels/zihong/_fKM9Jkoi1To.srt?raw=true) | [下载](../channels/zihong/_fKM9Jkoi1To.tw.srt?raw=true) | 
 | 中国经济之7，中国的房地产彻底要完蛋，26%的失业潮将要引爆断供潮，和中国最后的银行业危机 | [下载](https://y2mate.com/zh-cn/search/Iyt6XHstIZg) | [下载](../channels/zihong/_Iyt6XHstIZg.srt?raw=true) | [下载](../channels/zihong/_Iyt6XHstIZg.tw.srt?raw=true) | 
 | 中国经济之6，美国原油期货价格跌至-37美元，买石油送美金，别傻了！中国老百姓油价无任何变化，因为。。 | [下载](https://y2mate.com/zh-cn/search/6NyXRHW1S_Y) | [下载](../channels/zihong/_6NyXRHW1S_Y.srt?raw=true) | [下载](../channels/zihong/_6NyXRHW1S_Y.tw.srt?raw=true) | 
 | 中国时事之1，中共全世界掀起【求求你表扬我】外交闹剧，为什么领事夫人用HOTMAIL？ | [下载](https://y2mate.com/zh-cn/search/FBbZE3X2HcQ) | [下载](../channels/zihong/_FBbZE3X2HcQ.srt?raw=true) | [下载](../channels/zihong/_FBbZE3X2HcQ.tw.srt?raw=true) | 
