@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国经济2000多亿美元投资海外打水漂？中共将如何应对来自非洲国家的冲击？习近平又要打撒币了？？【第10期】 | [下载](https://y2mate.com/zh-cn/search/nZWji6FAnbs) | [下载](../channels/zihong/_nZWji6FAnbs.srt?raw=true) | [下载](../channels/zihong/_nZWji6FAnbs.tw.srt?raw=true) | 
 | 【第九期】投资1万元亏2.66亿的中行原油宝，赌局一场下投资者难逃割韭菜命运！主权豁免条例修改后中共难保1.1万亿美债！ | [下载](https://y2mate.com/zh-cn/search/Qf6elRaLTaA) | [下载](../channels/zihong/_Qf6elRaLTaA.srt?raw=true) | [下载](../channels/zihong/_Qf6elRaLTaA.tw.srt?raw=true) | 
 | 【第八期】金正恩染病毒开胸手术，金正恩死因将会导致中朝决裂！！！死亡后的金与正将会如何处理朝鲜走向？？ | [下载](https://y2mate.com/zh-cn/search/fKM9Jkoi1To) | [下载](../channels/zihong/_fKM9Jkoi1To.srt?raw=true) | [下载](../channels/zihong/_fKM9Jkoi1To.tw.srt?raw=true) | 
 | 中国经济之7，中国的房地产彻底要完蛋，26%的失业潮将要引爆断供潮，和中国最后的银行业危机 | [下载](https://y2mate.com/zh-cn/search/Iyt6XHstIZg) | [下载](../channels/zihong/_Iyt6XHstIZg.srt?raw=true) | [下载](../channels/zihong/_Iyt6XHstIZg.tw.srt?raw=true) | 

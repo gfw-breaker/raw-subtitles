@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 俯臥撐 | [下载](https://y2mate.com/zh-cn/search/_RW7FbByVB0) | [下载](../channels/yuchao/__RW7FbByVB0.srt?raw=true) | [下载](../channels/yuchao/__RW7FbByVB0.tw.srt?raw=true) | 
 | 美國教育觀察・中學篇 - 20200308 第87期 | [下载](https://y2mate.com/zh-cn/search/LQKAUo-L6Gg) | [下载](../channels/yuchao/_LQKAUo-L6Gg.srt?raw=true) | [下载](../channels/yuchao/_LQKAUo-L6Gg.tw.srt?raw=true) | 
 | 承擔公共責任； 繁華與孤寂 -02020301 第86期 | [下载](https://y2mate.com/zh-cn/search/hT-14C3nQJk) | [下载](../channels/yuchao/_hT-14C3nQJk.srt?raw=true) | [下载](../channels/yuchao/_hT-14C3nQJk.tw.srt?raw=true) | 
 | 退出中共邪惡組織，獲得被拯救的機會；宗教裁判個體戶，口含天憲的迷你紅太陽 - 20200226 第85期 | [下载](https://y2mate.com/zh-cn/search/CJ6tdom8Szs) | [下载](../channels/yuchao/_CJ6tdom8Szs.srt?raw=true) | [下载](../channels/yuchao/_CJ6tdom8Szs.tw.srt?raw=true) | 
