@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 房地产巨无霸之中国融通，将会给中国经济带来何种变局？背后的国资委背后有何考量？子弘闲谈 第011期 20200425 | [下载](https://y2mate.com/zh-cn/search/DD2i9wZAGx0) | [下载](../channels/zihong/_DD2i9wZAGx0.srt?raw=true) | [下载](../channels/zihong/_DD2i9wZAGx0.tw.srt?raw=true) | 
 | 金正恩染病毒开胸手术秘不发丧，金正恩死因将会导致中朝决裂！！！死亡后的金与正将会如何处理朝鲜走向？？子弘闲谈第008期 ·20200423 | [下载](https://y2mate.com/zh-cn/search/fKM9Jkoi1To) | [下载](../channels/zihong/_fKM9Jkoi1To.srt?raw=true) | [下载](../channels/zihong/_fKM9Jkoi1To.tw.srt?raw=true) | 
 | 中国经济2000多亿美元投资海外打水漂？中共将如何应对来自非洲国家的冲击？习近平又要打撒币了？？子弘闲谈第010期 ·20200424 | [下载](https://y2mate.com/zh-cn/search/nZWji6FAnbs) | [下载](../channels/zihong/_nZWji6FAnbs.srt?raw=true) | [下载](../channels/zihong/_nZWji6FAnbs.tw.srt?raw=true) | 
 | 投资1万元亏2.66亿的中行原油宝，赌局一场下投资者难逃割韭菜命运！主权豁免条例修改后中共难保1.1万亿美债！子弘闲谈第009期 ·20200423 | [下载](https://y2mate.com/zh-cn/search/Qf6elRaLTaA) | [下载](../channels/zihong/_Qf6elRaLTaA.srt?raw=true) | [下载](../channels/zihong/_Qf6elRaLTaA.tw.srt?raw=true) | 
