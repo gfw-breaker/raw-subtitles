@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 金正恩无力回天？方方公案延烧南京，小崔舍身加入；王全璋蜚声世界，大变局来临！（老北京茶馆_第295集_2020_04_25） | [下载](https://y2mate.com/zh-cn/search/i8qhntjB1n0) | [下载](../channels/teahouse/_i8qhntjB1n0.srt?raw=true) | [下载](../channels/teahouse/_i8qhntjB1n0.tw.srt?raw=true) | 
 | 两岸要开打？美轰炸机重大异动，蔡英文愿承受第一波打击！习近平不敢攻台五个理由！（老北京茶馆_第294集_2020_04_24） | [下载](https://y2mate.com/zh-cn/search/z_P9uggXTcg) | [下载](../channels/teahouse/_z_P9uggXTcg.srt?raw=true) | [下载](../channels/teahouse/_z_P9uggXTcg.tw.srt?raw=true) | 
 | 金正恩刷屏，特朗普发声！中共大哥怎么办？孙力军被拿下后现表忠潮，反习阵营遭重创？（老北京茶馆_第293集_2020_04_22） | [下载](https://y2mate.com/zh-cn/search/9y0ikeTHU5E) | [下载](../channels/teahouse/_9y0ikeTHU5E.srt?raw=true) | [下载](../channels/teahouse/_9y0ikeTHU5E.tw.srt?raw=true) | 
 | 一本方方日记引发的公案！王全璋出狱后下第一顿馆子、接受第一个采访！（老北京茶馆_第292集_2020_04_21） | [下载](https://y2mate.com/zh-cn/search/u1Li51oruqI) | [下载](../channels/teahouse/_u1Li51oruqI.srt?raw=true) | [下载](../channels/teahouse/_u1Li51oruqI.tw.srt?raw=true) | 
