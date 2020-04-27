@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 原油宝还没平息，生猪期货已经着手上市，经济上的通货膨胀能否被控制？投资客如何避免不当韭菜，请看这个视频！子弘闲谈 第012期 20200426 | [下载](https://y2mate.com/zh-cn/search/vcEQ8hu9DgA) | [下载](../channels/zihong/_vcEQ8hu9DgA.srt?raw=true) | [下载](../channels/zihong/_vcEQ8hu9DgA.tw.srt?raw=true) | 
 | 房地产巨无霸之中国融通，将会给中国经济带来何种变局？背后的国资委背后有何考量？子弘闲谈 第011期 20200425 | [下载](https://y2mate.com/zh-cn/search/DD2i9wZAGx0) | [下载](../channels/zihong/_DD2i9wZAGx0.srt?raw=true) | [下载](../channels/zihong/_DD2i9wZAGx0.tw.srt?raw=true) | 
 | 金正恩染病毒开胸手术秘不发丧，金正恩死因将会导致中朝决裂！！！死亡后的金与正将会如何处理朝鲜走向？？子弘闲谈第008期 ·20200423 | [下载](https://y2mate.com/zh-cn/search/fKM9Jkoi1To) | [下载](../channels/zihong/_fKM9Jkoi1To.srt?raw=true) | [下载](../channels/zihong/_fKM9Jkoi1To.tw.srt?raw=true) | 
 | 中国经济2000多亿美元投资海外打水漂？中共将如何应对来自非洲国家的冲击？习近平又要打撒币了？？子弘闲谈第010期 ·20200424 | [下载](https://y2mate.com/zh-cn/search/nZWji6FAnbs) | [下载](../channels/zihong/_nZWji6FAnbs.srt?raw=true) | [下载](../channels/zihong/_nZWji6FAnbs.tw.srt?raw=true) | 
