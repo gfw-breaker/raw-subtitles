@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 群众又喜迎高速收费？蓬佩奥炮轰香港23条；中共外交部推文遭美官员改作业！（老北京茶馆_第298集_2020_04_30） | [下载](https://y2mate.com/zh-cn/search/X5P92AxyPNg) | [下载](../channels/teahouse/_X5P92AxyPNg.srt?raw=true) | [下载](../channels/teahouse/_X5P92AxyPNg.tw.srt?raw=true) | 
 | 300万中招者索赔？牡丹江哈尔滨告急，第二轮重演？中美之间，特殊时期那些真实故事（老北京茶馆_第297集_2020_04_28） | [下载](https://y2mate.com/zh-cn/search/xAyXK12lJLE) | [下载](../channels/teahouse/_xAyXK12lJLE.srt?raw=true) | [下载](../channels/teahouse/_xAyXK12lJLE.tw.srt?raw=true) | 
 | 王全璋团圆！特朗普普京联手、澳洲冲锋、小弟叛变！全球追责，中共祭出最昏一招？（老北京茶馆_第296集_2020_04_27） | [下载](https://y2mate.com/zh-cn/search/yQjQOuSOykM) | [下载](../channels/teahouse/_yQjQOuSOykM.srt?raw=true) | [下载](../channels/teahouse/_yQjQOuSOykM.tw.srt?raw=true) | 
 | 金正恩无力回天？方方公案延烧南京，小崔舍身加入；王全璋蜚声世界，大变局来临！（老北京茶馆_第295集_2020_04_25） | [下载](https://y2mate.com/zh-cn/search/i8qhntjB1n0) | [下载](../channels/teahouse/_i8qhntjB1n0.srt?raw=true) | [下载](../channels/teahouse/_i8qhntjB1n0.tw.srt?raw=true) | 
