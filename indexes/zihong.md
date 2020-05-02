@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中国经济彻底要坍塌啦！！！这两个企业每天以4亿元的速度在亏损，中共高层内有人发话，十万火急救经济 子弘闲谈 第016期 20200501 | [下载](https://y2mate.com/zh-cn/search/se6Pm-KItiE) | [下载](../channels/zihong/_se6Pm-KItiE.srt?raw=true) | [下载](../channels/zihong/_se6Pm-KItiE.tw.srt?raw=true) | 
 | 中国家庭财富已经达到317万？？别扯了，房子的虚拟财富，刚需的悲惨前途，中国穷人竟然这么穷！！！子弘闲谈 第015期 20200501 | [下载](https://y2mate.com/zh-cn/search/Ceo6Yp41ydk) | [下载](../channels/zihong/_Ceo6Yp41ydk.srt?raw=true) | [下载](../channels/zihong/_Ceo6Yp41ydk.tw.srt?raw=true) | 
 | 惊爆！王健林万达帝国的崩塌与中共的房地产治国策略，王健林3个月隐身的背后和王健林身上的枷锁？？？子弘闲谈 第014期 20200429 | [下载](https://y2mate.com/zh-cn/search/vfx3yvch-zc) | [下载](../channels/zihong/_vfx3yvch-zc.srt?raw=true) | [下载](../channels/zihong/_vfx3yvch-zc.tw.srt?raw=true) | 
 | 惊爆！上海房地产商拒绝'房子涨价'被警察抓捕！厦门房价拍出新地王竟然意味着这种结局？？？子弘闲谈 第013期 20200427 | [下载](https://y2mate.com/zh-cn/search/2B0qaNY2jbM) | [下载](../channels/zihong/_2B0qaNY2jbM.srt?raw=true) | [下载](../channels/zihong/_2B0qaNY2jbM.tw.srt?raw=true) | 
