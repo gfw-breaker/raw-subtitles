@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 三八线南北韩交锋与金正恩的露面;四封蹊跷的公开信显示习近平处境危殆;那些中南海的恩怨旧事(政论天下第160集 20200503)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DLLuNIjvd8g) | [下载](../channels/tianliang/_DLLuNIjvd8g.srt?raw=true) | [下载](../channels/tianliang/_DLLuNIjvd8g.tw.srt?raw=true) | 
 | 石正丽终于发声;美国情报部门怎么说中共应对三板斧.关于金正恩与孟建柱的传闻(政论天下第159集 20200502)天亮时分 | [下载](https://y2mate.com/zh-cn/search/r4_fKfKjl5Q) | [下载](../channels/tianliang/_r4_fKfKjl5Q.srt?raw=true) | [下载](../channels/tianliang/_r4_fKfKjl5Q.tw.srt?raw=true) | 
 | 两会日期确定,习近平的三大头疼问题;历史上皇叔即位的往事;民族主义将疯狂高涨(政论天下第158集 20200430)天亮时分 | [下载](https://y2mate.com/zh-cn/search/IlI2t-osaho) | [下载](../channels/tianliang/_IlI2t-osaho.srt?raw=true) | [下载](../channels/tianliang/_IlI2t-osaho.tw.srt?raw=true) | 
 | 金正恩咋了川普为何就是不说被骂成“人类公敌”,蓬佩奥该如何应对全球经济崩溃是中共收购廉价资产的好时机吗(政论天下第157集 20200429)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ItA90ka3C2A) | [下载](../channels/tianliang/_ItA90ka3C2A.srt?raw=true) | [下载](../channels/tianliang/_ItA90ka3C2A.tw.srt?raw=true) | 
