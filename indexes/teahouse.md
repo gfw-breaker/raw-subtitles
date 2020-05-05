@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 揭揭美国义情的老底！金正恩紧急冒泡；俄罗斯又两高层中招！世卫组织惊现吹哨人！（老北京茶馆_第300集_2020_05_03） | [下载](https://y2mate.com/zh-cn/search/kXLKWmjmUQU) | [下载](../channels/teahouse/_kXLKWmjmUQU.srt?raw=true) | [下载](../channels/teahouse/_kXLKWmjmUQU.tw.srt?raw=true) | 
 | 俄总理、巴议长中招！红色战士不敢怼普京的原因曝光！习近平的党必须为三件事买单？（老北京茶馆_第299集_2020_05_01） | [下载](https://y2mate.com/zh-cn/search/n3jiNU_6MtQ) | [下载](../channels/teahouse/_n3jiNU_6MtQ.srt?raw=true) | [下载](../channels/teahouse/_n3jiNU_6MtQ.tw.srt?raw=true) | 
 | 群众又喜迎高速收费？蓬佩奥炮轰香港23条；中共外交部推文遭美官员改作业！（老北京茶馆_第298集_2020_04_30） | [下载](https://y2mate.com/zh-cn/search/X5P92AxyPNg) | [下载](../channels/teahouse/_X5P92AxyPNg.srt?raw=true) | [下载](../channels/teahouse/_X5P92AxyPNg.tw.srt?raw=true) | 
 | 300万中招者索赔？牡丹江哈尔滨告急，第二轮重演？中美之间，特殊时期那些真实故事（老北京茶馆_第297集_2020_04_28） | [下载](https://y2mate.com/zh-cn/search/xAyXK12lJLE) | [下载](../channels/teahouse/_xAyXK12lJLE.srt?raw=true) | [下载](../channels/teahouse/_xAyXK12lJLE.tw.srt?raw=true) | 
