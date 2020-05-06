@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 萧茗采访班农：你见了国内出逃科学家？央视为何选此时攻击你？美国情报机构有警告你吗？ | [下载](https://y2mate.com/zh-cn/search/ap3k4WGp6Pk) | [下载](../channels/simonegao/_ap3k4WGp6Pk.srt?raw=true) | [下载](../channels/simonegao/_ap3k4WGp6Pk.tw.srt?raw=true) | 
 | 川普要发大招！禁止美国退休金投资中国，为全面停止对中共投资拉开序幕。 | [下载](https://y2mate.com/zh-cn/search/CHOoVk_HZyA) | [下载](../channels/simonegao/_CHOoVk_HZyA.srt?raw=true) | [下载](../channels/simonegao/_CHOoVk_HZyA.tw.srt?raw=true) | 
 | 美国暂停绿卡申请，意味着什么？ | [下载](https://y2mate.com/zh-cn/search/WNyrWGa5JGw) | [下载](../channels/simonegao/_WNyrWGa5JGw.srt?raw=true) | [下载](../channels/simonegao/_WNyrWGa5JGw.tw.srt?raw=true) | 
 | 武力攻台可能吗？美国能保护台湾吗？中共不怕粮荒的原因源于3月特殊举措？美军太平洋舰队前情报主任采访要点；中共最怕国内民变还是国外压力？ | [下载](https://y2mate.com/zh-cn/search/jnnpBOB2olc) | [下载](../channels/simonegao/_jnnpBOB2olc.srt?raw=true) | [下载](../channels/simonegao/_jnnpBOB2olc.tw.srt?raw=true) | 
