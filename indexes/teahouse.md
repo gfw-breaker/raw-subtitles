@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 紧急保护石正丽！追责四起，党情急甩锅法国？茶友亲历的后义情真实生活（老北京茶馆_第302集_2020_05_05） | [下载](https://y2mate.com/zh-cn/search/Eb-NPHZOw3c) | [下载](../channels/teahouse/_Eb-NPHZOw3c.srt?raw=true) | [下载](../channels/teahouse/_Eb-NPHZOw3c.tw.srt?raw=true) | 
 | 傅政华孟建柱摊事？骂谁谁火，这回是班农！那个实验室被川普蓬佩奥盯上了！（老北京茶馆_第301集_2020_05_04） | [下载](https://y2mate.com/zh-cn/search/GM6SBTsCt_8) | [下载](../channels/teahouse/_GM6SBTsCt_8.srt?raw=true) | [下载](../channels/teahouse/_GM6SBTsCt_8.tw.srt?raw=true) | 
 | 揭揭美国义情的老底！金正恩紧急冒泡；俄罗斯又两高层中招！世卫组织惊现吹哨人！（老北京茶馆_第300集_2020_05_03） | [下载](https://y2mate.com/zh-cn/search/kXLKWmjmUQU) | [下载](../channels/teahouse/_kXLKWmjmUQU.srt?raw=true) | [下载](../channels/teahouse/_kXLKWmjmUQU.tw.srt?raw=true) | 
 | 俄总理、巴议长中招！红色战士不敢怼普京的原因曝光！习近平的党必须为三件事买单？（老北京茶馆_第299集_2020_05_01） | [下载](https://y2mate.com/zh-cn/search/n3jiNU_6MtQ) | [下载](../channels/teahouse/_n3jiNU_6MtQ.srt?raw=true) | [下载](../channels/teahouse/_n3jiNU_6MtQ.tw.srt?raw=true) | 
