@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 为什么说中共一定要武力统一台湾？？美国航母瘫痪的当下是中共攻击台湾的好时机吗？？子弘闲谈 第019期 20200506 | [下载](https://y2mate.com/zh-cn/search/39zpu00TqEM) | [下载](../channels/zihong/_39zpu00TqEM.srt?raw=true) | [下载](../channels/zihong/_39zpu00TqEM.tw.srt?raw=true) | 
 | 中共原来因为这个不发人民币？？？揭穿中共的谎言之 子弘闲谈 第018期 20200504 | [下载](https://y2mate.com/zh-cn/search/yXBWd7UrwCg) | [下载](../channels/zihong/_yXBWd7UrwCg.srt?raw=true) | [下载](../channels/zihong/_yXBWd7UrwCg.tw.srt?raw=true) | 
 | 金正恩之替身，金正恩对中共所造成的冲击如此之大，速看！！子弘闲谈 第017期 20200503 | [下载](https://y2mate.com/zh-cn/search/1m4UjnHtR3E) | [下载](../channels/zihong/_1m4UjnHtR3E.srt?raw=true) | [下载](../channels/zihong/_1m4UjnHtR3E.tw.srt?raw=true) | 
 | 中国经济彻底要坍塌啦！！！这两个企业每天以4亿元的速度在亏损，中共高层内有人发话，十万火急救经济 子弘闲谈 第016期 20200501 | [下载](https://y2mate.com/zh-cn/search/se6Pm-KItiE) | [下载](../channels/zihong/_se6Pm-KItiE.srt?raw=true) | [下载](../channels/zihong/_se6Pm-KItiE.tw.srt?raw=true) | 
