@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美国国务卿暗示将建立排除中共的国际新秩序;战狼认怂,中共正失去维系政权的最后手段(政论天下第162集 20200507)天亮时分 | [下载](https://y2mate.com/zh-cn/search/KqeR9clCy7M) | [下载](../channels/tianliang/_KqeR9clCy7M.srt?raw=true) | [下载](../channels/tianliang/_KqeR9clCy7M.tw.srt?raw=true) | 
 | 路透社独家披露的国安内部报告说了什么美国逐步重启经济,对中共是重大坏消息;也说五四101周年(政论天下第161集 20200504)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ZYX_v40KGeg) | [下载](../channels/tianliang/_ZYX_v40KGeg.srt?raw=true) | [下载](../channels/tianliang/_ZYX_v40KGeg.tw.srt?raw=true) | 
 | 路透社独家披露的国安内部报告说了什么美国逐步重启经济,对中共是重大坏消息;也说五四101周年(政论天下第161集 20200504)天亮时分 | [下载](https://y2mate.com/zh-cn/search/uQ2Coj_QLU0) | [下载](../channels/tianliang/_uQ2Coj_QLU0.srt?raw=true) | [下载](../channels/tianliang/_uQ2Coj_QLU0.tw.srt?raw=true) | 
 | 三八线南北韩交锋与金正恩的露面;四封蹊跷的公开信显示习近平处境危殆;那些中南海的恩怨旧事(政论天下第160集 20200503)天亮时分 | [下载](https://y2mate.com/zh-cn/search/DLLuNIjvd8g) | [下载](../channels/tianliang/_DLLuNIjvd8g.srt?raw=true) | [下载](../channels/tianliang/_DLLuNIjvd8g.tw.srt?raw=true) | 
