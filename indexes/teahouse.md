@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平要谭德塞办俩事遭曝光！致全球损失4-6周？美国治理党媒掏粪工？小粉红觉醒了？（老北京茶馆_第305集_2020_05_09） | [下载](https://y2mate.com/zh-cn/search/23khjjFVJMg) | [下载](../channels/teahouse/_23khjjFVJMg.srt?raw=true) | [下载](../channels/teahouse/_23khjjFVJMg.tw.srt?raw=true) | 
 | 女版川普麦肯妮完胜华春莹？蓬佩奥挑拨党群关系？中美两国获奖新闻出炉，惊掉下巴！（老北京茶馆_第304集_2020_05_08） | [下载](https://y2mate.com/zh-cn/search/W7BdhXXZCF8) | [下载](../channels/teahouse/_W7BdhXXZCF8.srt?raw=true) | [下载](../channels/teahouse/_W7BdhXXZCF8.tw.srt?raw=true) | 
 | 习近平指示乔良：武统台湾无限期拖延？中共再拒世卫调查！华春莹替王全璋喊冤？老北京茶馆_第303集_2020_05_07） | [下载](https://y2mate.com/zh-cn/search/t7IW1Pk3X9Q) | [下载](../channels/teahouse/_t7IW1Pk3X9Q.srt?raw=true) | [下载](../channels/teahouse/_t7IW1Pk3X9Q.tw.srt?raw=true) | 
 | 紧急保护石正丽！追责四起，党情急甩锅法国？茶友亲历的后义情真实生活（老北京茶馆_第302集_2020_05_05） | [下载](https://y2mate.com/zh-cn/search/Eb-NPHZOw3c) | [下载](../channels/teahouse/_Eb-NPHZOw3c.srt?raw=true) | [下载](../channels/teahouse/_Eb-NPHZOw3c.tw.srt?raw=true) | 
