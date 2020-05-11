@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 暴雷！中国经济内部孕育财政赤字货币化计划，人民币大通胀不是梦！！ 子弘闲谈 第023期 20200510 | [下载](https://y2mate.com/zh-cn/search/g8YPgQroyrQ) | [下载](../channels/zihong/_g8YPgQroyrQ.srt?raw=true) | [下载](../channels/zihong/_g8YPgQroyrQ.tw.srt?raw=true) | 
 | 中国经济招商引资2.0即将到来，了解下他对于自己的影响？？？子弘闲谈 第022期 20200508 | [下载](https://y2mate.com/zh-cn/search/fwQLe4Nb-00) | [下载](../channels/zihong/_fwQLe4Nb-00.srt?raw=true) | [下载](../channels/zihong/_fwQLe4Nb-00.tw.srt?raw=true) | 
 | 全球即将进入【通胀型大萧条】，美国花了14年走出，中共要花多少年？？子弘闲谈 第021期 20200508 | [下载](https://y2mate.com/zh-cn/search/HOX_l-l0YBs) | [下载](../channels/zihong/_HOX_l-l0YBs.srt?raw=true) | [下载](../channels/zihong/_HOX_l-l0YBs.tw.srt?raw=true) | 
 | 人民币（中国经济）的将来会是这个样子！比特币的价格突然暴涨4倍的背后！ 货币改革从人民手里抢钱！ 子弘闲谈 第020期 20200507 | [下载](https://y2mate.com/zh-cn/search/UZdLIUUVPrE) | [下载](../channels/zihong/_UZdLIUUVPrE.srt?raw=true) | [下载](../channels/zihong/_UZdLIUUVPrE.tw.srt?raw=true) | 
