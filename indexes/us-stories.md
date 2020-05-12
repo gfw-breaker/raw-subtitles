@@ -4,8 +4,8 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 美國的特許學校 【美國教育】21 | [下载](https://y2mate.com/zh-cn/search/Uf2UqCQU5OQ) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.srt?raw=true) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.tw.srt?raw=true) | 
-| 【清聊美國】20 - 九岁女孩筑梦之路 | [下载](https://y2mate.com/zh-cn/search/tQ1ChIos1wk) | [下载](../channels/us-stories/_tQ1ChIos1wk.srt?raw=true) | [下载](../channels/us-stories/_tQ1ChIos1wk.tw.srt?raw=true) | 
-| 【清聊美國 - 美國教育】19 - 女孩子温暖了寒冬 | [下载](https://y2mate.com/zh-cn/search/oRGbf7abhA8) | [下载](../channels/us-stories/_oRGbf7abhA8.srt?raw=true) | [下载](../channels/us-stories/_oRGbf7abhA8.tw.srt?raw=true) | 
+| 九岁女孩筑梦之路 【美国教育】20 | [下载](https://y2mate.com/zh-cn/search/tQ1ChIos1wk) | [下载](../channels/us-stories/_tQ1ChIos1wk.srt?raw=true) | [下载](../channels/us-stories/_tQ1ChIos1wk.tw.srt?raw=true) | 
+| 女孩子温暖了寒冬 【美國教育】19 | [下载](https://y2mate.com/zh-cn/search/oRGbf7abhA8) | [下载](../channels/us-stories/_oRGbf7abhA8.srt?raw=true) | [下载](../channels/us-stories/_oRGbf7abhA8.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】18 - 怎样给老师送礼？ | [下载](https://y2mate.com/zh-cn/search/z64RuG3hWBs) | [下载](../channels/us-stories/_z64RuG3hWBs.srt?raw=true) | [下载](../channels/us-stories/_z64RuG3hWBs.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】17 - 女童子军的王牌活动 | [下载](https://y2mate.com/zh-cn/search/ISXC6wKywq4) | [下载](../channels/us-stories/_ISXC6wKywq4.srt?raw=true) | [下载](../channels/us-stories/_ISXC6wKywq4.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】16 - 童子军的起源 Boy Scouts of America | [下载](https://y2mate.com/zh-cn/search/YcVwDng7AOM) | [下载](../channels/us-stories/_YcVwDng7AOM.srt?raw=true) | [下载](../channels/us-stories/_YcVwDng7AOM.tw.srt?raw=true) | 
