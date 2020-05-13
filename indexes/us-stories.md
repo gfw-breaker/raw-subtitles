@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 你不知道的美國名校【美國教育】22 | [下载](https://y2mate.com/zh-cn/search/THzTVaIY9TM) | [下载](../channels/us-stories/_THzTVaIY9TM.srt?raw=true) | [下载](../channels/us-stories/_THzTVaIY9TM.tw.srt?raw=true) | 
 | 美國的特許學校 【美國教育】21 | [下载](https://y2mate.com/zh-cn/search/Uf2UqCQU5OQ) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.srt?raw=true) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.tw.srt?raw=true) | 
 | 九岁女孩筑梦之路 【美国教育】20 | [下载](https://y2mate.com/zh-cn/search/tQ1ChIos1wk) | [下载](../channels/us-stories/_tQ1ChIos1wk.srt?raw=true) | [下载](../channels/us-stories/_tQ1ChIos1wk.tw.srt?raw=true) | 
 | 女孩子温暖了寒冬 【美國教育】19 | [下载](https://y2mate.com/zh-cn/search/oRGbf7abhA8) | [下载](../channels/us-stories/_oRGbf7abhA8.srt?raw=true) | [下载](../channels/us-stories/_oRGbf7abhA8.tw.srt?raw=true) | 
