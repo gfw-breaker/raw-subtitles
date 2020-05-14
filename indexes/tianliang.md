@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 直播：为什么全世界上亿人都在庆祝5月13日？ | [下载](https://y2mate.com/zh-cn/search/Q3TpRxYxbzY) | [下载](../channels/tianliang/_Q3TpRxYxbzY.srt?raw=true) | [下载](../channels/tianliang/_Q3TpRxYxbzY.tw.srt?raw=true) | 
 | 川普在行动;30亿美元推倒中共防火墙;脸书的“最高法院”与油管的公然左转(政论天下第164集 20200512)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mXhywX39_CE) | [下载](../channels/tianliang/_mXhywX39_CE.srt?raw=true) | [下载](../channels/tianliang/_mXhywX39_CE.tw.srt?raw=true) | 
 | 胡锡进千枚核弹之心理分析;针对中美贸易第一阶段协议,关税已非川普第一大招(政论天下第163集 20200509)天亮时分 | [下载](https://y2mate.com/zh-cn/search/TNzPTzYc1iY) | [下载](../channels/tianliang/_TNzPTzYc1iY.srt?raw=true) | [下载](../channels/tianliang/_TNzPTzYc1iY.tw.srt?raw=true) | 
 | 美国国务卿暗示将建立排除中共的国际新秩序;战狼认怂,中共正失去维系政权的最后手段(政论天下第162集 20200507)天亮时分 | [下载](https://y2mate.com/zh-cn/search/KqeR9clCy7M) | [下载](../channels/tianliang/_KqeR9clCy7M.srt?raw=true) | [下载](../channels/tianliang/_KqeR9clCy7M.tw.srt?raw=true) | 

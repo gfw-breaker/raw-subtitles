@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 三万亿经济刺激要下来了？通胀下每个人该如何面对？？美国对中国开启【无限追溯】模式 子弘闲谈 第025期 20200513 | [下载](https://y2mate.com/zh-cn/search/8hx3F9oqoqA) | [下载](../channels/zihong/_8hx3F9oqoqA.srt?raw=true) | [下载](../channels/zihong/_8hx3F9oqoqA.tw.srt?raw=true) | 
 | 注意，你的信用卡明细价值1毛钱不到？？从吐槽大会池子的隐私泄露谈中国银行的危机与中国人的信息管制 子弘闲谈 第024期 20200512 | [下载](https://y2mate.com/zh-cn/search/bEAWKmz9sJI) | [下载](../channels/zihong/_bEAWKmz9sJI.srt?raw=true) | [下载](../channels/zihong/_bEAWKmz9sJI.tw.srt?raw=true) | 
 | 暴雷！中国经济内部孕育财政赤字货币化计划，人民币大通胀不是梦！！ 子弘闲谈 第023期 20200510 | [下载](https://y2mate.com/zh-cn/search/g8YPgQroyrQ) | [下载](../channels/zihong/_g8YPgQroyrQ.srt?raw=true) | [下载](../channels/zihong/_g8YPgQroyrQ.tw.srt?raw=true) | 
 | 中国经济招商引资2.0即将到来，了解下他对于自己的影响？？？子弘闲谈 第022期 20200508 | [下载](https://y2mate.com/zh-cn/search/fwQLe4Nb-00) | [下载](../channels/zihong/_fwQLe4Nb-00.srt?raw=true) | [下载](../channels/zihong/_fwQLe4Nb-00.tw.srt?raw=true) | 
