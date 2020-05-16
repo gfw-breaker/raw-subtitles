@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 这一次富士康是真的要撤出中国了！郑州工厂出现规模性失业潮！三大原因解释撤出中国的原因 子弘闲谈 第027期 20200515 | [下载](https://y2mate.com/zh-cn/search/GsxoPfHVzEA) | [下载](../channels/zihong/_GsxoPfHVzEA.srt?raw=true) | [下载](../channels/zihong/_GsxoPfHVzEA.tw.srt?raw=true) | 
 | 中国经济大崩溃的前奏！直播带货30亿人民币的背后暗藏经济危机的发财之路！子弘闲谈 第026期 20200514 | [下载](https://y2mate.com/zh-cn/search/o7jgkr1Ycvw) | [下载](../channels/zihong/_o7jgkr1Ycvw.srt?raw=true) | [下载](../channels/zihong/_o7jgkr1Ycvw.tw.srt?raw=true) | 
 | 三万亿经济刺激要下来了？通胀下每个人该如何面对？？美国对中国开启【无限追溯】模式 子弘闲谈 第025期 20200513 | [下载](https://y2mate.com/zh-cn/search/8hx3F9oqoqA) | [下载](../channels/zihong/_8hx3F9oqoqA.srt?raw=true) | [下载](../channels/zihong/_8hx3F9oqoqA.tw.srt?raw=true) | 
 | 中国经济大崩溃从吐槽大会池子的隐私泄露谈中国银行的危机与中国人的信息管制 子弘闲谈 第024期 20200512 | [下载](https://y2mate.com/zh-cn/search/bEAWKmz9sJI) | [下载](../channels/zihong/_bEAWKmz9sJI.srt?raw=true) | [下载](../channels/zihong/_bEAWKmz9sJI.tw.srt?raw=true) | 

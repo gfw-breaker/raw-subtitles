@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普：可切断整个中美关系！不想和习近平说话！张召忠怼胡锡进？“习近平”遭封号？（老北京茶館_第308集_2020_05_15） | [下载](https://y2mate.com/zh-cn/search/z18a0ZeK6rA) | [下载](../channels/teahouse/_z18a0ZeK6rA.srt?raw=true) | [下载](../channels/teahouse/_z18a0ZeK6rA.tw.srt?raw=true) | 
 | 中共防火墙10月推倒！川普：100笔贸易协议也换不回逝去的生命！台湾人公开聚集？（老北京茶馆_第307集_2020_05_14） | [下载](https://y2mate.com/zh-cn/search/xP-_rLDpLKc) | [下载](../channels/teahouse/_xP-_rLDpLKc.srt?raw=true) | [下载](../channels/teahouse/_xP-_rLDpLKc.tw.srt?raw=true) | 
 | 习近平云冈石窟临时抱佛脚？张雪忠惊呆两会：重新立宪、废除党领导！孟建柱后院冒烟（老北京茶馆_第306集_2020_05_12） | [下载](https://y2mate.com/zh-cn/search/m8hu-knnYTA) | [下载](../channels/teahouse/_m8hu-knnYTA.srt?raw=true) | [下载](../channels/teahouse/_m8hu-knnYTA.tw.srt?raw=true) | 
 | 习近平要谭德塞办俩事遭曝光！致全球损失4-6周？美国治理党媒掏粪工？小粉红觉醒了？（老北京茶馆_第305集_2020_05_09） | [下载](https://y2mate.com/zh-cn/search/23khjjFVJMg) | [下载](../channels/teahouse/_23khjjFVJMg.srt?raw=true) | [下载](../channels/teahouse/_23khjjFVJMg.tw.srt?raw=true) | 
