@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 重磅！38万亿【新基建】会将中共推向悬崖还是宝座？这种企业可以得到108亿的补贴！子弘闲谈 第028期 20200516 | [下载](https://y2mate.com/zh-cn/search/cdmtWxNDzVA) | [下载](../channels/zihong/_cdmtWxNDzVA.srt?raw=true) | [下载](../channels/zihong/_cdmtWxNDzVA.tw.srt?raw=true) | 
 | 这一次富士康是真的要撤出中国了！郑州工厂出现规模性失业潮！三大原因解释撤出中国的原因 子弘闲谈 第027期 20200515 | [下载](https://y2mate.com/zh-cn/search/GsxoPfHVzEA) | [下载](../channels/zihong/_GsxoPfHVzEA.srt?raw=true) | [下载](../channels/zihong/_GsxoPfHVzEA.tw.srt?raw=true) | 
 | 中国经济大崩溃的前奏！直播带货30亿人民币的背后暗藏经济危机的发财之路！子弘闲谈 第026期 20200514 | [下载](https://y2mate.com/zh-cn/search/o7jgkr1Ycvw) | [下载](../channels/zihong/_o7jgkr1Ycvw.srt?raw=true) | [下载](../channels/zihong/_o7jgkr1Ycvw.tw.srt?raw=true) | 
 | 三万亿经济刺激要下来了？通胀下每个人该如何面对？？美国对中国开启【无限追溯】模式 子弘闲谈 第025期 20200513 | [下载](https://y2mate.com/zh-cn/search/8hx3F9oqoqA) | [下载](../channels/zihong/_8hx3F9oqoqA.srt?raw=true) | [下载](../channels/zihong/_8hx3F9oqoqA.tw.srt?raw=true) | 
