@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共10万亿救经济;台海之战子虚乌有;川普的两记重拳;中美大规模脱钩可能从今年11月开始(政论天下第166集 20200516)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mLAkIorJ43g) | [下载](../channels/tianliang/_mLAkIorJ43g.srt?raw=true) | [下载](../channels/tianliang/_mLAkIorJ43g.tw.srt?raw=true) | 
 | 直播：为什么全世界上亿人都在庆祝5月13日？ | [下载](https://y2mate.com/zh-cn/search/Q3TpRxYxbzY) | [下载](../channels/tianliang/_Q3TpRxYxbzY.srt?raw=true) | [下载](../channels/tianliang/_Q3TpRxYxbzY.tw.srt?raw=true) | 
 | 川普在行动;30亿美元推倒中共防火墙;脸书的“最高法院”与油管的公然左转(政论天下第164集 20200512)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mXhywX39_CE) | [下载](../channels/tianliang/_mXhywX39_CE.srt?raw=true) | [下载](../channels/tianliang/_mXhywX39_CE.tw.srt?raw=true) | 
 | 胡锡进千枚核弹之心理分析;针对中美贸易第一阶段协议,关税已非川普第一大招(政论天下第163集 20200509)天亮时分 | [下载](https://y2mate.com/zh-cn/search/TNzPTzYc1iY) | [下载](../channels/tianliang/_TNzPTzYc1iY.srt?raw=true) | [下载](../channels/tianliang/_TNzPTzYc1iY.tw.srt?raw=true) | 
