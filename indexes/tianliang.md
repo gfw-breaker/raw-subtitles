@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蔡英文就职,蓬佩奥亲自祝贺的深层意义;蔡英文演说的亮点与遗憾;疫情发展趋势喜忧参半(政论天下第168集 20200520)天亮时分 | [下载](https://y2mate.com/zh-cn/search/qWYgN3etFLE) | [下载](../channels/tianliang/_qWYgN3etFLE.srt?raw=true) | [下载](../channels/tianliang/_qWYgN3etFLE.tw.srt?raw=true) | 
 | 川普列世卫十四宗罪;世卫大会一致通过调查病毒源头和世卫角色决议;赵立坚上了追责黑名单;断供华为与瑞幸退市,川普还有大招(政论天下第167集 20200519)天亮时分 | [下载](https://y2mate.com/zh-cn/search/46Qh_VyFU1E) | [下载](../channels/tianliang/_46Qh_VyFU1E.srt?raw=true) | [下载](../channels/tianliang/_46Qh_VyFU1E.tw.srt?raw=true) | 
 | 中共10万亿救经济;台海之战子虚乌有;川普的两记重拳;中美大规模脱钩可能从今年11月开始(政论天下第166集 20200516)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mLAkIorJ43g) | [下载](../channels/tianliang/_mLAkIorJ43g.srt?raw=true) | [下载](../channels/tianliang/_mLAkIorJ43g.tw.srt?raw=true) | 
 | 直播：为什么全世界上亿人都在庆祝5月13日？ | [下载](https://y2mate.com/zh-cn/search/Q3TpRxYxbzY) | [下载](../channels/tianliang/_Q3TpRxYxbzY.srt?raw=true) | [下载](../channels/tianliang/_Q3TpRxYxbzY.tw.srt?raw=true) | 
