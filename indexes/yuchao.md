@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 反擊霸凌 2 —— 道德勸誡，還是生活小常識 20200521 第91期 | [下载](https://y2mate.com/zh-cn/search/mp3r9joN9W4) | [下载](../channels/yuchao/_mp3r9joN9W4.srt?raw=true) | [下载](../channels/yuchao/_mp3r9joN9W4.tw.srt?raw=true) | 
 | 擊退霸凌——真實地生活，真實地修煉 - 20200520 第90期 | [下载](https://y2mate.com/zh-cn/search/MAi8ZYwxPPA) | [下载](../channels/yuchao/_MAi8ZYwxPPA.srt?raw=true) | [下载](../channels/yuchao/_MAi8ZYwxPPA.tw.srt?raw=true) | 
 | 中共病毒是人造的還是天然的；是有意施放的還是無意的事故；西方世界卷入多深；最重要的事情經常沒有被提及 - 20200502 第89期 | [下载](https://y2mate.com/zh-cn/search/bgCVixFmUdo) | [下载](../channels/yuchao/_bgCVixFmUdo.srt?raw=true) | [下载](../channels/yuchao/_bgCVixFmUdo.tw.srt?raw=true) | 
 | 跳繩 （It is my life） | [下载](https://y2mate.com/zh-cn/search/98twE6MftiE) | [下载](../channels/yuchao/_98twE6MftiE.srt?raw=true) | [下载](../channels/yuchao/_98twE6MftiE.tw.srt?raw=true) | 
