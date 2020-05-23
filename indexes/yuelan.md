@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美國機場安檢有新規！川普：教堂本週開放！干洗手留車內恐爆炸？加大入學不再看SAT_ACT！中共毀約“一國兩制”？“香港國安法”遭國際譴責 | [下载](https://y2mate.com/zh-cn/search/8lsGFI3dj4c) | [下载](../channels/yuelan/_8lsGFI3dj4c.srt?raw=true) | [下载](../channels/yuelan/_8lsGFI3dj4c.tw.srt?raw=true) | 
 | 美失業又增240萬！美房地產銷售暴跌？房價有漲！加州大學_斯坦福9月返校上課！優勝美地重新開放有新規！Lake Tahoe暫禁短租度假，違者重罰$1000 | [下载](https://y2mate.com/zh-cn/search/BZ_bN-ecncE) | [下载](../channels/yuelan/_BZ_bN-ecncE.srt?raw=true) | [下载](../channels/yuelan/_BZ_bN-ecncE.tw.srt?raw=true) | 
 | 全美50州經濟開始重啓！苹果谷歌推出防疫APP！Napa餐廳購物中心開放！洛杉磯擬7月4日恢復？中國東北疫情二次爆發！病毒潛伏期更長？！美墨加旅行禁令延期！ | [下载](https://y2mate.com/zh-cn/search/WxdgLPKfMlI) | [下载](../channels/yuelan/_WxdgLPKfMlI.srt?raw=true) | [下载](../channels/yuelan/_WxdgLPKfMlI.tw.srt?raw=true) | 
 | 美聯邦補助將以預付卡發放！Walmart擴招23萬人！男子為理髮驅車600里來加州？！防疫模範台灣被排擠，美國狠批WHO | [下载](https://y2mate.com/zh-cn/search/bFKmZjIJwtg) | [下载](../channels/yuelan/_bFKmZjIJwtg.srt?raw=true) | [下载](../channels/yuelan/_bFKmZjIJwtg.tw.srt?raw=true) | 
