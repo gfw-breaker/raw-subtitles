@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平大惊！申纪兰泄露国安法秘密；华春莹搬石头砸美，石头被抢走！牡丹江封小区！（老北京茶館_第316集_2020_05_26） | [下载](https://y2mate.com/zh-cn/search/zL12uyBFSfY) | [下载](../channels/teahouse/_zL12uyBFSfY.srt?raw=true) | [下载](../channels/teahouse/_zL12uyBFSfY.tw.srt?raw=true) | 
 | 两会国安法再现灵异：英年早誓！524香港大游行：绝不投降！习近平推翻邓小平朱镕基承诺！（老北京茶館_第315集_2020_05_24） | [下载](https://y2mate.com/zh-cn/search/V-Y7aWyIcv8) | [下载](../channels/teahouse/_V-Y7aWyIcv8.srt?raw=true) | [下载](../channels/teahouse/_V-Y7aWyIcv8.tw.srt?raw=true) | 
 | 港版国安法惹怒川普！两会李克强：《紧日子指南》来啦！不要GDP、一国两制、九二共识（老北京茶館_第314集_2020_05_22） | [下载](https://y2mate.com/zh-cn/search/Xt-6Xl2mkxk) | [下载](../channels/teahouse/_Xt-6Xl2mkxk.srt?raw=true) | [下载](../channels/teahouse/_Xt-6Xl2mkxk.tw.srt?raw=true) | 
 | 中共两会密谋香港23条，北京黑天、灵异再现？蔡英文接美重型鱼雷大礼，赵立坚给习近平挖大坑？（老北京茶館_第313集_2020_05_21） | [下载](https://y2mate.com/zh-cn/search/h-0Y36spJwU) | [下载](../channels/teahouse/_h-0Y36spJwU.srt?raw=true) | [下载](../channels/teahouse/_h-0Y36spJwU.tw.srt?raw=true) | 
