@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美CDC：新冠病毒抗體測試不可信？！加州允許理髮店開放！迪士尼樂園Las Vegas賭場重開日期公佈！舊金山批准露天餐飲零售？美國判定“香港已失自治權”！或暫停特惠關稅？ | [下载](https://y2mate.com/zh-cn/search/Q0tzZhMJzfA) | [下载](../channels/yuelan/_Q0tzZhMJzfA.srt?raw=true) | [下载](../channels/yuelan/_Q0tzZhMJzfA.tw.srt?raw=true) | 
 | 美國提前實施巴西旅行禁令！新一輪聯邦補助案下月來臨？紐約州小企業及房東可申請補助！川普：香港恐失去金融地位？！ | [下载](https://y2mate.com/zh-cn/search/Iv2SNAtkgA0) | [下载](../channels/yuelan/_Iv2SNAtkgA0.srt?raw=true) | [下载](../channels/yuelan/_Iv2SNAtkgA0.tw.srt?raw=true) | 
 | 美國染疫死亡數已超10萬_加州允許進店購物！教堂開放服務？香港大規模抗議“國安法” ，黨媒反向報導？！ | [下载](https://y2mate.com/zh-cn/search/RsR50Mft86Y) | [下载](../channels/yuelan/_RsR50Mft86Y.srt?raw=true) | [下载](../channels/yuelan/_RsR50Mft86Y.tw.srt?raw=true) | 
 | 美國機場安檢有新規！川普：教堂本週開放！干洗手留車內恐爆炸？加大入學不再看SAT_ACT！中共毀約“一國兩制”？“香港國安法”遭國際譴責 | [下载](https://y2mate.com/zh-cn/search/8lsGFI3dj4c) | [下载](../channels/yuelan/_8lsGFI3dj4c.srt?raw=true) | [下载](../channels/yuelan/_8lsGFI3dj4c.tw.srt?raw=true) | 

@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集 20200526)天亮时分 | [下载](https://y2mate.com/zh-cn/search/swJSFPXTleQ) | [下载](../channels/tianliang/_swJSFPXTleQ.srt?raw=true) | [下载](../channels/tianliang/_swJSFPXTleQ.tw.srt?raw=true) | 
 | 中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集 20200526)天亮时分 | [下载](https://y2mate.com/zh-cn/search/B1J6ErRJirg) | [下载](../channels/tianliang/_B1J6ErRJirg.srt?raw=true) | [下载](../channels/tianliang/_B1J6ErRJirg.tw.srt?raw=true) | 
 | 习近平的政治豪赌;为何中共在欧美的合纵连横必然失败英国表态接受香港难民,香港人是否会投奔怒海(政论天下第171集 20200524)天亮时分 | [下载](https://y2mate.com/zh-cn/search/Q8tzew5AvvU) | [下载](../channels/tianliang/_Q8tzew5AvvU.srt?raw=true) | [下载](../channels/tianliang/_Q8tzew5AvvU.tw.srt?raw=true) | 
 | 香港是否会发生第二次“六四”;国安法通过在即,香港“一国两制”彻底死亡;美国国务院发表措辞空前强硬的声明(政论天下第170集 20200522)天亮时分 | [下载](https://y2mate.com/zh-cn/search/fIoYVFNHqmM) | [下载](../channels/tianliang/_fIoYVFNHqmM.srt?raw=true) | [下载](../channels/tianliang/_fIoYVFNHqmM.tw.srt?raw=true) | 
