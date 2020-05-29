@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美失業超4000萬！肉廠疫情又爆發？舊金山灣區7縣感染激增？美擬取消部份中國留學生簽證？中共通過香港國安法！美提案開放香港難民申請 | [下载](https://y2mate.com/zh-cn/search/EsOGOranqKo) | [下载](../channels/yuelan/_EsOGOranqKo.srt?raw=true) | [下载](../channels/yuelan/_EsOGOranqKo.tw.srt?raw=true) | 
 | 美CDC：新冠病毒抗體測試不可信？！加州允許理髮店開放！迪士尼樂園Las Vegas賭場重開日期公佈！舊金山批准露天餐飲零售？美國判定“香港已失自治權”！或暫停特惠關稅？ | [下载](https://y2mate.com/zh-cn/search/Q0tzZhMJzfA) | [下载](../channels/yuelan/_Q0tzZhMJzfA.srt?raw=true) | [下载](../channels/yuelan/_Q0tzZhMJzfA.tw.srt?raw=true) | 
 | 美國提前實施巴西旅行禁令！新一輪聯邦補助案下月來臨？紐約州小企業及房東可申請補助！川普：香港恐失去金融地位？！ | [下载](https://y2mate.com/zh-cn/search/Iv2SNAtkgA0) | [下载](../channels/yuelan/_Iv2SNAtkgA0.srt?raw=true) | [下载](../channels/yuelan/_Iv2SNAtkgA0.tw.srt?raw=true) | 
 | 美國染疫死亡數已超10萬_加州允許進店購物！教堂開放服務？香港大規模抗議“國安法” ，黨媒反向報導？！ | [下载](https://y2mate.com/zh-cn/search/RsR50Mft86Y) | [下载](../channels/yuelan/_RsR50Mft86Y.srt?raw=true) | [下载](../channels/yuelan/_RsR50Mft86Y.tw.srt?raw=true) | 
