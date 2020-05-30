@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 紐約6月8日重開？舊金山居家防疫無限延長？洛杉磯獲准店內用餐及理髮！川普：美國撤銷香港優待+制裁中共官員！退出WHO！ | [下载](https://y2mate.com/zh-cn/search/ZRMGYU8wpZY) | [下载](../channels/yuelan/_ZRMGYU8wpZY.srt?raw=true) | [下载](../channels/yuelan/_ZRMGYU8wpZY.tw.srt?raw=true) | 
 | 美失業超4000萬！肉廠疫情又爆發？舊金山灣區7縣感染激增？美擬取消部份中國留學生簽證？中共通過香港國安法！美提案開放香港難民申請 | [下载](https://y2mate.com/zh-cn/search/EsOGOranqKo) | [下载](../channels/yuelan/_EsOGOranqKo.srt?raw=true) | [下载](../channels/yuelan/_EsOGOranqKo.tw.srt?raw=true) | 
 | 美CDC：新冠病毒抗體測試不可信？！加州允許理髮店開放！迪士尼樂園Las Vegas賭場重開日期公佈！舊金山批准露天餐飲零售？美國判定“香港已失自治權”！或暫停特惠關稅？ | [下载](https://y2mate.com/zh-cn/search/Q0tzZhMJzfA) | [下载](../channels/yuelan/_Q0tzZhMJzfA.srt?raw=true) | [下载](../channels/yuelan/_Q0tzZhMJzfA.tw.srt?raw=true) | 
 | 美國提前實施巴西旅行禁令！新一輪聯邦補助案下月來臨？紐約州小企業及房東可申請補助！川普：香港恐失去金融地位？！ | [下载](https://y2mate.com/zh-cn/search/Iv2SNAtkgA0) | [下载](../channels/yuelan/_Iv2SNAtkgA0.srt?raw=true) | [下载](../channels/yuelan/_Iv2SNAtkgA0.tw.srt?raw=true) | 
