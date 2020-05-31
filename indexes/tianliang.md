@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普针对中共五连击;港币换美元狂潮,港币汇率可能不保;美国对抗中共效力最高的武器是什么(政论天下第174集 20200529)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ySXSMNb2L1Q) | [下载](../channels/tianliang/_ySXSMNb2L1Q.srt?raw=true) | [下载](../channels/tianliang/_ySXSMNb2L1Q.tw.srt?raw=true) | 
 | 美国认定香港丧失自治地位,盘点川普制裁中共的工具箱孟晚舟“双重犯罪”成立(政论天下第173集 20200527)天亮时分 | [下载](https://y2mate.com/zh-cn/search/6wFeFSLfU_Q) | [下载](../channels/tianliang/_6wFeFSLfU_Q.srt?raw=true) | [下载](../channels/tianliang/_6wFeFSLfU_Q.tw.srt?raw=true) | 
 | 中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集 20200526)天亮时分 | [下载](https://y2mate.com/zh-cn/search/swJSFPXTleQ) | [下载](../channels/tianliang/_swJSFPXTleQ.srt?raw=true) | [下载](../channels/tianliang/_swJSFPXTleQ.tw.srt?raw=true) | 
 | 中美相互警告“新冷战”开始;国安法背后另一重隐秘算计;从“保六”到“六保”,中共已经无牌可打(政论天下第172集 20200526)天亮时分 | [下载](https://y2mate.com/zh-cn/search/B1J6ErRJirg) | [下载](../channels/tianliang/_B1J6ErRJirg.srt?raw=true) | [下载](../channels/tianliang/_B1J6ErRJirg.tw.srt?raw=true) | 
