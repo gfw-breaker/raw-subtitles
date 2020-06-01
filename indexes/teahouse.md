@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？美国阴暗面里的华人思维（老北京茶館_第320集_2020_05_31） | [下载](https://y2mate.com/zh-cn/search/bY9hHJsl2Mg) | [下载](../channels/teahouse/_bY9hHJsl2Mg.srt?raw=true) | [下载](../channels/teahouse/_bY9hHJsl2Mg.tw.srt?raw=true) | 
 | 川普：香港已一国一制，不再享有特殊地位！李克强揭脱贫老底；央行：过半家庭要破产！（老北京茶館_第319集_2020_05_29） | [下载](https://y2mate.com/zh-cn/search/H7oC8udqJSs) | [下载](../channels/teahouse/_H7oC8udqJSs.srt?raw=true) | [下载](../channels/teahouse/_H7oC8udqJSs.tw.srt?raw=true) | 
 | 掰了！川普不再承认习近平！民调：99%港人反对国安法！美国两党学生领袖联手反共！（老北京茶館_第318集_2020_05_28） | [下载](https://y2mate.com/zh-cn/search/DNh_fwBLyF0) | [下载](../channels/teahouse/_DNh_fwBLyF0.srt?raw=true) | [下载](../channels/teahouse/_DNh_fwBLyF0.tw.srt?raw=true) | 
 | 习近平的一天：香港不再自治！孟晚舟双重罪成立！港人展现宁为玉碎、不为瓦全（老北京茶館_第317集_2020_05_27） | [下载](https://y2mate.com/zh-cn/search/vj2HnMI_4NA) | [下载](../channels/teahouse/_vj2HnMI_4NA.srt?raw=true) | [下载](../channels/teahouse/_vj2HnMI_4NA.tw.srt?raw=true) | 
