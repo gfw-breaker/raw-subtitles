@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美暴動漸息！宵禁陸續取消！美薪資保護計畫將放寬！加州51縣餐館可重開！NBA復賽 ！“足球名將”郝海東號召推翻中共_成立“新中國”？ | [下载](https://y2mate.com/zh-cn/search/pqpW9VuF8do) | [下载](../channels/yuelan/_pqpW9VuF8do.srt?raw=true) | [下载](../channels/yuelan/_pqpW9VuF8do.tw.srt?raw=true) | 
 | 美國暴亂為有組織破壞更多證據浮現！中美斷航？！美交通部禁中國客機往返美國！明州嚴懲執法過當警察，控罪再升級！ | [下载](https://y2mate.com/zh-cn/search/1EItTMeMPfk) | [下载](../channels/yuelan/_1EItTMeMPfk.srt?raw=true) | [下载](../channels/yuelan/_1EItTMeMPfk.tw.srt?raw=true) | 
 | 美國暴亂升級！多名警察遭槍擊！川普宣佈出兵平亂 ！紐約宵禁令延長！暴徒洗劫梅西Macy's百貨！傳染病專家：大規模抗議恐加劇新冠疫情 | [下载](https://y2mate.com/zh-cn/search/uAbdODk0ufc) | [下载](../channels/yuelan/_uAbdODk0ufc.srt?raw=true) | [下载](../channels/yuelan/_uAbdODk0ufc.tw.srt?raw=true) | 
 | 暴動延燒全美！逾40城宵禁！5000國民兵出動！“打砸搶”非抗議民眾而是有組織犯罪？非裔青年搭人牆保護Target！警察與白人“下跪”參加抗議？ | [下载](https://y2mate.com/zh-cn/search/5cpu6eeZzNU) | [下载](../channels/yuelan/_5cpu6eeZzNU.srt?raw=true) | [下载](../channels/yuelan/_5cpu6eeZzNU.tw.srt?raw=true) | 
