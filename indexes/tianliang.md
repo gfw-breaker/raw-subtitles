@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 郝海东宣读新中国联邦宣言;香港维园31年不灭的烛光;也说中共还能撑多久(政论天下第177集 20200604)天亮时分 | [下载](https://y2mate.com/zh-cn/search/sAShTkf8JwE) | [下载](../channels/tianliang/_sAShTkf8JwE.srt?raw=true) | [下载](../channels/tianliang/_sAShTkf8JwE.tw.srt?raw=true) | 
 | 川普的内外战争;美国总统有动用军队镇压国内骚乱的权力吗(政论天下第176集 20200603)天亮时分 | [下载](https://y2mate.com/zh-cn/search/YM7hMtE6TeM) | [下载](../channels/tianliang/_YM7hMtE6TeM.srt?raw=true) | [下载](../channels/tianliang/_YM7hMtE6TeM.tw.srt?raw=true) | 
 | 习近平与彭丽媛分居,与李克强矛盾公开化美国骚乱背后的组织者(政论天下第175集 20200531)天亮时分 | [下载](https://y2mate.com/zh-cn/search/0qM3l13yx00) | [下载](../channels/tianliang/_0qM3l13yx00.srt?raw=true) | [下载](../channels/tianliang/_0qM3l13yx00.tw.srt?raw=true) | 
 | 川普针对中共五连击;港币换美元狂潮,港币汇率可能不保;美国对抗中共效力最高的武器是什么(政论天下第174集 20200529)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ySXSMNb2L1Q) | [下载](../channels/tianliang/_ySXSMNb2L1Q.srt?raw=true) | [下载](../channels/tianliang/_ySXSMNb2L1Q.tw.srt?raw=true) | 
