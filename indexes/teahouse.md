@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 突然！习近平不许提“地摊经济”！六四31周年，李克强党内做检查内幕，什么情况？（老北京茶馆_第324集_2020_06_06） | [下载](https://y2mate.com/zh-cn/search/uhGQJRVtrzM) | [下载](../channels/teahouse/_uhGQJRVtrzM.srt?raw=true) | [下载](../channels/teahouse/_uhGQJRVtrzM.tw.srt?raw=true) | 
 | 罢免习近平录音人现身？中央党校蔡霞六四发声：中共强暴香港人民！郝海东发反共宣言（老北京茶馆_第323集_2020_06_04） | [下载](https://y2mate.com/zh-cn/search/RC-1e0N-0Wc) | [下载](../channels/teahouse/_RC-1e0N-0Wc.srt?raw=true) | [下载](../channels/teahouse/_RC-1e0N-0Wc.tw.srt?raw=true) | 
 | 罢免习近平录音流出！党放蠢招：撕毁协议、挑动美国民情！李克强练摊，习李终闹掰！（老北京茶馆_第322集_2020_06_02） | [下载](https://y2mate.com/zh-cn/search/twJDIlDGzKA) | [下载](../channels/teahouse/_twJDIlDGzKA.srt?raw=true) | [下载](../channels/teahouse/_twJDIlDGzKA.tw.srt?raw=true) | 
 | 又灵异了！过世艺人复活支持国安法？明星纷纷躲避！30年来首次禁止64维园烛光集会！（老北京茶馆_第321集_2020_06_01） | [下载](https://y2mate.com/zh-cn/search/RX1yOiLIrIs) | [下载](../channels/teahouse/_RX1yOiLIrIs.srt?raw=true) | [下载](../channels/teahouse/_RX1yOiLIrIs.tw.srt?raw=true) | 
