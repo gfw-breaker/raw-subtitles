@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 麻雀知我心 | [下载](https://y2mate.com/zh-cn/search/g3VaMzkY7Nk) | [下载](../channels/simonegao/_g3VaMzkY7Nk.srt?raw=true) | [下载](../channels/simonegao/_g3VaMzkY7Nk.tw.srt?raw=true) | 
 | 川普中國講話背後的博弈；川普沒有對中共一竿子插到底，為什麼？抗击中共将成为川普2020年竞选主题。 | [下载](https://y2mate.com/zh-cn/search/zbEaJxNZElg) | [下载](../channels/simonegao/_zbEaJxNZElg.srt?raw=true) | [下载](../channels/simonegao/_zbEaJxNZElg.tw.srt?raw=true) | 
 | 萧茗采访班农：你见了国内出逃科学家？央视为何选此时攻击你？美国情报机构有警告你吗？ | [下载](https://y2mate.com/zh-cn/search/ap3k4WGp6Pk) | [下载](../channels/simonegao/_ap3k4WGp6Pk.srt?raw=true) | [下载](../channels/simonegao/_ap3k4WGp6Pk.tw.srt?raw=true) | 
 | 川普要发大招！禁止美国退休金投资中国，为全面停止对中共投资拉开序幕。 | [下载](https://y2mate.com/zh-cn/search/CHOoVk_HZyA) | [下载](../channels/simonegao/_CHOoVk_HZyA.srt?raw=true) | [下载](../channels/simonegao/_CHOoVk_HZyA.tw.srt?raw=true) | 
