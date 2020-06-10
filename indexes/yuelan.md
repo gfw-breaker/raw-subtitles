@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美新冠確診逼近200萬！新澤西取消居家防疫！加州電影院重開！觀影需預約+戴口罩！優勝美地Yosemite本週四開放！美抗議者要求解散警局之爭 | [下载](https://y2mate.com/zh-cn/search/qTaFA--eXAs) | [下载](../channels/yuelan/_qTaFA--eXAs.srt?raw=true) | [下载](../channels/yuelan/_qTaFA--eXAs.tw.srt?raw=true) | 
+| 美取消對英德日旅行限制！紐約重啓第一步！加州公佈學校開放指南！美暴動平息，國民警衛隊撤離DC！ | [下载](https://y2mate.com/zh-cn/search/75aYFbQSTHE) | [下载](../channels/yuelan/_75aYFbQSTHE.srt?raw=true) | [下载](../channels/yuelan/_75aYFbQSTHE.tw.srt?raw=true) | 
 | 美就業新增250萬！美股大漲！全美抗議恐加劇疫情！CDC：抗議者應做新冠病毒測試！川普簽了！薪資保護計畫放寬！中美通航規則有新變化！ | [下载](https://y2mate.com/zh-cn/search/moSN2oCFRLQ) | [下载](../channels/yuelan/_moSN2oCFRLQ.srt?raw=true) | [下载](../channels/yuelan/_moSN2oCFRLQ.tw.srt?raw=true) | 
 | 美暴動漸息！宵禁陸續取消！美薪資保護計畫將放寬！加州51縣餐館可重開！NBA復賽 ！“足球名將”郝海東號召推翻中共_成立“新中國”？ | [下载](https://y2mate.com/zh-cn/search/pqpW9VuF8do) | [下载](../channels/yuelan/_pqpW9VuF8do.srt?raw=true) | [下载](../channels/yuelan/_pqpW9VuF8do.tw.srt?raw=true) | 
 | 美國暴亂為有組織破壞更多證據浮現！中美斷航？！美交通部禁中國客機往返美國！明州嚴懲執法過當警察，控罪再升級！ | [下载](https://y2mate.com/zh-cn/search/1EItTMeMPfk) | [下载](../channels/yuelan/_1EItTMeMPfk.srt?raw=true) | [下载](../channels/yuelan/_1EItTMeMPfk.tw.srt?raw=true) | 
