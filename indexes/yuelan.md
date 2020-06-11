@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美19州疫情反彈？星巴克關店400家！大規模抗議後，國民警衛兵感染新冠！小心！偽裝疫調人員的詐騙！UCLA教授因拒給非裔生特殊待遇被停課 | [下载](https://y2mate.com/zh-cn/search/kPV6rNRnvu4) | [下载](../channels/yuelan/_kPV6rNRnvu4.srt?raw=true) | [下载](../channels/yuelan/_kPV6rNRnvu4.tw.srt?raw=true) | 
 | 美新冠確診逼近200萬！新澤西取消居家防疫！加州電影院重開！觀影需預約+戴口罩！優勝美地Yosemite本週四開放！美抗議者要求解散警局之爭 | [下载](https://y2mate.com/zh-cn/search/qTaFA--eXAs) | [下载](../channels/yuelan/_qTaFA--eXAs.srt?raw=true) | [下载](../channels/yuelan/_qTaFA--eXAs.tw.srt?raw=true) | 
 | 美取消對英德日旅行限制！紐約重啓第一步！加州公佈學校開放指南！美暴動平息，國民警衛隊撤離DC！ | [下载](https://y2mate.com/zh-cn/search/75aYFbQSTHE) | [下载](../channels/yuelan/_75aYFbQSTHE.srt?raw=true) | [下载](../channels/yuelan/_75aYFbQSTHE.tw.srt?raw=true) | 
 | 美就業新增250萬！美股大漲！全美抗議恐加劇疫情！CDC：抗議者應做新冠病毒測試！川普簽了！薪資保護計畫放寬！中美通航規則有新變化！ | [下载](https://y2mate.com/zh-cn/search/moSN2oCFRLQ) | [下载](../channels/yuelan/_moSN2oCFRLQ.srt?raw=true) | [下载](../channels/yuelan/_moSN2oCFRLQ.tw.srt?raw=true) | 
