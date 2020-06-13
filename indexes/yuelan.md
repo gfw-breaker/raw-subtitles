@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 西雅圖“無警察自治區”情況更新！為何華人都在關注ACA5法案？ACA5對華裔下一代升學就業有何影響？ | [下载](https://y2mate.com/zh-cn/search/eZbWYToLOrY) | [下载](../channels/yuelan/_eZbWYToLOrY.srt?raw=true) | [下载](../channels/yuelan/_eZbWYToLOrY.tw.srt?raw=true) | 
 | 美國疫情恐9月二次爆發？美股暴跌！西雅圖市府被強佔！成“無警察自治區”？川普發推怒斥！美式文革：HBO下架【亂世佳人】_【老友記】主創道歉 | [下载](https://y2mate.com/zh-cn/search/TIj0vb0oQeA) | [下载](../channels/yuelan/_TIj0vb0oQeA.srt?raw=true) | [下载](../channels/yuelan/_TIj0vb0oQeA.tw.srt?raw=true) | 
 | 美19州疫情反彈？星巴克關店400家！大規模抗議後，國民警衛兵感染新冠！小心！偽裝疫調人員的詐騙！UCLA教授因拒給非裔生特殊待遇被停課 | [下载](https://y2mate.com/zh-cn/search/kPV6rNRnvu4) | [下载](../channels/yuelan/_kPV6rNRnvu4.srt?raw=true) | [下载](../channels/yuelan/_kPV6rNRnvu4.tw.srt?raw=true) | 
 | 美新冠確診逼近200萬！新澤西取消居家防疫！加州電影院重開！觀影需預約+戴口罩！優勝美地Yosemite本週四開放！美抗議者要求解散警局之爭 | [下载](https://y2mate.com/zh-cn/search/qTaFA--eXAs) | [下载](../channels/yuelan/_qTaFA--eXAs.srt?raw=true) | [下载](../channels/yuelan/_qTaFA--eXAs.tw.srt?raw=true) | 
