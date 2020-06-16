@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆_第328集_2020_06_14） | [下载](https://y2mate.com/zh-cn/search/VIll2khtdH4) | [下载](../channels/teahouse/_VIll2khtdH4.srt?raw=true) | [下载](../channels/teahouse/_VIll2khtdH4.tw.srt?raw=true) | 
 | 党媒解读南方洪水：你们看到三峡大坝危险，我看到美！香港码头货柜全消失，习近平犹豫了？（老北京茶馆_第327集_2020_06_12） | [下载](https://y2mate.com/zh-cn/search/MgOqamJw6tc) | [下载](../channels/teahouse/_MgOqamJw6tc.srt?raw=true) | [下载](../channels/teahouse/_MgOqamJw6tc.tw.srt?raw=true) | 
 | 习近平宁夏视察大坑，回应李克强？反共捷克议长宣布赴台；中共党官20个不准出台！（老北京茶馆_第326集_2020_06_10） | [下载](https://y2mate.com/zh-cn/search/v3BDdv1sb3g) | [下载](../channels/teahouse/_v3BDdv1sb3g.srt?raw=true) | [下载](../channels/teahouse/_v3BDdv1sb3g.tw.srt?raw=true) | 
 | 李克强说真话闯祸！胡春华急赴梁家河表忠习近平！高雄罢韩、北京罢摊，人民罢战！（老北京茶馆_第325集_2020_06_09） | [下载](https://y2mate.com/zh-cn/search/f_iNgQ1UyNw) | [下载](../channels/teahouse/_f_iNgQ1UyNw.srt?raw=true) | [下载](../channels/teahouse/_f_iNgQ1UyNw.tw.srt?raw=true) | 
