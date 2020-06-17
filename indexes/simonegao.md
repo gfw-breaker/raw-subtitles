@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蕭茗採訪袁爸爸：中共誤判華爾街能左右川普； 中美綜合國力相差懸殊，真正幹起來，中共無牌可打；班農和蓬佩奧真心幫香港 | [下载](https://y2mate.com/zh-cn/search/NO1YKHUNiFU) | [下载](../channels/simonegao/_NO1YKHUNiFU.srt?raw=true) | [下载](../channels/simonegao/_NO1YKHUNiFU.tw.srt?raw=true) | 
 | 麻雀知我心 | [下载](https://y2mate.com/zh-cn/search/g3VaMzkY7Nk) | [下载](../channels/simonegao/_g3VaMzkY7Nk.srt?raw=true) | [下载](../channels/simonegao/_g3VaMzkY7Nk.tw.srt?raw=true) | 
 | 川普中國講話背後的博弈；川普沒有對中共一竿子插到底，為什麼？抗击中共将成为川普2020年竞选主题。 | [下载](https://y2mate.com/zh-cn/search/zbEaJxNZElg) | [下载](../channels/simonegao/_zbEaJxNZElg.srt?raw=true) | [下载](../channels/simonegao/_zbEaJxNZElg.tw.srt?raw=true) | 
 | 萧茗采访班农：你见了国内出逃科学家？央视为何选此时攻击你？美国情报机构有警告你吗？ | [下载](https://y2mate.com/zh-cn/search/ap3k4WGp6Pk) | [下载](../channels/simonegao/_ap3k4WGp6Pk.srt?raw=true) | [下载](../channels/simonegao/_ap3k4WGp6Pk.tw.srt?raw=true) | 
