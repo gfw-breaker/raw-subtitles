@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话(政论天下第183集 20200618)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mNuRiQX8LWQ) | [下载](../channels/tianliang/_mNuRiQX8LWQ.srt?raw=true) | [下载](../channels/tianliang/_mNuRiQX8LWQ.tw.srt?raw=true) | 
 | 人民日报这句话暗示,杨洁篪与蓬佩奥注定谈崩;中共高层的分裂将因此加剧;中印冲突会升级吗(政论天下第182集 20200616)天亮时分 | [下载](https://y2mate.com/zh-cn/search/vJgt5k1imow) | [下载](../channels/tianliang/_vJgt5k1imow.srt?raw=true) | [下载](../channels/tianliang/_vJgt5k1imow.tw.srt?raw=true) | 
 | 封闭新发地,民航局发熔断指令,北京进入非常时期;美国的危机更加严重(政论天下第181集 20200614)天亮时分 | [下载](https://y2mate.com/zh-cn/search/fgsAG30HFkA) | [下载](../channels/tianliang/_fgsAG30HFkA.srt?raw=true) | [下载](../channels/tianliang/_fgsAG30HFkA.tw.srt?raw=true) | 
 | 史上最强制裁名单,韩正等正国级高官在列;还有两人不能放过(政论天下第180集 20200611)天亮时分 | [下载](https://y2mate.com/zh-cn/search/NJCM1VrqxQE) | [下载](../channels/tianliang/_NJCM1VrqxQE.srt?raw=true) | [下载](../channels/tianliang/_NJCM1VrqxQE.tw.srt?raw=true) | 
