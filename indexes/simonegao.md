@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？ | [下载](https://y2mate.com/zh-cn/search/jSZikCoSVz0) | [下载](../channels/simonegao/_jSZikCoSVz0.srt?raw=true) | [下载](../channels/simonegao/_jSZikCoSVz0.tw.srt?raw=true) | 
 | 袁弓夷談楊潔篪和彭培奧會面 | [下载](https://y2mate.com/zh-cn/search/h6VFJ0LLXvo) | [下载](../channels/simonegao/_h6VFJ0LLXvo.srt?raw=true) | [下载](../channels/simonegao/_h6VFJ0LLXvo.tw.srt?raw=true) | 
 | 蕭茗採訪袁爸爸：中共誤判華爾街能左右川普； 中美綜合國力相差懸殊，真正幹起來，中共無牌可打；班農和蓬佩奧真心幫香港 | [下载](https://y2mate.com/zh-cn/search/NO1YKHUNiFU) | [下载](../channels/simonegao/_NO1YKHUNiFU.srt?raw=true) | [下载](../channels/simonegao/_NO1YKHUNiFU.tw.srt?raw=true) | 
 | 麻雀知我心 | [下载](https://y2mate.com/zh-cn/search/g3VaMzkY7Nk) | [下载](../channels/simonegao/_g3VaMzkY7Nk.srt?raw=true) | [下载](../channels/simonegao/_g3VaMzkY7Nk.tw.srt?raw=true) | 

@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| CNN抹黑亞裔？黑人牙膏遭“審查”！加州房租可延交10年？川普擬暫停工作簽？新冠康復後也不能免疫？抗體會消失 | [下载](https://y2mate.com/zh-cn/search/sMEhYCW1hko) | [下载](../channels/yuelan/_sMEhYCW1hko.srt?raw=true) | [下载](../channels/yuelan/_sMEhYCW1hko.tw.srt?raw=true) | 
 | ACA5“反向歧視”華人？！華人該支持“黑人命貴”+“種族平權”嗎？華裔兩代人看法大不同 | [下载](https://y2mate.com/zh-cn/search/OYrtlHVZBbo) | [下载](../channels/yuelan/_OYrtlHVZBbo.srt?raw=true) | [下载](../channels/yuelan/_OYrtlHVZBbo.tw.srt?raw=true) | 
 | 美年輕人感染數大增？！美8成名校2021招生免看SAT_ACT！北京封城？！三文魚獲“平反”：非新冠病毒宿主！ | [下载](https://y2mate.com/zh-cn/search/jYoT4bRkpVo) | [下载](../channels/yuelan/_jYoT4bRkpVo.srt?raw=true) | [下载](../channels/yuelan/_jYoT4bRkpVo.tw.srt?raw=true) | 
 | 美航空新規：不帶口罩禁飛？北京疫情告急 ！美調查揭中共隱瞞疫情過程！美加關閉邊境延期！川普新政令：改革警務系統 | [下载](https://y2mate.com/zh-cn/search/P3Orm04be9g) | [下载](../channels/yuelan/_P3Orm04be9g.srt?raw=true) | [下载](../channels/yuelan/_P3Orm04be9g.tw.srt?raw=true) | 

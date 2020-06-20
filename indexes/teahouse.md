@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 三峡大坝吹哨人：快跑！正勒腰带，习近平又撒币了！中美夏威夷会谈无果？后果很大！（老北京茶馆_第330集_2020_06_18） | [下载](https://y2mate.com/zh-cn/search/CzbG_eFO5Gg) | [下载](../channels/teahouse/_CzbG_eFO5Gg.srt?raw=true) | [下载](../channels/teahouse/_CzbG_eFO5Gg.tw.srt?raw=true) | 
 | 杨洁篪见蓬佩奥，接当头四棒！北京全城敲门行动，中共为何突表态支持川普连任！（老北京茶馆_第329集_2020_06_16） | [下载](https://y2mate.com/zh-cn/search/GWojFGJ1srs) | [下载](../channels/teahouse/_GWojFGJ1srs.srt?raw=true) | [下载](../channels/teahouse/_GWojFGJ1srs.tw.srt?raw=true) | 
 | 华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆_第328集_2020_06_14） | [下载](https://y2mate.com/zh-cn/search/VIll2khtdH4) | [下载](../channels/teahouse/_VIll2khtdH4.srt?raw=true) | [下载](../channels/teahouse/_VIll2khtdH4.tw.srt?raw=true) | 
 | 党媒解读南方洪水：你们看到三峡大坝危险，我看到美！香港码头货柜全消失，习近平犹豫了？（老北京茶馆_第327集_2020_06_12） | [下载](https://y2mate.com/zh-cn/search/MgOqamJw6tc) | [下载](../channels/teahouse/_MgOqamJw6tc.srt?raw=true) | [下载](../channels/teahouse/_MgOqamJw6tc.tw.srt?raw=true) | 
