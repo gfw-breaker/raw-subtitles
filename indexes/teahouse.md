@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 北京告急！中印冲突： 华为小米等500款中国货遭拒！会谈后川普致习近平：可全面脱钩！（老北京茶馆_第331集_2020_06_19） | [下载](https://y2mate.com/zh-cn/search/paU4mZILQGg) | [下载](../channels/teahouse/_paU4mZILQGg.srt?raw=true) | [下载](../channels/teahouse/_paU4mZILQGg.tw.srt?raw=true) | 
 | 三峡大坝吹哨人：快跑！正勒腰带，习近平又撒币了！中美夏威夷会谈无果？后果很大！（老北京茶馆_第330集_2020_06_18） | [下载](https://y2mate.com/zh-cn/search/CzbG_eFO5Gg) | [下载](../channels/teahouse/_CzbG_eFO5Gg.srt?raw=true) | [下载](../channels/teahouse/_CzbG_eFO5Gg.tw.srt?raw=true) | 
 | 杨洁篪见蓬佩奥，接当头四棒！北京全城敲门行动，中共为何突表态支持川普连任！（老北京茶馆_第329集_2020_06_16） | [下载](https://y2mate.com/zh-cn/search/GWojFGJ1srs) | [下载](../channels/teahouse/_GWojFGJ1srs.srt?raw=true) | [下载](../channels/teahouse/_GWojFGJ1srs.tw.srt?raw=true) | 
 | 华春莹狂眨眼创纪录！北京新发地追查35万密接者！习近平头疼的第二波，北京人要遭歧视了？（老北京茶馆_第328集_2020_06_14） | [下载](https://y2mate.com/zh-cn/search/VIll2khtdH4) | [下载](../channels/teahouse/_VIll2khtdH4.srt?raw=true) | [下载](../channels/teahouse/_VIll2khtdH4.tw.srt?raw=true) | 
