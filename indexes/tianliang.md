@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 直播 -与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）天亮时分 | [下载](https://y2mate.com/zh-cn/search/ap-uNddCAKI) | [下载](../channels/tianliang/_ap-uNddCAKI.srt?raw=true) | [下载](../channels/tianliang/_ap-uNddCAKI.tw.srt?raw=true) | 
 | 香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)天亮时分 | [下载](https://y2mate.com/zh-cn/search/O84LQdEYtLA) | [下载](../channels/tianliang/_O84LQdEYtLA.srt?raw=true) | [下载](../channels/tianliang/_O84LQdEYtLA.tw.srt?raw=true) | 
 | 杨洁篪与蓬佩奥谈崩,哪些方面无法达成共识川普签署法案,祭出制裁中共大招;习近平会不会重复秦二世临死前说的这句话(政论天下第183集 20200618)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mNuRiQX8LWQ) | [下载](../channels/tianliang/_mNuRiQX8LWQ.srt?raw=true) | [下载](../channels/tianliang/_mNuRiQX8LWQ.tw.srt?raw=true) | 
 | 人民日报这句话暗示,杨洁篪与蓬佩奥注定谈崩;中共高层的分裂将因此加剧;中印冲突会升级吗(政论天下第182集 20200616)天亮时分 | [下载](https://y2mate.com/zh-cn/search/vJgt5k1imow) | [下载](../channels/tianliang/_vJgt5k1imow.srt?raw=true) | [下载](../channels/tianliang/_vJgt5k1imow.tw.srt?raw=true) | 
