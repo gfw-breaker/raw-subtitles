@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 大中华反共头牌、抗日卫国民族英雄——蒋介石（一）（老北京茶馆_传奇书场_蒋介石_第01集_2020_06_23） | [下载](https://y2mate.com/zh-cn/search/Z2lIbXfQPAA) | [下载](../channels/teahouse/_Z2lIbXfQPAA.srt?raw=true) | [下载](../channels/teahouse/_Z2lIbXfQPAA.tw.srt?raw=true) | 
 | 2020预言兑现之穿越到香港！从推背图中走出七旬勇士：袁弓夷赴美，中共心脏偷停！（老北京茶馆_第332集_2020_06_21） | [下载](https://y2mate.com/zh-cn/search/v8kUcHhzUSo) | [下载](../channels/teahouse/_v8kUcHhzUSo.srt?raw=true) | [下载](../channels/teahouse/_v8kUcHhzUSo.tw.srt?raw=true) | 
 | 北京告急！中印冲突： 华为小米等500款中国货遭拒！会谈后川普致习近平：可全面脱钩！（老北京茶馆_第331集_2020_06_19） | [下载](https://y2mate.com/zh-cn/search/paU4mZILQGg) | [下载](../channels/teahouse/_paU4mZILQGg.srt?raw=true) | [下载](../channels/teahouse/_paU4mZILQGg.tw.srt?raw=true) | 
 | 三峡大坝吹哨人：快跑！正勒腰带，习近平又撒币了！中美夏威夷会谈无果？后果很大！（老北京茶馆_第330集_2020_06_18） | [下载](https://y2mate.com/zh-cn/search/CzbG_eFO5Gg) | [下载](../channels/teahouse/_CzbG_eFO5Gg.srt?raw=true) | [下载](../channels/teahouse/_CzbG_eFO5Gg.tw.srt?raw=true) | 
