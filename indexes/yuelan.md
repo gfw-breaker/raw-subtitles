@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 德州重啓叫停_迪士尼推遲開放！影響華人權益的ACA5通過！西雅圖“自治區”居民狀告市府不作為 | [下载](https://y2mate.com/zh-cn/search/-_xkwodkSBg) | [下载](../channels/yuelan/_-_xkwodkSBg.srt?raw=true) | [下载](../channels/yuelan/_-_xkwodkSBg.tw.srt?raw=true) | 
 | 美境內旅遊可抵稅$4000？！美暫停工作簽細節公佈！美新冠疫苗有望提前上市！川普：將再發紓困支票！西雅圖“自治區”爆槍擊案致死 | [下载](https://y2mate.com/zh-cn/search/CimcK5vnSPU) | [下载](../channels/yuelan/_CimcK5vnSPU.srt?raw=true) | [下载](../channels/yuelan/_CimcK5vnSPU.tw.srt?raw=true) | 
 | 川普下令暫停工作簽？美30州病例激增！年輕人佔多數？“美白”也算種族歧視？強生停售美白產品！ | [下载](https://y2mate.com/zh-cn/search/rVS5ksLb5Zw) | [下载](../channels/yuelan/_rVS5ksLb5Zw.srt?raw=true) | [下载](../channels/yuelan/_rVS5ksLb5Zw.tw.srt?raw=true) | 
 | CNN抹黑亞裔？黑人牙膏遭“審查”！加州房租可延交10年？川普擬暫停工作簽？新冠康復後也不能免疫？抗體會消失 | [下载](https://y2mate.com/zh-cn/search/sMEhYCW1hko) | [下载](../channels/yuelan/_sMEhYCW1hko.srt?raw=true) | [下载](../channels/yuelan/_sMEhYCW1hko.tw.srt?raw=true) | 
