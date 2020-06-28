@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 大中华反共头牌、抗日卫国民族英雄——蒋介石（二）（老北京茶馆_传奇书场_蒋介石_第02集_2020_06_27） | [下载](https://y2mate.com/zh-cn/search/qG7eNy5DKNU) | [下载](../channels/teahouse/_qG7eNy5DKNU.srt?raw=true) | [下载](../channels/teahouse/_qG7eNy5DKNU.tw.srt?raw=true) | 
 | 申纪兰逆袭！潜伏一生干大事：千里送毒党中央？习近平七常委出逃避疫，北京紧急建方舱！（老北京茶馆_第334集_2020_06_24） | [下载](https://y2mate.com/zh-cn/search/DSvBEtQ6glc) | [下载](../channels/teahouse/_DSvBEtQ6glc.srt?raw=true) | [下载](../channels/teahouse/_DSvBEtQ6glc.tw.srt?raw=true) | 
 | 七常委撤离北京，他染了？习近平：彭丽媛分居，三胖作废，普京偷袭，川普打九大外宣！（老北京茶馆_第333集_2020_06_23） | [下载](https://y2mate.com/zh-cn/search/ckYFBkaOHAo) | [下载](../channels/teahouse/_ckYFBkaOHAo.srt?raw=true) | [下载](../channels/teahouse/_ckYFBkaOHAo.tw.srt?raw=true) | 
 | 大中华反共头牌、抗日卫国民族英雄——蒋介石（一）（老北京茶馆_传奇书场_蒋介石_第01集_2020_06_23） | [下载](https://y2mate.com/zh-cn/search/Z2lIbXfQPAA) | [下载](../channels/teahouse/_Z2lIbXfQPAA.srt?raw=true) | [下载](../channels/teahouse/_Z2lIbXfQPAA.tw.srt?raw=true) | 
