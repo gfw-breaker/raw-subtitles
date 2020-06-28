@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 杨洁篪暗示蓬佩奥,中共已无牌可打;美国国安安全顾问吹响灭共号角;参议院通过制裁决定,中共灭亡参考伊拉克模式(政论天下第187集 20200627)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7macjs0A6Ns) | [下载](../channels/tianliang/_7macjs0A6Ns.srt?raw=true) | [下载](../channels/tianliang/_7macjs0A6Ns.tw.srt?raw=true) | 
 | 七常委行踪异常,也说“习帝下台不是梦”;三峡大坝还能撑多久香港国安法将于6月30日通过(政论天下第186集 20200623)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CS4p0nPCPRg) | [下载](../channels/tianliang/_CS4p0nPCPRg.srt?raw=true) | [下载](../channels/tianliang/_CS4p0nPCPRg.tw.srt?raw=true) | 
 | 直播 -与袁弓夷对话,谈美国灭共行动、香港国安法与“天灭中共”（政论天下第185集 20200622）天亮时分 | [下载](https://y2mate.com/zh-cn/search/ap-uNddCAKI) | [下载](../channels/tianliang/_ap-uNddCAKI.srt?raw=true) | [下载](../channels/tianliang/_ap-uNddCAKI.tw.srt?raw=true) | 
 | 香港国安法草案中的魔鬼细节;中共将尽速通过香港国安法的四个理由(政论天下第184集 20200620)天亮时分 | [下载](https://y2mate.com/zh-cn/search/O84LQdEYtLA) | [下载](../channels/tianliang/_O84LQdEYtLA.srt?raw=true) | [下载](../channels/tianliang/_O84LQdEYtLA.tw.srt?raw=true) | 
