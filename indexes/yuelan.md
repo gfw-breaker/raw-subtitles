@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美新冠藥太貴惹眾怒？中國又現新型人傳人病毒！香港國安法通過！美出招制裁中共！美14州重啓暫停 | [下载](https://y2mate.com/zh-cn/search/vu87c7Ls2R4) | [下载](../channels/yuelan/_vu87c7Ls2R4.srt?raw=true) | [下载](../channels/yuelan/_vu87c7Ls2R4.tw.srt?raw=true) | 
 | 美新冠病例激增！半數為年輕人！多州重啓叫停！舊金山開放延期！微軟永久關店？！美國宣佈限制中共官員簽證！ | [下载](https://y2mate.com/zh-cn/search/8VE2gCbHRGQ) | [下载](../channels/yuelan/_8VE2gCbHRGQ.srt?raw=true) | [下载](../channels/yuelan/_8VE2gCbHRGQ.tw.srt?raw=true) | 
 | 德州重啓叫停_迪士尼推遲開放！影響華人權益的ACA5通過！西雅圖“自治區”居民狀告市府不作為 | [下载](https://y2mate.com/zh-cn/search/-_xkwodkSBg) | [下载](../channels/yuelan/_-_xkwodkSBg.srt?raw=true) | [下载](../channels/yuelan/_-_xkwodkSBg.tw.srt?raw=true) | 
 | 美境內旅遊可抵稅$4000？！美暫停工作簽細節公佈！美新冠疫苗有望提前上市！川普：將再發紓困支票！西雅圖“自治區”爆槍擊案致死 | [下载](https://y2mate.com/zh-cn/search/CimcK5vnSPU) | [下载](../channels/yuelan/_CimcK5vnSPU.srt?raw=true) | [下载](../channels/yuelan/_CimcK5vnSPU.tw.srt?raw=true) | 
