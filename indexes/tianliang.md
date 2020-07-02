@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 国安恶法“留港不留人”,中共的算计与英美可能的误判;中、美、英三方决策心理分析,兼谈英美如何回击才能解决根本问题(政论天下第190集 20200701)天亮时分 | [下载](https://y2mate.com/zh-cn/search/PCkYh7BRSec) | [下载](../channels/tianliang/_PCkYh7BRSec.srt?raw=true) | [下载](../channels/tianliang/_PCkYh7BRSec.tw.srt?raw=true) | 
 | 香港国安法通过,大抓捕在即!习近平赌上了中共的命;香港民众及国际社会与中共摊牌的时刻迅速到来(政论天下第189集 20200630)天亮时分 | [下载](https://y2mate.com/zh-cn/search/9IM52MB5SvY) | [下载](../channels/tianliang/_9IM52MB5SvY.srt?raw=true) | [下载](../channels/tianliang/_9IM52MB5SvY.tw.srt?raw=true) | 
 | 马斯克星链计划能否推倒中共防火墙中共将如何应对(政论天下第188集 20200628)天亮时分 | [下载](https://y2mate.com/zh-cn/search/at-62-US1Kg) | [下载](../channels/tianliang/_at-62-US1Kg.srt?raw=true) | [下载](../channels/tianliang/_at-62-US1Kg.tw.srt?raw=true) | 
 | 杨洁篪暗示蓬佩奥,中共已无牌可打;美国国安安全顾问吹响灭共号角;参议院通过制裁决定,中共灭亡参考伊拉克模式(政论天下第187集 20200627)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7macjs0A6Ns) | [下载](../channels/tianliang/_7macjs0A6Ns.srt?raw=true) | [下载](../channels/tianliang/_7macjs0A6Ns.tw.srt?raw=true) | 
