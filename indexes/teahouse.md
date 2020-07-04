@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平提最后关头，母猪言论官员空降香港！脱贫达标秘笈出炉！谭德塞反了：北京隐瞒证据！（老北京茶馆_第338集_2020_07_03） | [下载](https://y2mate.com/zh-cn/search/tLbMtTLQxOU) | [下载](../channels/teahouse/_tLbMtTLQxOU.srt?raw=true) | [下载](../channels/teahouse/_tLbMtTLQxOU.tw.srt?raw=true) | 
 | 蓬佩奥：制裁香港，习近平全责！38万港人：我们无惧！洪水撞上地动，北京捉阳记（老北京茶馆_第337集_2020_07_03） | [下载](https://y2mate.com/zh-cn/search/__x-F8yvHV4) | [下载](../channels/teahouse/___x-F8yvHV4.srt?raw=true) | [下载](../channels/teahouse/___x-F8yvHV4.tw.srt?raw=true) | 
 | 香港国安法通过，北京撕票？习近平为何瑟瑟发抖？美国动手了！民团做水，中共会赢吗？（老北京茶馆_第336集_2020_06_30） | [下载](https://y2mate.com/zh-cn/search/CcEBwPyOlFA) | [下载](../channels/teahouse/_CcEBwPyOlFA.srt?raw=true) | [下载](../channels/teahouse/_CcEBwPyOlFA.tw.srt?raw=true) | 
 | 申纪兰去世，党损失最重要魂器？习近平：世上再无申纪兰！网友：党跟申大妈走吧！（老北京茶馆_第335集_2020_06_28） | [下载](https://y2mate.com/zh-cn/search/965jx7lGckk) | [下载](../channels/teahouse/_965jx7lGckk.srt?raw=true) | [下载](../channels/teahouse/_965jx7lGckk.tw.srt?raw=true) | 
