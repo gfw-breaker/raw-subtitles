@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| “顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集 20200706)天亮时分 | [下载](https://y2mate.com/zh-cn/search/0TgFrENJqWQ) | [下载](../channels/tianliang/_0TgFrENJqWQ.srt?raw=true) | [下载](../channels/tianliang/_0TgFrENJqWQ.tw.srt?raw=true) | 
 | “美国反共不反华,这国反华不反共”;美国面临的困境与挑战(政论天下第192集 20200704)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ns_APsah66s) | [下载](../channels/tianliang/_ns_APsah66s.srt?raw=true) | [下载](../channels/tianliang/_ns_APsah66s.tw.srt?raw=true) | 
 | 国安恶法只能“选择性执法”,选谁才是问题;中共会在香港封网吗若'香港自治法'这一条款发威,习近平也跑不了(政论天下第191集 20200702)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rXsE5Nfbu6M) | [下载](../channels/tianliang/_rXsE5Nfbu6M.srt?raw=true) | [下载](../channels/tianliang/_rXsE5Nfbu6M.tw.srt?raw=true) | 
 | 国安恶法“留港不留人”,中共的算计与英美可能的误判;中、美、英三方决策心理分析,兼谈英美如何回击才能解决根本问题(政论天下第190集 20200701)天亮时分 | [下载](https://y2mate.com/zh-cn/search/PCkYh7BRSec) | [下载](../channels/tianliang/_PCkYh7BRSec.srt?raw=true) | [下载](../channels/tianliang/_PCkYh7BRSec.tw.srt?raw=true) | 
