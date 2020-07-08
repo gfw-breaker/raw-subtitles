@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 大量留美學生恐被遣返？中共威脅海外華人“不回國就“自殺”？！美國計劃全面禁用Tiktok抖音等中國App | [下载](https://y2mate.com/zh-cn/search/0I3qp1jI0A0) | [下载](../channels/yuelan/_0I3qp1jI0A0.srt?raw=true) | [下载](../channels/yuelan/_0I3qp1jI0A0.tw.srt?raw=true) | 
 | 新冠可空气传播！全球百位專家致信WHO：須加強防疫等級！川普推文“中國病毒”惹爭議 | [下载](https://y2mate.com/zh-cn/search/QPki_JkA15Q) | [下载](../channels/yuelan/_QPki_JkA15Q.srt?raw=true) | [下载](../channels/yuelan/_QPki_JkA15Q.tw.srt?raw=true) | 
 | 美國將再發支票？美移民局缺錢要關門！美50%新冠病例在這裡！美就業新增480萬+失業率下降！美制裁中共新法通過！ | [下载](https://y2mate.com/zh-cn/search/WmeKtznODzw) | [下载](../channels/yuelan/_WmeKtznODzw.srt?raw=true) | [下载](../channels/yuelan/_WmeKtznODzw.tw.srt?raw=true) | 
 | 美國獨立日恐再引爆疫情？中共國安法：管制全球？！聲援香港也可獲罪！“西雅圖自治區”已被收復 | [下载](https://y2mate.com/zh-cn/search/JCVgRLq3NDA) | [下载](../channels/yuelan/_JCVgRLq3NDA.srt?raw=true) | [下载](../channels/yuelan/_JCVgRLq3NDA.tw.srt?raw=true) | 
