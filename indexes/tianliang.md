@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美信息战已互殴三回合,四大领域中胜负手何在中共在香港也要建墙!除了拆墙,美国还需要做这件事(政论天下第194集 20200708)天亮时分 | [下载](https://y2mate.com/zh-cn/search/bdtji0VqbKQ) | [下载](../channels/tianliang/_bdtji0VqbKQ.srt?raw=true) | [下载](../channels/tianliang/_bdtji0VqbKQ.tw.srt?raw=true) | 
 | “顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集 20200706)天亮时分 | [下载](https://y2mate.com/zh-cn/search/0TgFrENJqWQ) | [下载](../channels/tianliang/_0TgFrENJqWQ.srt?raw=true) | [下载](../channels/tianliang/_0TgFrENJqWQ.tw.srt?raw=true) | 
 | “美国反共不反华,这国反华不反共”;美国面临的困境与挑战(政论天下第192集 20200704)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ns_APsah66s) | [下载](../channels/tianliang/_ns_APsah66s.srt?raw=true) | [下载](../channels/tianliang/_ns_APsah66s.tw.srt?raw=true) | 
 | 国安恶法只能“选择性执法”,选谁才是问题;中共会在香港封网吗若'香港自治法'这一条款发威,习近平也跑不了(政论天下第191集 20200702)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rXsE5Nfbu6M) | [下载](../channels/tianliang/_rXsE5Nfbu6M.srt?raw=true) | [下载](../channels/tianliang/_rXsE5Nfbu6M.tw.srt?raw=true) | 
