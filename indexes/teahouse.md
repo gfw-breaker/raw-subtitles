@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平躲猫猫，被一份体检报告吓到？大水来了，人民醒了！王全璋：我是怎么一个人（老北京茶馆_第341集_2020_07_09） | [下载](https://y2mate.com/zh-cn/search/7xHGTm9ZuLc) | [下载](../channels/teahouse/_7xHGTm9ZuLc.srt?raw=true) | [下载](../channels/teahouse/_7xHGTm9ZuLc.tw.srt?raw=true) | 
 | 李克强又泄密了！贵州安顺高考大巴翻入水库！郭于华国骂后，许章润周日回家？（老北京茶馆_第340集_2020_07_07） | [下载](https://y2mate.com/zh-cn/search/hG8SyiSIKkc) | [下载](../channels/teahouse/_hG8SyiSIKkc.srt?raw=true) | [下载](../channels/teahouse/_hG8SyiSIKkc.tw.srt?raw=true) | 
 | 许章润遭隆重抓捕，原来是怕这个！中共大势已去？习近平当局急传一个神秘数字! （老北京茶馆_第339集_2020_07_06） | [下载](https://y2mate.com/zh-cn/search/tKnzY2Jr_8Y) | [下载](../channels/teahouse/_tKnzY2Jr_8Y.srt?raw=true) | [下载](../channels/teahouse/_tKnzY2Jr_8Y.tw.srt?raw=true) | 
 | 习近平提最后关头，母猪言论官员空降香港！脱贫达标秘笈出炉！谭德塞反了：北京隐瞒证据！（老北京茶馆_第338集_2020_07_03） | [下载](https://y2mate.com/zh-cn/search/tLbMtTLQxOU) | [下载](../channels/teahouse/_tLbMtTLQxOU.srt?raw=true) | [下载](../channels/teahouse/_tLbMtTLQxOU.tw.srt?raw=true) | 
