@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 吹哨人现身,多少新冠黑幕将被曝光习近平的角色更加清晰;世卫组织还有机会挽回声誉吗(政论天下第196集 20200710)天亮时分 | [下载](https://y2mate.com/zh-cn/search/z--jq14jjBs) | [下载](../channels/tianliang/_z--jq14jjBs.srt?raw=true) | [下载](../channels/tianliang/_z--jq14jjBs.tw.srt?raw=true) | 
 | 美国挥舞制裁大棒,政治局委员陈全国中招;韩正、栗战书处境高危;中共可能的三招儿应对(政论天下第195集 20200709)天亮时分 | [下载](https://y2mate.com/zh-cn/search/hOZg-FFzc9M) | [下载](../channels/tianliang/_hOZg-FFzc9M.srt?raw=true) | [下载](../channels/tianliang/_hOZg-FFzc9M.tw.srt?raw=true) | 
 | 中美信息战已互殴三回合,四大领域中胜负手何在中共在香港也要建墙!除了拆墙,美国还需要做这件事(政论天下第194集 20200708)天亮时分 | [下载](https://y2mate.com/zh-cn/search/bdtji0VqbKQ) | [下载](../channels/tianliang/_bdtji0VqbKQ.srt?raw=true) | [下载](../channels/tianliang/_bdtji0VqbKQ.tw.srt?raw=true) | 
 | “顺我者昌,逆我者嫖娼”许章润最终很可能以“煽颠”论罪(政论天下第193集 20200706)天亮时分 | [下载](https://y2mate.com/zh-cn/search/0TgFrENJqWQ) | [下载](../channels/tianliang/_0TgFrENJqWQ.srt?raw=true) | [下载](../channels/tianliang/_0TgFrENJqWQ.tw.srt?raw=true) | 
