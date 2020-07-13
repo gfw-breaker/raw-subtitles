@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 唐山又震了，习近平为啥心惊？三女侠吹响反共集结号，闫丽梦叶钊颖ZOO吓坏总加速师（老北京茶馆_第343集_2020_07_12） | [下载](https://y2mate.com/zh-cn/search/_X1XmjSJquc) | [下载](../channels/teahouse/__X1XmjSJquc.srt?raw=true) | [下载](../channels/teahouse/__X1XmjSJquc.tw.srt?raw=true) | 
 | 陈全国祭旗，川普迈开第二步！闫丽梦爆重磅，王毅紧急放软求和？总误判师习近平，又误判了（老北京茶馆_第342集_2020_07_10） | [下载](https://y2mate.com/zh-cn/search/3BZZ1DPoYd4) | [下载](../channels/teahouse/_3BZZ1DPoYd4.srt?raw=true) | [下载](../channels/teahouse/_3BZZ1DPoYd4.tw.srt?raw=true) | 
 | 习近平躲猫猫，被一份体检报告吓到？大水来了，人民醒了！王全璋：我是怎么一个人（老北京茶馆_第341集_2020_07_09） | [下载](https://y2mate.com/zh-cn/search/7xHGTm9ZuLc) | [下载](../channels/teahouse/_7xHGTm9ZuLc.srt?raw=true) | [下载](../channels/teahouse/_7xHGTm9ZuLc.tw.srt?raw=true) | 
 | 李克强又泄密了！贵州安顺高考大巴翻入水库！郭于华国骂后，许章润周日回家？（老北京茶馆_第340集_2020_07_07） | [下载](https://y2mate.com/zh-cn/search/hG8SyiSIKkc) | [下载](../channels/teahouse/_hG8SyiSIKkc.srt?raw=true) | [下载](../channels/teahouse/_hG8SyiSIKkc.tw.srt?raw=true) | 
