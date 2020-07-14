@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美國或將禁用微信？海外華人也被“審查”！“閻麗夢”不只一位？！更多中共疫情黑幕知情人與美情報機構合作 | [下载](https://y2mate.com/zh-cn/search/JAB0WzTUxIo) | [下载](../channels/yuelan/_JAB0WzTUxIo.srt?raw=true) | [下载](../channels/yuelan/_JAB0WzTUxIo.tw.srt?raw=true) | 
 | 新冠傷腦！哈佛_麻省理工為留學生提告川普政府！白宮：切勿投資中企！美聯航_Levi’s大裁員！Brooks Brothers破產！ | [下载](https://y2mate.com/zh-cn/search/FLeIld5DaX8) | [下载](../channels/yuelan/_FLeIld5DaX8.srt?raw=true) | [下载](../channels/yuelan/_FLeIld5DaX8.tw.srt?raw=true) | 
 | 大量留美學生恐被遣返？中共威脅海外華人“不回國就“自殺”？！美國計劃全面禁用Tiktok抖音等中國App | [下载](https://y2mate.com/zh-cn/search/0I3qp1jI0A0) | [下载](../channels/yuelan/_0I3qp1jI0A0.srt?raw=true) | [下载](../channels/yuelan/_0I3qp1jI0A0.tw.srt?raw=true) | 
 | 新冠可空气传播！全球百位專家致信WHO：須加強防疫等級！川普推文“中國病毒”惹爭議 | [下载](https://y2mate.com/zh-cn/search/QPki_JkA15Q) | [下载](../channels/yuelan/_QPki_JkA15Q.srt?raw=true) | [下载](../channels/yuelan/_QPki_JkA15Q.tw.srt?raw=true) | 
