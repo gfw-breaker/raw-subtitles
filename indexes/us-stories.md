@@ -6,6 +6,8 @@
 | 你不知道的美國名校【美國教育】22 | [下载](https://y2mate.com/zh-cn/search/THzTVaIY9TM) | [下载](../channels/us-stories/_THzTVaIY9TM.srt?raw=true) | [下载](../channels/us-stories/_THzTVaIY9TM.tw.srt?raw=true) | 
 | 美國的特許學校 【美國教育】21 | [下载](https://y2mate.com/zh-cn/search/Uf2UqCQU5OQ) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.srt?raw=true) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.tw.srt?raw=true) | 
 | 九岁女孩筑梦之路 【美国教育】20 | [下载](https://y2mate.com/zh-cn/search/tQ1ChIos1wk) | [下载](../channels/us-stories/_tQ1ChIos1wk.srt?raw=true) | [下载](../channels/us-stories/_tQ1ChIos1wk.tw.srt?raw=true) | 
+| 孩子在公共場所哭鬧 家長怎麼辦？【老美怎麼辦】7 | [下载](https://y2mate.com/zh-cn/search/8C2ltGn0vS4) | [下载](../channels/us-stories/_8C2ltGn0vS4.srt?raw=true) | [下载](../channels/us-stories/_8C2ltGn0vS4.tw.srt?raw=true) | 
+| 學習超前的孩子需要跳级吗？【美國教育】3 | [下载](https://y2mate.com/zh-cn/search/mj9SPzzrr5Y) | [下载](../channels/us-stories/_mj9SPzzrr5Y.srt?raw=true) | [下载](../channels/us-stories/_mj9SPzzrr5Y.tw.srt?raw=true) | 
 | 女孩子温暖了寒冬 【美國教育】19 | [下载](https://y2mate.com/zh-cn/search/oRGbf7abhA8) | [下载](../channels/us-stories/_oRGbf7abhA8.srt?raw=true) | [下载](../channels/us-stories/_oRGbf7abhA8.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】18 - 怎样给老师送礼？ | [下载](https://y2mate.com/zh-cn/search/z64RuG3hWBs) | [下载](../channels/us-stories/_z64RuG3hWBs.srt?raw=true) | [下载](../channels/us-stories/_z64RuG3hWBs.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】17 - 女童子军的王牌活动 | [下载](https://y2mate.com/zh-cn/search/ISXC6wKywq4) | [下载](../channels/us-stories/_ISXC6wKywq4.srt?raw=true) | [下载](../channels/us-stories/_ISXC6wKywq4.tw.srt?raw=true) | 
@@ -33,8 +35,6 @@
 | 【清聊美國 - 移民生活】14 - 飞机紧急迫降的经历 | [下载](https://y2mate.com/zh-cn/search/59Q613MuFxE) | [下载](../channels/us-stories/_59Q613MuFxE.srt?raw=true) | [下载](../channels/us-stories/_59Q613MuFxE.tw.srt?raw=true) | 
 | 【清聊美国 - 移民生活】13 - 在美國如何投訴 | [下载](https://y2mate.com/zh-cn/search/VsuCaay-rzI) | [下载](../channels/us-stories/_VsuCaay-rzI.srt?raw=true) | [下载](../channels/us-stories/_VsuCaay-rzI.tw.srt?raw=true) | 
 | 【清聊美國 - 移民生活】12 - 超市有貨不買的原因 | [下载](https://y2mate.com/zh-cn/search/BnZ8C5xyfiI) | [下载](../channels/us-stories/_BnZ8C5xyfiI.srt?raw=true) | [下载](../channels/us-stories/_BnZ8C5xyfiI.tw.srt?raw=true) | 
-| 【清聊美國 - 老美怎麼辦】7 - 孩子在公共場所哭鬧 家長怎麼辦？ | [下载](https://y2mate.com/zh-cn/search/8C2ltGn0vS4) | [下载](../channels/us-stories/_8C2ltGn0vS4.srt?raw=true) | [下载](../channels/us-stories/_8C2ltGn0vS4.tw.srt?raw=true) | 
-| 【清聊美國 - 美國教育】3 - 學習超前的孩子需要跳级吗？ | [下载](https://y2mate.com/zh-cn/search/mj9SPzzrr5Y) | [下载](../channels/us-stories/_mj9SPzzrr5Y.srt?raw=true) | [下载](../channels/us-stories/_mj9SPzzrr5Y.tw.srt?raw=true) | 
 | 【清聊美国 - 老美怎么办】6 - 18岁的孩子被逐出家门的原因 | [下载](https://y2mate.com/zh-cn/search/97qsYRWlPpc) | [下载](../channels/us-stories/_97qsYRWlPpc.srt?raw=true) | [下载](../channels/us-stories/_97qsYRWlPpc.tw.srt?raw=true) | 
 | 【清聊美國 - 老美怎麼辦】5 - 給18歲的學生找工作的一點建議 | [下载](https://y2mate.com/zh-cn/search/TQAbuuAPDwM) | [下载](../channels/us-stories/_TQAbuuAPDwM.srt?raw=true) | [下载](../channels/us-stories/_TQAbuuAPDwM.tw.srt?raw=true) | 
 | 【清聊美國 - 美國教育】2- 给教授提意见的后果 | [下载](https://y2mate.com/zh-cn/search/uNxPEoK_L5M) | [下载](../channels/us-stories/_uNxPEoK_L5M.srt?raw=true) | [下载](../channels/us-stories/_uNxPEoK_L5M.tw.srt?raw=true) | 
