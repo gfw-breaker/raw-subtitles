@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 九千万党员禁止来美川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径(政论天下第199集 20200716)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rBS0l8-N_VM) | [下载](../channels/tianliang/_rBS0l8-N_VM.srt?raw=true) | [下载](../channels/tianliang/_rBS0l8-N_VM.tw.srt?raw=true) | 
 | 洪水滔天李克强隐身,是主动撂挑子还是被习近平雪藏政治局常委会中李克强几乎是孤家寡人(政论天下第198集 20200714)天亮时分 | [下载](https://y2mate.com/zh-cn/search/wMYvh5-Z7Qg) | [下载](../channels/tianliang/_wMYvh5-Z7Qg.srt?raw=true) | [下载](../channels/tianliang/_wMYvh5-Z7Qg.tw.srt?raw=true) | 
 | 美国务院史无前例警告,一连串制裁中共大招即将登场;大洪水后,警惕瘟疫与粮荒(政论天下第197集 20200712)天亮时分 | [下载](https://y2mate.com/zh-cn/search/OM5xG-mochM) | [下载](../channels/tianliang/_OM5xG-mochM.srt?raw=true) | [下载](../channels/tianliang/_OM5xG-mochM.tw.srt?raw=true) | 
 | 吹哨人现身,多少新冠黑幕将被曝光习近平的角色更加清晰;世卫组织还有机会挽回声誉吗(政论天下第196集 20200710)天亮时分 | [下载](https://y2mate.com/zh-cn/search/z--jq14jjBs) | [下载](../channels/tianliang/_z--jq14jjBs.srt?raw=true) | [下载](../channels/tianliang/_z--jq14jjBs.tw.srt?raw=true) | 
