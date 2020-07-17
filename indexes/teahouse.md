@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 弃守密令！川普单挑中共：拟禁止所有党员入境、废在美家属签证！华春莹抢习近平总加速师桂冠？（老北京茶馆_第345集_2020_07_16） | [下载](https://y2mate.com/zh-cn/search/vI21isSFewM) | [下载](../channels/teahouse/_vI21isSFewM.srt?raw=true) | [下载](../channels/teahouse/_vI21isSFewM.tw.srt?raw=true) | 
 | 习近平加速川普？华春莹称制裁美国F4；蓬佩奥指中共南海非法！闫丽梦：时间不多了！（老北京茶馆_第344集_2020_07_14） | [下载](https://y2mate.com/zh-cn/search/yBtaji41sZI) | [下载](../channels/teahouse/_yBtaji41sZI.srt?raw=true) | [下载](../channels/teahouse/_yBtaji41sZI.tw.srt?raw=true) | 
 | 唐山又震了，习近平为啥心惊？三女侠吹响反共集结号，闫丽梦叶钊颖ZOO吓坏总加速师（老北京茶馆_第343集_2020_07_12） | [下载](https://y2mate.com/zh-cn/search/_X1XmjSJquc) | [下载](../channels/teahouse/__X1XmjSJquc.srt?raw=true) | [下载](../channels/teahouse/__X1XmjSJquc.tw.srt?raw=true) | 
 | 陈全国祭旗，川普迈开第二步！闫丽梦爆重磅，王毅紧急放软求和？总误判师习近平，又误判了（老北京茶馆_第342集_2020_07_10） | [下载](https://y2mate.com/zh-cn/search/3BZZ1DPoYd4) | [下载](../channels/teahouse/_3BZZ1DPoYd4.srt?raw=true) | [下载](../channels/teahouse/_3BZZ1DPoYd4.tw.srt?raw=true) | 
