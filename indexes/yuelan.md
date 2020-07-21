@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 第二輪紓困計劃更多細節公佈！加州允許理髮店“有條件”開放 | [下载](https://y2mate.com/zh-cn/search/P4IY3C-JAwQ) | [下载](../channels/yuelan/_P4IY3C-JAwQ.srt?raw=true) | [下载](../channels/yuelan/_P4IY3C-JAwQ.tw.srt?raw=true) | 
 | 美第二輪紓困案來了！美擬禁止中共黨員及家屬入境！“退黨”成熱搜？Target_CVS_Walgreen要求進店戴口罩 | [下载](https://y2mate.com/zh-cn/search/5dmNXpeIf-A) | [下载](../channels/yuelan/_5dmNXpeIf-A.srt?raw=true) | [下载](../channels/yuelan/_5dmNXpeIf-A.tw.srt?raw=true) | 
 | 美加碼制裁中共！華為等中國科技員工禁入美國！？大反轉！留美學生網課簽證照發！美新冠疫苗研發再突破！ | [下载](https://y2mate.com/zh-cn/search/TxvTsp3ALnE) | [下载](../channels/yuelan/_TxvTsp3ALnE.srt?raw=true) | [下载](../channels/yuelan/_TxvTsp3ALnE.tw.srt?raw=true) | 
 | 美國或將禁用微信？海外華人也被“審查”！“閻麗夢”不只一位？！更多中共疫情黑幕知情人與美情報機構合作 | [下载](https://y2mate.com/zh-cn/search/JAB0WzTUxIo) | [下载](../channels/yuelan/_JAB0WzTUxIo.srt?raw=true) | [下载](../channels/yuelan/_JAB0WzTUxIo.tw.srt?raw=true) | 

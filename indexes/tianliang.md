@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外； 评美国国务院最新声明;(政论天下第201集 20200720)天亮时分 | [下载](https://y2mate.com/zh-cn/search/A_MuK1VhMjo) | [下载](../channels/tianliang/_A_MuK1VhMjo.srt?raw=true) | [下载](../channels/tianliang/_A_MuK1VhMjo.tw.srt?raw=true) | 
 | “40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战中国第二季度GDP到底增长多少(政论天下第200集 20200718)天亮时分 | [下载](https://y2mate.com/zh-cn/search/vE2lsOm-pMY) | [下载](../channels/tianliang/_vE2lsOm-pMY.srt?raw=true) | [下载](../channels/tianliang/_vE2lsOm-pMY.tw.srt?raw=true) | 
 | 九千万党员禁止来美川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径(政论天下第199集 20200716)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rBS0l8-N_VM) | [下载](../channels/tianliang/_rBS0l8-N_VM.srt?raw=true) | [下载](../channels/tianliang/_rBS0l8-N_VM.tw.srt?raw=true) | 
 | 洪水滔天李克强隐身,是主动撂挑子还是被习近平雪藏政治局常委会中李克强几乎是孤家寡人(政论天下第198集 20200714)天亮时分 | [下载](https://y2mate.com/zh-cn/search/wMYvh5-Z7Qg) | [下载](../channels/tianliang/_wMYvh5-Z7Qg.srt?raw=true) | [下载](../channels/tianliang/_wMYvh5-Z7Qg.tw.srt?raw=true) | 
