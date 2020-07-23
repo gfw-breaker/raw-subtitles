@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美國為何要“休斯頓中領館“立即關停？中美斷交前奏？在美華人該如何自處？ | [下载](https://y2mate.com/zh-cn/search/DHyboTuTabk) | [下载](../channels/yuelan/_DHyboTuTabk.srt?raw=true) | [下载](../channels/yuelan/_DHyboTuTabk.tw.srt?raw=true) | 
 | 第二輪紓困計劃更多細節公佈！加州允許理髮店“有條件”開放 | [下载](https://y2mate.com/zh-cn/search/P4IY3C-JAwQ) | [下载](../channels/yuelan/_P4IY3C-JAwQ.srt?raw=true) | [下载](../channels/yuelan/_P4IY3C-JAwQ.tw.srt?raw=true) | 
 | 美第二輪紓困案來了！美擬禁止中共黨員及家屬入境！“退黨”成熱搜？Target_CVS_Walgreen要求進店戴口罩 | [下载](https://y2mate.com/zh-cn/search/5dmNXpeIf-A) | [下载](../channels/yuelan/_5dmNXpeIf-A.srt?raw=true) | [下载](../channels/yuelan/_5dmNXpeIf-A.tw.srt?raw=true) | 
 | 美加碼制裁中共！華為等中國科技員工禁入美國！？大反轉！留美學生網課簽證照發！美新冠疫苗研發再突破！ | [下载](https://y2mate.com/zh-cn/search/TxvTsp3ALnE) | [下载](../channels/yuelan/_TxvTsp3ALnE.srt?raw=true) | [下载](../channels/yuelan/_TxvTsp3ALnE.tw.srt?raw=true) | 
