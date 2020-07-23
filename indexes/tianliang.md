@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 72小时内关闭中领馆!美国务院暗示中共在颠覆美国主权;美国已经给了中共面子;中共将如何报复(政论天下第202集 20200722)天亮时分 | [下载](https://y2mate.com/zh-cn/search/JoZLtV8C3Gs) | [下载](../channels/tianliang/_JoZLtV8C3Gs.srt?raw=true) | [下载](../channels/tianliang/_JoZLtV8C3Gs.tw.srt?raw=true) | 
 | 中共末日逃生计划一夜夭折；算一算二十年来,中共洗了多少钱到海外； 评美国国务院最新声明;(政论天下第201集 20200720)天亮时分 | [下载](https://y2mate.com/zh-cn/search/A_MuK1VhMjo) | [下载](../channels/tianliang/_A_MuK1VhMjo.srt?raw=true) | [下载](../channels/tianliang/_A_MuK1VhMjo.tw.srt?raw=true) | 
 | “40米长刀和5.1万吨鲜血”,南中国海是否会爆发热战中国第二季度GDP到底增长多少(政论天下第200集 20200718)天亮时分 | [下载](https://y2mate.com/zh-cn/search/vE2lsOm-pMY) | [下载](../channels/tianliang/_vE2lsOm-pMY.srt?raw=true) | [下载](../channels/tianliang/_vE2lsOm-pMY.tw.srt?raw=true) | 
 | 九千万党员禁止来美川普签署的可行性分析;中美对决将迅速升级,大战略下的具体操作捷径(政论天下第199集 20200716)天亮时分 | [下载](https://y2mate.com/zh-cn/search/rBS0l8-N_VM) | [下载](../channels/tianliang/_rBS0l8-N_VM.srt?raw=true) | [下载](../channels/tianliang/_rBS0l8-N_VM.tw.srt?raw=true) | 
