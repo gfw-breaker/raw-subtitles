@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 投诚者PK唐娟，开启污点证人反共自救时代；王毅：成都领事馆休斯顿领事馆不冲突不对抗！（老北京茶馆_第349集_2020_07_25） | [下载](https://y2mate.com/zh-cn/search/8YWIugzlBj8) | [下载](../channels/teahouse/_8YWIugzlBj8.srt?raw=true) | [下载](../channels/teahouse/_8YWIugzlBj8.tw.srt?raw=true) | 
 | 休斯顿领事馆遭关闭，紧急烧毁啥证据？蓬佩奥下令中美鸣锣？中共如何报复：汪文斌扔羊皮大衣（老北京茶馆_第348集_2020_07_22） | [下载](https://y2mate.com/zh-cn/search/8Eo9lM88zm4) | [下载](../channels/teahouse/_8Eo9lM88zm4.srt?raw=true) | [下载](../channels/teahouse/_8Eo9lM88zm4.tw.srt?raw=true) | 
 | 休斯顿领事馆遭关闭，紧急烧毁啥证据？蓬佩奥下令中美鸣锣？中共如何报复：汪文斌扔羊皮大衣（老北京茶馆_第348集_2020_07_22） | [下载](https://y2mate.com/zh-cn/search/xTsfO6NleIs) | [下载](../channels/teahouse/_xTsfO6NleIs.srt?raw=true) | [下载](../channels/teahouse/_xTsfO6NleIs.tw.srt?raw=true) | 
 | 习近平加速思想研究中心成立！蓬佩奥声明点死穴，美英联手灭共！班农催川普下决心！（老北京茶馆_第347集_2020_07_21） | [下载](https://y2mate.com/zh-cn/search/IBzdopQxvf0) | [下载](../channels/teahouse/_IBzdopQxvf0.srt?raw=true) | [下载](../channels/teahouse/_IBzdopQxvf0.tw.srt?raw=true) | 
