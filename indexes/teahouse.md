@@ -5,8 +5,8 @@
 |---|---|---|---|
 | 投诚者PK唐娟，开启污点证人反共自救时代；王毅：成都领事馆休斯顿领事馆不冲突不对抗！（老北京茶馆_第349集_2020_07_25） | [下载](https://y2mate.com/zh-cn/search/8YWIugzlBj8) | [下载](../channels/teahouse/_8YWIugzlBj8.srt?raw=true) | [下载](../channels/teahouse/_8YWIugzlBj8.tw.srt?raw=true) | 
 | 休斯顿领事馆遭关闭，紧急烧毁啥证据？蓬佩奥下令中美鸣锣？中共如何报复：汪文斌扔羊皮大衣（老北京茶馆_第348集_2020_07_22） | [下载](https://y2mate.com/zh-cn/search/8Eo9lM88zm4) | [下载](../channels/teahouse/_8Eo9lM88zm4.srt?raw=true) | [下载](../channels/teahouse/_8Eo9lM88zm4.tw.srt?raw=true) | 
-| 休斯顿领事馆遭关闭，紧急烧毁啥证据？蓬佩奥下令中美鸣锣？中共如何报复：汪文斌扔羊皮大衣（老北京茶馆_第348集_2020_07_22） | [下载](https://y2mate.com/zh-cn/search/xTsfO6NleIs) | [下载](../channels/teahouse/_xTsfO6NleIs.srt?raw=true) | [下载](../channels/teahouse/_xTsfO6NleIs.tw.srt?raw=true) | 
 | 习近平加速思想研究中心成立！蓬佩奥声明点死穴，美英联手灭共！班农催川普下决心！（老北京茶馆_第347集_2020_07_21） | [下载](https://y2mate.com/zh-cn/search/IBzdopQxvf0) | [下载](../channels/teahouse/_IBzdopQxvf0.srt?raw=true) | [下载](../channels/teahouse/_IBzdopQxvf0.tw.srt?raw=true) | 
+| 休斯顿领事馆遭关闭，紧急烧毁啥证据？蓬佩奥下令中美鸣锣？中共如何报复：汪文斌扔羊皮大衣（老北京茶馆_第348集_2020_07_22） | [下载](https://y2mate.com/zh-cn/search/xTsfO6NleIs) | [下载](../channels/teahouse/_xTsfO6NleIs.srt?raw=true) | [下载](../channels/teahouse/_xTsfO6NleIs.tw.srt?raw=true) | 
 | 外交部急换战羊汪文斌！美防长：瞄准中共！胡锡进：非要堵死我们？美移民局咋考核退党？（老北京茶馆_第346集_2020_07_19） | [下载](https://y2mate.com/zh-cn/search/sX0xre6IiH0) | [下载](../channels/teahouse/_sX0xre6IiH0.srt?raw=true) | [下载](../channels/teahouse/_sX0xre6IiH0.tw.srt?raw=true) | 
 | 弃守密令！川普单挑中共：拟禁止所有党员入境、废在美家属签证！华春莹抢习近平总加速师桂冠？（老北京茶馆_第345集_2020_07_16） | [下载](https://y2mate.com/zh-cn/search/vI21isSFewM) | [下载](../channels/teahouse/_vI21isSFewM.srt?raw=true) | [下载](../channels/teahouse/_vI21isSFewM.tw.srt?raw=true) | 
 | 习近平加速川普？华春莹称制裁美国F4；蓬佩奥指中共南海非法！闫丽梦：时间不多了！（老北京茶馆_第344集_2020_07_14） | [下载](https://y2mate.com/zh-cn/search/yBtaji41sZI) | [下载](../channels/teahouse/_yBtaji41sZI.srt?raw=true) | [下载](../channels/teahouse/_yBtaji41sZI.tw.srt?raw=true) | 
