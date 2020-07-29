@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美國新一輪紓困案正式公佈！每人再發$1200何時到帳？失業補助縮水！中領館藏匿女軍官唐娟開庭受審 | [下载](https://y2mate.com/zh-cn/search/jt06Uii5s8g) | [下载](../channels/yuelan/_jt06Uii5s8g.srt?raw=true) | [下载](../channels/yuelan/_jt06Uii5s8g.tw.srt?raw=true) | 
 | 美或關閉更多中領館！嚴打中共間諜！呼籲中國人“改變”中共 | [下载](https://y2mate.com/zh-cn/search/1YVo93AFsHI) | [下载](../channels/yuelan/_1YVo93AFsHI.srt?raw=true) | [下载](../channels/yuelan/_1YVo93AFsHI.tw.srt?raw=true) | 
 | 美國為何要“休斯頓中領館“立即關停？中美斷交前奏？在美華人該如何自處？ | [下载](https://y2mate.com/zh-cn/search/DHyboTuTabk) | [下载](../channels/yuelan/_DHyboTuTabk.srt?raw=true) | [下载](../channels/yuelan/_DHyboTuTabk.tw.srt?raw=true) | 
 | 第二輪紓困計劃更多細節公佈！加州允許理髮店“有條件”開放 | [下载](https://y2mate.com/zh-cn/search/P4IY3C-JAwQ) | [下载](../channels/yuelan/_P4IY3C-JAwQ.srt?raw=true) | [下载](../channels/yuelan/_P4IY3C-JAwQ.tw.srt?raw=true) | 
