@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 国安恶法大棒砸下,习近平哭丧脸是因曾庆红政变吗逮捕、通缉、DQ,香港立法会选举推迟一年，中共给国际社会的制裁递刀(政论天下第206集 20200731)天亮时分 | [下载](https://y2mate.com/zh-cn/search/v3naB4rac74) | [下载](../channels/tianliang/_v3naB4rac74.srt?raw=true) | [下载](../channels/tianliang/_v3naB4rac74.tw.srt?raw=true) | 
 | 美国策反下,中共内反习势力是否会发动政变;谁才能扛起灭共大旗;胡锡进的核威慑与南海热战的概率(政论天下第205集 20200729)天亮时分 | [下载](https://y2mate.com/zh-cn/search/4C0xRIAKKJY) | [下载](../channels/tianliang/_4C0xRIAKKJY.srt?raw=true) | [下载](../channels/tianliang/_4C0xRIAKKJY.tw.srt?raw=true) | 
 | 清理中共间谍,美国国土安全部成立专门工作组;自由社会应尽快抽干中共代理人沼泽地;习近平给中共设定的智商上限(政论天下第204集 20200726)天亮时分 | [下载](https://y2mate.com/zh-cn/search/EpNuRWhfa64) | [下载](../channels/tianliang/_EpNuRWhfa64.srt?raw=true) | [下载](../channels/tianliang/_EpNuRWhfa64.tw.srt?raw=true) | 
 | 蓬佩奥的灭共宣言,四大难题与解决方案;制裁习近平和全体党员概率大增;中美完全丧失互信;大量中共间谍将投诚西方（政论天下第203集 20200724）天亮时分 | [下载](https://y2mate.com/zh-cn/search/awcnvoMDg1M) | [下载](../channels/tianliang/_awcnvoMDg1M.srt?raw=true) | [下载](../channels/tianliang/_awcnvoMDg1M.tw.srt?raw=true) | 
