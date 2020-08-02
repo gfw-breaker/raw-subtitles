@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普急眼：官媒盛赞蓬佩奥！中领馆阻唐娟自首？李克强遭遇下马威！林郑配合李登辉延后选举！（老北京茶馆_第353集_2020_08_01） | [下载](https://y2mate.com/zh-cn/search/P-PqYLGwXac) | [下载](../channels/teahouse/_P-PqYLGwXac.srt?raw=true) | [下载](../channels/teahouse/_P-PqYLGwXac.tw.srt?raw=true) | 
 | 李登辉罕见评价习近平：野心比毛大，难给中国民主；全党突然痛批马屁经《平安经》！（老北京茶馆_第352集_2020_07_31） | [下载](https://y2mate.com/zh-cn/search/0mT7OHjI7dM) | [下载](../channels/teahouse/_0mT7OHjI7dM.srt?raw=true) | [下载](../channels/teahouse/_0mT7OHjI7dM.tw.srt?raw=true) | 
 | 内循环加速！习近平第5大发明出炉，袁国勇作证！投诚者太多，新华社反美文严重泄密！（老北京茶馆_第351集_2020_07_29） | [下载](https://y2mate.com/zh-cn/search/yKqfXKLBC68) | [下载](../channels/teahouse/_yKqfXKLBC68.srt?raw=true) | [下载](../channels/teahouse/_yKqfXKLBC68.tw.srt?raw=true) | 
 | 任志强李克强“双强克习”？习近平突然宣布抵达小康，并警告李中堂：摆正自己位置！（老北京茶馆_第350集_2020_07_27） | [下载](https://y2mate.com/zh-cn/search/AfzysgGKjaY) | [下载](../channels/teahouse/_AfzysgGKjaY.srt?raw=true) | [下载](../channels/teahouse/_AfzysgGKjaY.tw.srt?raw=true) | 
