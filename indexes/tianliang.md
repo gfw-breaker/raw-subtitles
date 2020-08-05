@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 微软收购抖音风险巨大!美国拒绝所有中共记者签证申请;中共早已深度渗透美国,这几个领域是重灾区(政论天下第208集 20200804)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-O9e4uxgPAQ) | [下载](../channels/tianliang/_-O9e4uxgPAQ.srt?raw=true) | [下载](../channels/tianliang/_-O9e4uxgPAQ.tw.srt?raw=true) | 
 | 习近平羞辱李克强;内循环下,中共经济将枯竭而死.美国要禁微信和抖音,中共为何也调查微信(政论天下第207集 20200802)天亮时分 | [下载](https://y2mate.com/zh-cn/search/YAUQTewQ-E8) | [下载](../channels/tianliang/_YAUQTewQ-E8.srt?raw=true) | [下载](../channels/tianliang/_YAUQTewQ-E8.tw.srt?raw=true) | 
 | 国安恶法大棒砸下,习近平哭丧脸是因曾庆红政变吗逮捕、通缉、DQ,香港立法会选举推迟一年，中共给国际社会的制裁递刀(政论天下第206集 20200731)天亮时分 | [下载](https://y2mate.com/zh-cn/search/v3naB4rac74) | [下载](../channels/tianliang/_v3naB4rac74.srt?raw=true) | [下载](../channels/tianliang/_v3naB4rac74.tw.srt?raw=true) | 
 | 美国策反下,中共内反习势力是否会发动政变;谁才能扛起灭共大旗;胡锡进的核威慑与南海热战的概率(政论天下第205集 20200729)天亮时分 | [下载](https://y2mate.com/zh-cn/search/4C0xRIAKKJY) | [下载](../channels/tianliang/_4C0xRIAKKJY.srt?raw=true) | [下载](../channels/tianliang/_4C0xRIAKKJY.tw.srt?raw=true) | 

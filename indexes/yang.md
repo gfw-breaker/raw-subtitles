@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 🤡遊戲成癮到😈遊戲障礙的5⃣大特徵❗️關於玩遊戲上癮你必須知道這些事❗️【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/ZuZKhBCzjLE) | [下载](../channels/yang/_ZuZKhBCzjLE.srt?raw=true) | [下载](../channels/yang/_ZuZKhBCzjLE.tw.srt?raw=true) | 
 | ㊙️關於玩遊戲上癮你必須知道的事實❗️解密遊戲成癮的生物化學機制❗️【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/QP1AL7_WbFY) | [下载](../channels/yang/_QP1AL7_WbFY.srt?raw=true) | [下载](../channels/yang/_QP1AL7_WbFY.tw.srt?raw=true) | 
 | 一名遗传性抑郁症患者摆脱抑郁症的真实经历！【杨景端医话】 | [下载](https://y2mate.com/zh-cn/search/MSWmbIvcfdg) | [下载](../channels/yang/_MSWmbIvcfdg.srt?raw=true) | [下载](../channels/yang/_MSWmbIvcfdg.tw.srt?raw=true) | 
 | 三浦春马突然离世折射出怎样的心理创伤？杨医生带你走入三浦春马的内心世界【杨景端医话】 | [下载](https://y2mate.com/zh-cn/search/hfeZCajL9Rk) | [下载](../channels/yang/_hfeZCajL9Rk.srt?raw=true) | [下载](../channels/yang/_hfeZCajL9Rk.tw.srt?raw=true) | 
