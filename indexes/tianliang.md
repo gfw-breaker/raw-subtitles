@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美国开始制裁林郑月娥等11名官员;美台建交概率急升,远大于南海开战;制裁微信和抖音,净网运动与信息层面的中美脱钩(政论天下第210集 20200807)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-9HaHqn-Yq4) | [下载](../channels/tianliang/_-9HaHqn-Yq4.srt?raw=true) | [下载](../channels/tianliang/_-9HaHqn-Yq4.tw.srt?raw=true) | 
 | 北戴河会议是否会成为习近平的一个坎儿;政变成功的模式可能是这样的;从2015年的未遂政变说起(政论天下第209集 20200805)天亮时分 | [下载](https://y2mate.com/zh-cn/search/z_YrSh-hvXc) | [下载](../channels/tianliang/_z_YrSh-hvXc.srt?raw=true) | [下载](../channels/tianliang/_z_YrSh-hvXc.tw.srt?raw=true) | 
 | 微软收购抖音风险巨大!美国拒绝所有中共记者签证申请;中共早已深度渗透美国,这几个领域是重灾区(政论天下第208集 20200804)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-O9e4uxgPAQ) | [下载](../channels/tianliang/_-O9e4uxgPAQ.srt?raw=true) | [下载](../channels/tianliang/_-O9e4uxgPAQ.tw.srt?raw=true) | 
 | 习近平羞辱李克强;内循环下,中共经济将枯竭而死.美国要禁微信和抖音,中共为何也调查微信(政论天下第207集 20200802)天亮时分 | [下载](https://y2mate.com/zh-cn/search/YAUQTewQ-E8) | [下载](../channels/tianliang/_YAUQTewQ-E8.srt?raw=true) | [下载](../channels/tianliang/_YAUQTewQ-E8.tw.srt?raw=true) | 
