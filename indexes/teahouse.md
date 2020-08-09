@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 林郑月娥11港官遭美国制裁！79年后层级最高美官员访台，川普禁令让抖音微信股票大跌！（老北京茶馆_第356集_2020_08_07） | [下载](https://y2mate.com/zh-cn/search/Nw88fLXIWXg) | [下载](../channels/teahouse/_Nw88fLXIWXg.srt?raw=true) | [下载](../channels/teahouse/_Nw88fLXIWXg.tw.srt?raw=true) | 
 | 中美关系交恶，胡锡进连闯大祸！曝光中共驻美记者面临驱逐困境，核弹论涉嫌逼宫及窥探国家核机密！（老北京茶馆_第355集_2020_08_04） | [下载](https://y2mate.com/zh-cn/search/BmE7m0FOxOI) | [下载](../channels/teahouse/_BmE7m0FOxOI.srt?raw=true) | [下载](../channels/teahouse/_BmE7m0FOxOI.tw.srt?raw=true) | 
 | 川普封杀海外抖音TikTok？刘鹤戏耍李克强，习李斗白热化！逆淘汰加内循环，人性下架？（老北京茶馆_第354集_2020_08_03） | [下载](https://y2mate.com/zh-cn/search/U2T1VYsdQe0) | [下载](../channels/teahouse/_U2T1VYsdQe0.srt?raw=true) | [下载](../channels/teahouse/_U2T1VYsdQe0.tw.srt?raw=true) | 
 | 川普急眼：官媒盛赞蓬佩奥！中领馆阻唐娟自首？李克强遭遇下马威！林郑配合李登辉延后选举！（老北京茶馆_第353集_2020_08_01） | [下载](https://y2mate.com/zh-cn/search/P-PqYLGwXac) | [下载](../channels/teahouse/_P-PqYLGwXac.srt?raw=true) | [下载](../channels/teahouse/_P-PqYLGwXac.tw.srt?raw=true) | 
