@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蓬佩奥东欧反共结盟，美台建交进行中？川普备好系列动作！习近平当局对美紧急示弱！（老北京茶馆_第359集_2020_08_12） | [下载](https://y2mate.com/zh-cn/search/kamKPFueKRw) | [下载](../channels/teahouse/_kamKPFueKRw.srt?raw=true) | [下载](../channels/teahouse/_kamKPFueKRw.tw.srt?raw=true) | 
 | 黎智英奇迹！李克强在北戴河遭局？习近平奇招示弱：制裁11美国人，无川普政府成员！（老北京茶馆_第358集_2020_08_11） | [下载](https://y2mate.com/zh-cn/search/RUmn18tSxgM) | [下载](../channels/teahouse/_RUmn18tSxgM.srt?raw=true) | [下载](../channels/teahouse/_RUmn18tSxgM.tw.srt?raw=true) | 
 | 林郑次子逃离哈佛，中共金库脆断瑞士银行？美卫生部长到达台湾，美青少年控告抖音！（老北京茶馆_第357集_2020_08_09） | [下载](https://y2mate.com/zh-cn/search/ZSwioxgkZRU) | [下载](../channels/teahouse/_ZSwioxgkZRU.srt?raw=true) | [下载](../channels/teahouse/_ZSwioxgkZRU.tw.srt?raw=true) | 
 | 林郑月娥11港官遭美国制裁！79年后层级最高美官员访台，川普禁令让抖音微信股票大跌！（老北京茶馆_第356集_2020_08_07） | [下载](https://y2mate.com/zh-cn/search/Nw88fLXIWXg) | [下载](../channels/teahouse/_Nw88fLXIWXg.srt?raw=true) | [下载](../channels/teahouse/_Nw88fLXIWXg.tw.srt?raw=true) | 
