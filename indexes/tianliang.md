@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平批示凸显粮荒;中资银行忙着执行美国制裁决定;汽车工业也要内循环(政论天下第213集 20200812)天亮时分 | [下载](https://y2mate.com/zh-cn/search/VGoCS6-qxbY) | [下载](../channels/tianliang/_VGoCS6-qxbY.srt?raw=true) | [下载](../channels/tianliang/_VGoCS6-qxbY.tw.srt?raw=true) | 
 | 美台建交前兆;黎智英周庭被捕;香港民众全力撑苹果;美国要改组联合国,只有民主选举政府才能成为成员国(政论天下第212集 20200811)天亮时分 | [下载](https://y2mate.com/zh-cn/search/WgeFP7mRjLI) | [下载](../channels/tianliang/_WgeFP7mRjLI.srt?raw=true) | [下载](../channels/tianliang/_WgeFP7mRjLI.tw.srt?raw=true) | 
 | 麒麟断芯,微软断供,华为休克;华为的今天就是中共经济的明天,以及解决之道(政论天下第211集 20200809)天亮时分 | [下载](https://y2mate.com/zh-cn/search/mrWoSSeQ95U) | [下载](../channels/tianliang/_mrWoSSeQ95U.srt?raw=true) | [下载](../channels/tianliang/_mrWoSSeQ95U.tw.srt?raw=true) | 
 | 美国开始制裁林郑月娥等11名官员;美台建交概率急升,远大于南海开战;制裁微信和抖音,净网运动与信息层面的中美脱钩(政论天下第210集 20200807)天亮时分 | [下载](https://y2mate.com/zh-cn/search/-9HaHqn-Yq4) | [下载](../channels/tianliang/_-9HaHqn-Yq4.srt?raw=true) | [下载](../channels/tianliang/_-9HaHqn-Yq4.tw.srt?raw=true) | 
