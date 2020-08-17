@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 花木兰换角！周庭PK刘亦菲，反共亲共两重天；胡锡进抢夺奸臣冠名，800污点证人等加盟（老北京茶馆_第361集_2020_08_16） | [下载](https://y2mate.com/zh-cn/search/QRKLgNOZRd8) | [下载](../channels/teahouse/_QRKLgNOZRd8.srt?raw=true) | [下载](../channels/teahouse/_QRKLgNOZRd8.tw.srt?raw=true) | 
 | 习近平预警粮荒、监控舌尖上的庆丰包子铺；孔子学院成外国使团！北戴河会议三软三硬，香港吓坏北京！（老北京茶馆_第360集_2020_08_13） | [下载](https://y2mate.com/zh-cn/search/hln6O3T1HPo) | [下载](../channels/teahouse/_hln6O3T1HPo.srt?raw=true) | [下载](../channels/teahouse/_hln6O3T1HPo.tw.srt?raw=true) | 
 | 蓬佩奥东欧反共结盟，美台建交进行中？川普备好系列动作！习近平当局对美紧急示弱！（老北京茶馆_第359集_2020_08_12） | [下载](https://y2mate.com/zh-cn/search/kamKPFueKRw) | [下载](../channels/teahouse/_kamKPFueKRw.srt?raw=true) | [下载](../channels/teahouse/_kamKPFueKRw.tw.srt?raw=true) | 
 | 黎智英奇迹！李克强在北戴河遭局？习近平奇招示弱：制裁11美国人，无川普政府成员！（老北京茶馆_第358集_2020_08_11） | [下载](https://y2mate.com/zh-cn/search/RUmn18tSxgM) | [下载](../channels/teahouse/_RUmn18tSxgM.srt?raw=true) | [下载](../channels/teahouse/_RUmn18tSxgM.tw.srt?raw=true) | 
