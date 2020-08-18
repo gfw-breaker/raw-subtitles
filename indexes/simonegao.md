@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中美突然取消会谈，白邦瑞详解中美实力对比；川普为贸易协议留门，是福是祸？ | [下载](https://y2mate.com/zh-cn/search/X0pEgRCXnAQ) | [下载](../channels/simonegao/_X0pEgRCXnAQ.srt?raw=true) | [下载](../channels/simonegao/_X0pEgRCXnAQ.tw.srt?raw=true) | 
 | 蕭茗採訪袁弓夷：川普行政令將做一件前所未有的事；中美會在南中國海開戰嗎？會在台海開戰嗎？香港接下來會如何？ | [下载](https://y2mate.com/zh-cn/search/SSXG6Jhob48) | [下载](../channels/simonegao/_SSXG6Jhob48.srt?raw=true) | [下载](../channels/simonegao/_SSXG6Jhob48.tw.srt?raw=true) | 
 | （預告片）世紀之掩蓋 | [下载](https://y2mate.com/zh-cn/search/cyzLEex3VPY) | [下载](../channels/simonegao/_cyzLEex3VPY.srt?raw=true) | [下载](../channels/simonegao/_cyzLEex3VPY.tw.srt?raw=true) | 
 | 杨洁篪和蓬佩奥会面，没公布的才重要；最害怕的是川普把反共树为竞选主题；中共能让步的是哪些？ | [下载](https://y2mate.com/zh-cn/search/jSZikCoSVz0) | [下载](../channels/simonegao/_jSZikCoSVz0.srt?raw=true) | [下载](../channels/simonegao/_jSZikCoSVz0.tw.srt?raw=true) | 
