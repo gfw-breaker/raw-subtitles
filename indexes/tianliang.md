@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 班农被捕和保释;美国务院警告,尽快抛售中国股票;中共外储净额跌破1万亿美元,却面临1.6万亿债务偿付(政论天下第217集 20200820)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ldpFhmsxvcU) | [下载](../channels/tianliang/_ldpFhmsxvcU.srt?raw=true) | [下载](../channels/tianliang/_ldpFhmsxvcU.tw.srt?raw=true) | 
 | 芯片断供,华为破产重组美军方认为中美若开战,胜负尚未可知民主党大会登场,左媒对川普负面报道超过拜登150倍(政论天下第216集 20200818)天亮时分 | [下载](https://y2mate.com/zh-cn/search/cT651F6Ndj0) | [下载](../channels/tianliang/_cT651F6Ndj0.srt?raw=true) | [下载](../channels/tianliang/_cT651F6Ndj0.tw.srt?raw=true) | 
 | 数字币大规模测试背后,中共有何算计从人民币国际化,谈中美脱钩最快能有多快(政论天下第215集 20200816)天亮时分 | [下载](https://y2mate.com/zh-cn/search/FRWE_dHb9mA) | [下载](../channels/tianliang/_FRWE_dHb9mA.srt?raw=true) | [下载](../channels/tianliang/_FRWE_dHb9mA.tw.srt?raw=true) | 
 | 突发 -中美贸易代表会谈突然取消;千万美元赏金与千余共谍叛逃;中美博弈中,美国当前有一个致命弱点(政论天下第214集 20200814)天亮时分 | [下载](https://y2mate.com/zh-cn/search/_u5MBBlrw-k) | [下载](../channels/tianliang/__u5MBBlrw-k.srt?raw=true) | [下载](../channels/tianliang/__u5MBBlrw-k.tw.srt?raw=true) | 
