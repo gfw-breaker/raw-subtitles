@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 央视屈服，李克强背后势力不可小觑，大戏还在后面 | [下载](https://y2mate.com/zh-cn/search/A2Kv-1sgC7c) | [下载](../channels/wenrui/_A2Kv-1sgC7c.srt?raw=true) | [下载](../channels/wenrui/_A2Kv-1sgC7c.tw.srt?raw=true) | 
 | 体制渐对习近平失去耐心，其权力断崖式滑落风险陡增 | [下载](https://y2mate.com/zh-cn/search/l6C1T4mH8Mk) | [下载](../channels/wenrui/_l6C1T4mH8Mk.srt?raw=true) | [下载](../channels/wenrui/_l6C1T4mH8Mk.tw.srt?raw=true) | 
 | 李克强再次果断出手，倍受羞辱的习近平还能忍多久？ | [下载](https://y2mate.com/zh-cn/search/gO3Q4bWuvdg) | [下载](../channels/wenrui/_gO3Q4bWuvdg.srt?raw=true) | [下载](../channels/wenrui/_gO3Q4bWuvdg.tw.srt?raw=true) | 
 | 央视报导极不寻常，李克强变空气，习近平一定怒了 | [下载](https://y2mate.com/zh-cn/search/eaI9ntjvTtw) | [下载](../channels/wenrui/_eaI9ntjvTtw.srt?raw=true) | [下载](../channels/wenrui/_eaI9ntjvTtw.tw.srt?raw=true) | 
