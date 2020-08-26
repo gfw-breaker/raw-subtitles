@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普提美中脱钩、中共负全责！习近平一年级娃娃政治挂帅！武统台湾又尴尬了？（老北京茶馆_第365集_2020_08_24） | [下载](https://y2mate.com/zh-cn/search/0qU8iIO9UKE) | [下载](../channels/teahouse/_0qU8iIO9UKE.srt?raw=true) | [下载](../channels/teahouse/_0qU8iIO9UKE.tw.srt?raw=true) | 
 | 哈佛向许章润下聘书！李克强塔泥腿子视察重庆消息被封，空气吃播影帝出炉，涉嫌妄议？（老北京茶馆_第364集_2020_08_21） | [下载](https://y2mate.com/zh-cn/search/NZ8drkPlRIM) | [下载](../channels/teahouse/_NZ8drkPlRIM.srt?raw=true) | [下载](../channels/teahouse/_NZ8drkPlRIM.tw.srt?raw=true) | 
 | 川普叫停会谈，美国开始全线灭共！蓬佩奥定位肉搏战？林郑无法刷卡，高调宣誓效忠！（老北京茶馆_第362集_2020_08_17） | [下载](https://y2mate.com/zh-cn/search/yHBQFmHPrpU) | [下载](../channels/teahouse/_yHBQFmHPrpU.srt?raw=true) | [下载](../channels/teahouse/_yHBQFmHPrpU.tw.srt?raw=true) | 
 | 蔡霞欢呼被开除党籍！习近平内循环遭遇重挫，提倡饥饿感；黎智英撒泪担心家人变人质（老北京茶馆_第362集_2020_08_17） | [下载](https://y2mate.com/zh-cn/search/Ys4rU2X2WAg) | [下载](../channels/teahouse/_Ys4rU2X2WAg.srt?raw=true) | [下载](../channels/teahouse/_Ys4rU2X2WAg.tw.srt?raw=true) | 
