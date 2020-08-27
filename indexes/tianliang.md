@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平恢复党主席头衔李克强已被边缘化;人民日报三万字批蓬佩奥,却无法回答三个简单的问题(政论天下第220集 20200826)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UJg9NL5L6fs) | [下载](../channels/tianliang/_UJg9NL5L6fs.srt?raw=true) | [下载](../channels/tianliang/_UJg9NL5L6fs.tw.srt?raw=true) | 
 | 川普誓言第二任期拔掉中共经济输血管;金正恩又传昏迷,北韩承认内循环失败;华为停止开发新产品(政论天下第219集 20200824)天亮时分 | [下载](https://y2mate.com/zh-cn/search/xute3-tHgNo) | [下载](../channels/tianliang/_xute3-tHgNo.srt?raw=true) | [下载](../channels/tianliang/_xute3-tHgNo.tw.srt?raw=true) | 
 | 中共新冠疫苗,谁敢注射李克强新闻不能上头条;习近平新延安整风运动能成功吗(政论天下第218集 20200822)天亮时分 | [下载](https://y2mate.com/zh-cn/search/f7UhjmyKm3I) | [下载](../channels/tianliang/_f7UhjmyKm3I.srt?raw=true) | [下载](../channels/tianliang/_f7UhjmyKm3I.tw.srt?raw=true) | 
 | 班农被捕和保释;美国务院警告,尽快抛售中国股票;中共外储净额跌破1万亿美元,却面临1.6万亿债务偿付(政论天下第217集 20200820)天亮时分 | [下载](https://y2mate.com/zh-cn/search/ldpFhmsxvcU) | [下载](../channels/tianliang/_ldpFhmsxvcU.srt?raw=true) | [下载](../channels/tianliang/_ldpFhmsxvcU.tw.srt?raw=true) | 
