@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 赵立坚：没有共产党就没有新中国是中国人的信仰，我看笑了，还有更荒谬的 | [下载](https://y2mate.com/zh-cn/search/gDmuCqv8myE) | [下载](../channels/wenrui/_gDmuCqv8myE.srt?raw=true) | [下载](../channels/wenrui/_gDmuCqv8myE.tw.srt?raw=true) | 
 | 李克强渐露真容，习近平感到了实质的威胁，2020中南海充满变数 | [下载](https://y2mate.com/zh-cn/search/DhB37lxsNfc) | [下载](../channels/wenrui/_DhB37lxsNfc.srt?raw=true) | [下载](../channels/wenrui/_DhB37lxsNfc.tw.srt?raw=true) | 
 | 央视屈服，李克强背后势力不可小觑，大戏还在后面 | [下载](https://y2mate.com/zh-cn/search/A2Kv-1sgC7c) | [下载](../channels/wenrui/_A2Kv-1sgC7c.srt?raw=true) | [下载](../channels/wenrui/_A2Kv-1sgC7c.tw.srt?raw=true) | 
 | 体制渐对习近平失去耐心，其权力断崖式滑落风险陡增 | [下载](https://y2mate.com/zh-cn/search/l6C1T4mH8Mk) | [下载](../channels/wenrui/_l6C1T4mH8Mk.srt?raw=true) | [下载](../channels/wenrui/_l6C1T4mH8Mk.tw.srt?raw=true) | 
