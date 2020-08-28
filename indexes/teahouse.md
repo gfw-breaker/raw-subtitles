@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 特朗普和国防部连放狠话，习近平猛治李克強！南海尴尬了！多维泄密10场军演求不脱钩！（老北京茶馆_第367集_2020_08_27） | [下载](https://y2mate.com/zh-cn/search/tCBXZunsF_I) | [下载](../channels/teahouse/_tCBXZunsF_I.srt?raw=true) | [下载](../channels/teahouse/_tCBXZunsF_I.tw.srt?raw=true) | 
 | 英预言家2020下半年大预言：川普胜！中领馆租碎纸车销毁逼签材料？党三万字骂蓬佩奥（老北京茶馆_第366集_2020_08_25） | [下载](https://y2mate.com/zh-cn/search/-WpOEGXwP3s) | [下载](../channels/teahouse/_-WpOEGXwP3s.srt?raw=true) | [下载](../channels/teahouse/_-WpOEGXwP3s.tw.srt?raw=true) | 
 | 川普提美中脱钩、中共负全责！习近平一年级娃娃政治挂帅！武统台湾又尴尬了？（老北京茶馆_第365集_2020_08_24） | [下载](https://y2mate.com/zh-cn/search/0qU8iIO9UKE) | [下载](../channels/teahouse/_0qU8iIO9UKE.srt?raw=true) | [下载](../channels/teahouse/_0qU8iIO9UKE.tw.srt?raw=true) | 
 | 哈佛向许章润下聘书！李克强塔泥腿子视察重庆消息被封，空气吃播影帝出炉，涉嫌妄议？（老北京茶馆_第364集_2020_08_21） | [下载](https://y2mate.com/zh-cn/search/NZ8drkPlRIM) | [下载](../channels/teahouse/_NZ8drkPlRIM.srt?raw=true) | [下载](../channels/teahouse/_NZ8drkPlRIM.tw.srt?raw=true) | 
