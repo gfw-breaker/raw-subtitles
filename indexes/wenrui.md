@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李克强被逼到墙角，习近平直接挑战胡锦涛 | [下载](https://y2mate.com/zh-cn/search/HlRwtKGY-d4) | [下载](../channels/wenrui/_HlRwtKGY-d4.srt?raw=true) | [下载](../channels/wenrui/_HlRwtKGY-d4.tw.srt?raw=true) | 
 | '没有共产党就没有新中国' 是中国人的信仰，还能更荒谬些吗？ | [下载](https://y2mate.com/zh-cn/search/gDmuCqv8myE) | [下载](../channels/wenrui/_gDmuCqv8myE.srt?raw=true) | [下载](../channels/wenrui/_gDmuCqv8myE.tw.srt?raw=true) | 
 | 李克强渐露真容，习近平感到了实质的威胁，2020中南海充满变数 | [下载](https://y2mate.com/zh-cn/search/DhB37lxsNfc) | [下载](../channels/wenrui/_DhB37lxsNfc.srt?raw=true) | [下载](../channels/wenrui/_DhB37lxsNfc.tw.srt?raw=true) | 
 | 央视屈服，李克强背后势力不可小觑，大戏还在后面 | [下载](https://y2mate.com/zh-cn/search/A2Kv-1sgC7c) | [下载](../channels/wenrui/_A2Kv-1sgC7c.srt?raw=true) | [下载](../channels/wenrui/_A2Kv-1sgC7c.tw.srt?raw=true) | 
