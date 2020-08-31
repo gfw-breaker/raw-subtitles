@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美国到底有多乱？特朗普有多大责任？川普灭共是真心的吗？我为什么支持川普连任？ （老北京茶馆_第369集_2020_08_30） | [下载](https://y2mate.com/zh-cn/search/1TqXqUW-88k) | [下载](../channels/teahouse/_1TqXqUW-88k.srt?raw=true) | [下载](../channels/teahouse/_1TqXqUW-88k.tw.srt?raw=true) | 
 | 赵立坚闯祸，胡锡进叼盘侠变“醋精”？陈光诚共和党大会演讲，美国暗助习近平不被换？（老北京茶馆_第368集_2020_08_28） | [下载](https://y2mate.com/zh-cn/search/-NROa1dQItQ) | [下载](../channels/teahouse/_-NROa1dQItQ.srt?raw=true) | [下载](../channels/teahouse/_-NROa1dQItQ.tw.srt?raw=true) | 
 | 特朗普和国防部连放狠话，习近平猛治李克強！南海尴尬了！多维泄密10场军演求不脱钩！（老北京茶馆_第367集_2020_08_27） | [下载](https://y2mate.com/zh-cn/search/tCBXZunsF_I) | [下载](../channels/teahouse/_tCBXZunsF_I.srt?raw=true) | [下载](../channels/teahouse/_tCBXZunsF_I.tw.srt?raw=true) | 
 | 英预言家2020下半年大预言：川普胜！中领馆租碎纸车销毁逼签材料？党三万字骂蓬佩奥（老北京茶馆_第366集_2020_08_25） | [下载](https://y2mate.com/zh-cn/search/-WpOEGXwP3s) | [下载](../channels/teahouse/_-WpOEGXwP3s.srt?raw=true) | [下载](../channels/teahouse/_-WpOEGXwP3s.tw.srt?raw=true) | 
