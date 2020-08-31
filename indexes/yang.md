@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 解說電影《百憂解的國度》➕憂鬱症精神分析➖被黑浪吞噬的哈佛女生【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/Thmom7Hz3hU) | [下载](../channels/yang/_Thmom7Hz3hU.srt?raw=true) | [下载](../channels/yang/_Thmom7Hz3hU.tw.srt?raw=true) | 
 | 深度解讀｜玩遊戲為什麼容易上癮❓怎麼判斷你會不會遊戲成癮❓如何避免上癮❓【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/UKiylYBIxCU) | [下载](../channels/yang/_UKiylYBIxCU.srt?raw=true) | [下载](../channels/yang/_UKiylYBIxCU.tw.srt?raw=true) | 
 | 🤡玩遊戲上癮演變成精神疾病的5⃣大特徵❗️關於玩遊戲上癮你必須知道這些事❗️【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/ZuZKhBCzjLE) | [下载](../channels/yang/_ZuZKhBCzjLE.srt?raw=true) | [下载](../channels/yang/_ZuZKhBCzjLE.tw.srt?raw=true) | 
 | ㊙️關於玩遊戲上癮你必須知道的事實❗️解密遊戲成癮的生物化學機制❗️【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/QP1AL7_WbFY) | [下载](../channels/yang/_QP1AL7_WbFY.srt?raw=true) | [下载](../channels/yang/_QP1AL7_WbFY.tw.srt?raw=true) | 
