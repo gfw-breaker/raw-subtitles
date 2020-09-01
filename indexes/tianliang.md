@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 继新疆和香港之后，习近平又在内蒙和西藏加速；中共隐形的民族灭绝政策同时针对汉蒙回藏（政论天下第222集 20200831）天亮时分 | [下载](https://y2mate.com/zh-cn/search/lrS8XW9iHsQ) | [下载](../channels/tianliang/_lrS8XW9iHsQ.srt?raw=true) | [下载](../channels/tianliang/_lrS8XW9iHsQ.tw.srt?raw=true) | 
 | 史上最重要也最危险的选举;川普民调飙升;拜登是否会躲起不敢应战川普面临的最严重威胁不是拜登而是这个(政论天下第221集 20200828)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7soMt68aRZE) | [下载](../channels/tianliang/_7soMt68aRZE.srt?raw=true) | [下载](../channels/tianliang/_7soMt68aRZE.tw.srt?raw=true) | 
 | 习近平恢复党主席头衔李克强已被边缘化;人民日报三万字批蓬佩奥,却无法回答三个简单的问题(政论天下第220集 20200826)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UJg9NL5L6fs) | [下载](../channels/tianliang/_UJg9NL5L6fs.srt?raw=true) | [下载](../channels/tianliang/_UJg9NL5L6fs.tw.srt?raw=true) | 
 | 川普誓言第二任期拔掉中共经济输血管;金正恩又传昏迷,北韩承认内循环失败;华为停止开发新产品(政论天下第219集 20200824)天亮时分 | [下载](https://y2mate.com/zh-cn/search/xute3-tHgNo) | [下载](../channels/tianliang/_xute3-tHgNo.srt?raw=true) | [下载](../channels/tianliang/_xute3-tHgNo.tw.srt?raw=true) | 
