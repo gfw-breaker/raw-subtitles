@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 让别人付出沉重代价，你真有这个本事吗？别太把自己当回事了 | [下载](https://y2mate.com/zh-cn/search/Y6L1_P-dme8) | [下载](../channels/wenrui/_Y6L1_P-dme8.srt?raw=true) | [下载](../channels/wenrui/_Y6L1_P-dme8.tw.srt?raw=true) | 
+| “我是台湾人”震撼人心，王毅还能把别人怎么样？ | [下载](https://y2mate.com/zh-cn/search/Y6L1_P-dme8) | [下载](../channels/wenrui/_Y6L1_P-dme8.srt?raw=true) | [下载](../channels/wenrui/_Y6L1_P-dme8.tw.srt?raw=true) | 
 | 超越恐惧，台湾注定更精彩，更多国家会拥抱台湾 | [下载](https://y2mate.com/zh-cn/search/4bM5IRXjmUA) | [下载](../channels/wenrui/_4bM5IRXjmUA.srt?raw=true) | [下载](../channels/wenrui/_4bM5IRXjmUA.tw.srt?raw=true) | 
 | 李克强被逼到墙角，习近平直接挑战胡锦涛 | [下载](https://y2mate.com/zh-cn/search/HlRwtKGY-d4) | [下载](../channels/wenrui/_HlRwtKGY-d4.srt?raw=true) | [下载](../channels/wenrui/_HlRwtKGY-d4.tw.srt?raw=true) | 
 | '没有共产党就没有新中国' 是中国人的信仰，还能更荒谬些吗？ | [下载](https://y2mate.com/zh-cn/search/gDmuCqv8myE) | [下载](../channels/wenrui/_gDmuCqv8myE.srt?raw=true) | [下载](../channels/wenrui/_gDmuCqv8myE.tw.srt?raw=true) | 
