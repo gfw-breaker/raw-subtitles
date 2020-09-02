@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 捷克让欧洲汗颜，选择台湾还是北京，西方国家很难再回避 | [下载](https://y2mate.com/zh-cn/search/V9V9z3UWs8Y) | [下载](../channels/wenrui/_V9V9z3UWs8Y.srt?raw=true) | [下载](../channels/wenrui/_V9V9z3UWs8Y.tw.srt?raw=true) | 
 | “我是台湾人”震撼人心，王毅还能把别人怎么样？ | [下载](https://y2mate.com/zh-cn/search/Y6L1_P-dme8) | [下载](../channels/wenrui/_Y6L1_P-dme8.srt?raw=true) | [下载](../channels/wenrui/_Y6L1_P-dme8.tw.srt?raw=true) | 
 | 超越恐惧，台湾注定更精彩，更多国家会拥抱台湾 | [下载](https://y2mate.com/zh-cn/search/4bM5IRXjmUA) | [下载](../channels/wenrui/_4bM5IRXjmUA.srt?raw=true) | [下载](../channels/wenrui/_4bM5IRXjmUA.tw.srt?raw=true) | 
 | 李克强被逼到墙角，习近平直接挑战胡锦涛 | [下载](https://y2mate.com/zh-cn/search/HlRwtKGY-d4) | [下载](../channels/wenrui/_HlRwtKGY-d4.srt?raw=true) | [下载](../channels/wenrui/_HlRwtKGY-d4.tw.srt?raw=true) | 
