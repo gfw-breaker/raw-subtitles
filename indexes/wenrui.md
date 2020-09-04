@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 越描越黑，习近平深刻区分中国和中共，广告效果远超彭佩奥 | [下载](https://y2mate.com/zh-cn/search/3cWP9-HChcU) | [下载](../channels/wenrui/_3cWP9-HChcU.srt?raw=true) | [下载](../channels/wenrui/_3cWP9-HChcU.tw.srt?raw=true) | 
 | 局势面临失控，内蒙古宣传系统的人集体挑战体制，习近平头大了 | [下载](https://y2mate.com/zh-cn/search/20TFX46PBEM) | [下载](../channels/wenrui/_20TFX46PBEM.srt?raw=true) | [下载](../channels/wenrui/_20TFX46PBEM.tw.srt?raw=true) | 
 | “我是台湾人”震撼人心，王毅还能把别人怎么样？ | [下载](https://y2mate.com/zh-cn/search/Y6L1_P-dme8) | [下载](../channels/wenrui/_Y6L1_P-dme8.srt?raw=true) | [下载](../channels/wenrui/_Y6L1_P-dme8.tw.srt?raw=true) | 
 | 捷克让欧洲汗颜，选择台湾还是北京，西方国家很难再回避 | [下载](https://y2mate.com/zh-cn/search/V9V9z3UWs8Y) | [下载](../channels/wenrui/_V9V9z3UWs8Y.srt?raw=true) | [下载](../channels/wenrui/_V9V9z3UWs8Y.tw.srt?raw=true) | 

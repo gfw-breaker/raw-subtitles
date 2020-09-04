@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 踵跡先賢，認清使命 20200903 第93期 | [下载](https://y2mate.com/zh-cn/search/EgeHBYeZF8E) | [下载](../channels/yuchao/_EgeHBYeZF8E.srt?raw=true) | [下载](../channels/yuchao/_EgeHBYeZF8E.tw.srt?raw=true) | 
 | Speech about Falun Gong and Current Situation in USA 在本地保守派共和黨婦女組織的演講 | [下载](https://y2mate.com/zh-cn/search/VJT6toPYrFU) | [下载](../channels/yuchao/_VJT6toPYrFU.srt?raw=true) | [下载](../channels/yuchao/_VJT6toPYrFU.tw.srt?raw=true) | 
 | 世紀之掩蓋（預告片） | [下载](https://y2mate.com/zh-cn/search/5FkV8fRowXQ) | [下载](../channels/yuchao/_5FkV8fRowXQ.srt?raw=true) | [下载](../channels/yuchao/_5FkV8fRowXQ.tw.srt?raw=true) | 
 | 不要患得患失，勇敢活出自己的人生；爲何幫助人可能得罪人；絕境中的拋棄；幸福根源的受益者-繼承者-傳遞者 20200524 第92期 | [下载](https://y2mate.com/zh-cn/search/TEUWpRjnpK4) | [下载](../channels/yuchao/_TEUWpRjnpK4.srt?raw=true) | [下载](../channels/yuchao/_TEUWpRjnpK4.tw.srt?raw=true) | 
