@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 内蒙古广播电视台300人按手印，蓬佩奥被贬“三姓家奴”后加速反共！前中共资深媒体人李军揭党媒猫腻（上）（老北京茶馆_茶聊斋_第001集_2020_09_03） | [下载](https://y2mate.com/zh-cn/search/q9i-B8ObWM4) | [下载](../channels/teahouse/_q9i-B8ObWM4.srt?raw=true) | [下载](../channels/teahouse/_q9i-B8ObWM4.tw.srt?raw=true) | 
 | 美国驱逐公派中国留学生！内蒙古学生群起维权；党媒大骂蓬佩奥！王毅怼捷克，说完就傻了（老北京茶馆_第370集_2020_09_01） | [下载](https://y2mate.com/zh-cn/search/u5UbbzprsC0) | [下载](../channels/teahouse/_u5UbbzprsC0.srt?raw=true) | [下载](../channels/teahouse/_u5UbbzprsC0.tw.srt?raw=true) | 
 | 美国到底有多乱？特朗普有多大责任？川普灭共是真心的吗？我为什么支持川普连任？ （老北京茶馆_第369集_2020_08_30） | [下载](https://y2mate.com/zh-cn/search/1TqXqUW-88k) | [下载](../channels/teahouse/_1TqXqUW-88k.srt?raw=true) | [下载](../channels/teahouse/_1TqXqUW-88k.tw.srt?raw=true) | 
 | 赵立坚闯祸，胡锡进叼盘侠变“醋精”？陈光诚共和党大会演讲，美国暗助习近平不被换？（老北京茶馆_第368集_2020_08_28） | [下载](https://y2mate.com/zh-cn/search/-NROa1dQItQ) | [下载](../channels/teahouse/_-NROa1dQItQ.srt?raw=true) | [下载](../channels/teahouse/_-NROa1dQItQ.tw.srt?raw=true) | 
