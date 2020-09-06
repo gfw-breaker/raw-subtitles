@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 如何在國外落腳——讀書還是申請政治庇護？20200905第94期 | [下载](https://y2mate.com/zh-cn/search/wdkem2ju_CU) | [下载](../channels/yuchao/_wdkem2ju_CU.srt?raw=true) | [下载](../channels/yuchao/_wdkem2ju_CU.tw.srt?raw=true) | 
 | 踵跡先賢，認清使命 20200903 第93期 | [下载](https://y2mate.com/zh-cn/search/EgeHBYeZF8E) | [下载](../channels/yuchao/_EgeHBYeZF8E.srt?raw=true) | [下载](../channels/yuchao/_EgeHBYeZF8E.tw.srt?raw=true) | 
 | Speech about Falun Gong and Current Situation in USA 在本地保守派共和黨婦女組織的演講 | [下载](https://y2mate.com/zh-cn/search/VJT6toPYrFU) | [下载](../channels/yuchao/_VJT6toPYrFU.srt?raw=true) | [下载](../channels/yuchao/_VJT6toPYrFU.tw.srt?raw=true) | 
 | 世紀之掩蓋（預告片） | [下载](https://y2mate.com/zh-cn/search/5FkV8fRowXQ) | [下载](../channels/yuchao/_5FkV8fRowXQ.srt?raw=true) | [下载](../channels/yuchao/_5FkV8fRowXQ.tw.srt?raw=true) | 
