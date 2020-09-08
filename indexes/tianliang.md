@@ -5,8 +5,8 @@
 |---|---|---|---|
 | 胡锡进踹习近平台海开战;习近平的五个绝不答应;领导与管理的区别（政论天下第224集 20200906）天亮时分 | [下载](https://y2mate.com/zh-cn/search/gleovBOKa10) | [下载](../channels/tianliang/_gleovBOKa10.srt?raw=true) | [下载](../channels/tianliang/_gleovBOKa10.tw.srt?raw=true) | 
 | 中共抛售93亿美债;美国反击让中国留学生躺枪;内蒙局势升级,前蒙古总统号召抵抗(政论天下第223集 20200902)天亮时分 | [下载](https://y2mate.com/zh-cn/search/XLBBfmwCyBM) | [下载](../channels/tianliang/_XLBBfmwCyBM.srt?raw=true) | [下载](../channels/tianliang/_XLBBfmwCyBM.tw.srt?raw=true) | 
-| 史上最重要也最危险的选举;川普民调飙升;拜登是否会躲起不敢应战川普面临的最严重威胁不是拜登而是这个(政论天下第221集 20200828)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7soMt68aRZE) | [下载](../channels/tianliang/_7soMt68aRZE.srt?raw=true) | [下载](../channels/tianliang/_7soMt68aRZE.tw.srt?raw=true) | 
 | 继新疆和香港之后,习近平又在内蒙和西藏加速;中共隐形的民族灭绝政策同时针对汉蒙回藏(政论天下第222集 20200831)天亮时分 | [下载](https://y2mate.com/zh-cn/search/lrS8XW9iHsQ) | [下载](../channels/tianliang/_lrS8XW9iHsQ.srt?raw=true) | [下载](../channels/tianliang/_lrS8XW9iHsQ.tw.srt?raw=true) | 
+| 史上最重要也最危险的选举;川普民调飙升;拜登是否会躲起不敢应战川普面临的最严重威胁不是拜登而是这个(政论天下第221集 20200828)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7soMt68aRZE) | [下载](../channels/tianliang/_7soMt68aRZE.srt?raw=true) | [下载](../channels/tianliang/_7soMt68aRZE.tw.srt?raw=true) | 
 | 习近平恢复党主席头衔李克强已被边缘化;人民日报三万字批蓬佩奥,却无法回答三个简单的问题(政论天下第220集 20200826)天亮时分 | [下载](https://y2mate.com/zh-cn/search/UJg9NL5L6fs) | [下载](../channels/tianliang/_UJg9NL5L6fs.srt?raw=true) | [下载](../channels/tianliang/_UJg9NL5L6fs.tw.srt?raw=true) | 
 | 川普誓言第二任期拔掉中共经济输血管;金正恩又传昏迷,北韩承认内循环失败;华为停止开发新产品(政论天下第219集 20200824)天亮时分 | [下载](https://y2mate.com/zh-cn/search/xute3-tHgNo) | [下载](../channels/tianliang/_xute3-tHgNo.srt?raw=true) | [下载](../channels/tianliang/_xute3-tHgNo.tw.srt?raw=true) | 
 | 中共新冠疫苗,谁敢注射李克强新闻不能上头条;习近平新延安整风运动能成功吗(政论天下第218集 20200822)天亮时分 | [下载](https://y2mate.com/zh-cn/search/f7UhjmyKm3I) | [下载](../channels/tianliang/_f7UhjmyKm3I.srt?raw=true) | [下载](../channels/tianliang/_f7UhjmyKm3I.tw.srt?raw=true) | 
