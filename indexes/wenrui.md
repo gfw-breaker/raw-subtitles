@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 金一南：中国2028年超越美国，梦终究只是场梦，醒醒吧 | [下载](https://y2mate.com/zh-cn/search/I8H6BXCLQUs) | [下载](../channels/wenrui/_I8H6BXCLQUs.srt?raw=true) | [下载](../channels/wenrui/_I8H6BXCLQUs.tw.srt?raw=true) | 
+| 朝中无人，集体制造幻觉：2028超越美国，2049让美国望尘莫及 | [下载](https://y2mate.com/zh-cn/search/I8H6BXCLQUs) | [下载](../channels/wenrui/_I8H6BXCLQUs.srt?raw=true) | [下载](../channels/wenrui/_I8H6BXCLQUs.tw.srt?raw=true) | 
 | 欧洲刚刚宣布从中国独立，孤立中国，王毅做到了 | [下载](https://y2mate.com/zh-cn/search/ktFbSnioEPk) | [下载](../channels/wenrui/_ktFbSnioEPk.srt?raw=true) | [下载](../channels/wenrui/_ktFbSnioEPk.tw.srt?raw=true) | 
 | 越描越黑，习近平深刻区分中国和中共，广告效果远超彭佩奥 | [下载](https://y2mate.com/zh-cn/search/3cWP9-HChcU) | [下载](../channels/wenrui/_3cWP9-HChcU.srt?raw=true) | [下载](../channels/wenrui/_3cWP9-HChcU.tw.srt?raw=true) | 
 | 蒙古族人在中共的禁区下手，局势面临失控，习近平不好收场了 | [下载](https://y2mate.com/zh-cn/search/20TFX46PBEM) | [下载](../channels/wenrui/_20TFX46PBEM.srt?raw=true) | [下载](../channels/wenrui/_20TFX46PBEM.tw.srt?raw=true) | 
