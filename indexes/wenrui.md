@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 被迫下台已成为习近平的最深焦虑，四大原因、两大要素就在眼前 | [下载](https://y2mate.com/zh-cn/search/2Q4fua_j4a4) | [下载](../channels/wenrui/_2Q4fua_j4a4.srt?raw=true) | [下载](../channels/wenrui/_2Q4fua_j4a4.tw.srt?raw=true) | 
 | 朝中无人，集体制造幻觉：2028超越美国，2049让美国望尘莫及 | [下载](https://y2mate.com/zh-cn/search/I8H6BXCLQUs) | [下载](../channels/wenrui/_I8H6BXCLQUs.srt?raw=true) | [下载](../channels/wenrui/_I8H6BXCLQUs.tw.srt?raw=true) | 
 | 欧洲刚刚宣布从中国独立，孤立中国，王毅做到了 | [下载](https://y2mate.com/zh-cn/search/ktFbSnioEPk) | [下载](../channels/wenrui/_ktFbSnioEPk.srt?raw=true) | [下载](../channels/wenrui/_ktFbSnioEPk.tw.srt?raw=true) | 
 | 越描越黑，习近平深刻区分中国和中共，广告效果远超彭佩奥 | [下载](https://y2mate.com/zh-cn/search/3cWP9-HChcU) | [下载](../channels/wenrui/_3cWP9-HChcU.srt?raw=true) | [下载](../channels/wenrui/_3cWP9-HChcU.tw.srt?raw=true) | 
