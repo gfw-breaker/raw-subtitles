@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平才是李克强的经济“堵点”;赴美签证暴跌99.3%;美国南北战争的启示 -十四亿韭菜也无法挽回中共经济的暴毙结局(政论天下第226集 20200910)天亮时分 | [下载](https://y2mate.com/zh-cn/search/zfByIW-XC9E) | [下载](../channels/tianliang/_zfByIW-XC9E.srt?raw=true) | [下载](../channels/tianliang/_zfByIW-XC9E.tw.srt?raw=true) | 
 | 美国已完成对中共地缘政治上的包抄;中国、欧盟、美国三方演义欧盟最终会倒向美国(政论天下第225集 20200908)天亮时分 | [下载](https://y2mate.com/zh-cn/search/d44NHXBaus8) | [下载](../channels/tianliang/_d44NHXBaus8.srt?raw=true) | [下载](../channels/tianliang/_d44NHXBaus8.tw.srt?raw=true) | 
 | 胡锡进踹习近平台海开战;习近平的五个绝不答应;领导与管理的区别（政论天下第224集 20200906）天亮时分 | [下载](https://y2mate.com/zh-cn/search/gleovBOKa10) | [下载](../channels/tianliang/_gleovBOKa10.srt?raw=true) | [下载](../channels/tianliang/_gleovBOKa10.tw.srt?raw=true) | 
 | 中共抛售93亿美债;美国反击让中国留学生躺枪;内蒙局势升级,前蒙古总统号召抵抗(政论天下第223集 20200902)天亮时分 | [下载](https://y2mate.com/zh-cn/search/XLBBfmwCyBM) | [下载](../channels/tianliang/_XLBBfmwCyBM.srt?raw=true) | [下载](../channels/tianliang/_XLBBfmwCyBM.tw.srt?raw=true) | 
