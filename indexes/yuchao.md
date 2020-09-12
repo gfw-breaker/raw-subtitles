@@ -4,6 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 九月九日隨想 202009009第96期 | [下载](https://y2mate.com/zh-cn/search/F8caEoytCBU) | [下载](../channels/yuchao/_F8caEoytCBU.srt?raw=true) | [下载](../channels/yuchao/_F8caEoytCBU.tw.srt?raw=true) | 
+| 政治庇護補充說明 202009011第97期 | [下载](https://y2mate.com/zh-cn/search/sIFtRXTQhPE) | [下载](../channels/yuchao/_sIFtRXTQhPE.srt?raw=true) | [下载](../channels/yuchao/_sIFtRXTQhPE.tw.srt?raw=true) | 
 | 再談政治庇護 trailer | [下载](https://y2mate.com/zh-cn/search/HInJx_Mk6S0) | [下载](../channels/yuchao/_HInJx_Mk6S0.srt?raw=true) | [下载](../channels/yuchao/_HInJx_Mk6S0.tw.srt?raw=true) | 
 | 再談政治庇護 20200907第95期 | [下载](https://y2mate.com/zh-cn/search/OgqmSxV-abI) | [下载](../channels/yuchao/_OgqmSxV-abI.srt?raw=true) | [下载](../channels/yuchao/_OgqmSxV-abI.tw.srt?raw=true) | 
 | 如何在國外落腳——讀書還是申請政治庇護？20200905第94期 | [下载](https://y2mate.com/zh-cn/search/wdkem2ju_CU) | [下载](../channels/yuchao/_wdkem2ju_CU.srt?raw=true) | [下载](../channels/yuchao/_wdkem2ju_CU.tw.srt?raw=true) | 
