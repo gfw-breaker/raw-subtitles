@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 李克强再次挑战一尊，习近平开始说软话，面对现实，不得不低头 | [下载](https://y2mate.com/zh-cn/search/EZVTBXfccuQ) | [下载](../channels/wenrui/_EZVTBXfccuQ.srt?raw=true) | [下载](../channels/wenrui/_EZVTBXfccuQ.tw.srt?raw=true) | 
 | “可防可控”2.0现身，经济加速恶化，习近平要豪赌 | [下载](https://y2mate.com/zh-cn/search/wuJOinoponA) | [下载](../channels/wenrui/_wuJOinoponA.srt?raw=true) | [下载](../channels/wenrui/_wuJOinoponA.tw.srt?raw=true) | 
 | 朝中无人，集体制造幻觉：2028超越美国，2049让美国望尘莫及 | [下载](https://y2mate.com/zh-cn/search/I8H6BXCLQUs) | [下载](../channels/wenrui/_I8H6BXCLQUs.srt?raw=true) | [下载](../channels/wenrui/_I8H6BXCLQUs.tw.srt?raw=true) | 
 | 习近平的最深恐惧就在眼前，极限压力测试开始，秋冬见分晓 | [下载](https://y2mate.com/zh-cn/search/2Q4fua_j4a4) | [下载](../channels/wenrui/_2Q4fua_j4a4.srt?raw=true) | [下载](../channels/wenrui/_2Q4fua_j4a4.tw.srt?raw=true) | 
