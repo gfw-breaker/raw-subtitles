@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 三峡大坝会成为核攻击目标吗？ | [下载](https://y2mate.com/zh-cn/search/uVT0YKp-Os4) | [下载](../channels/simonegao/_uVT0YKp-Os4.srt?raw=true) | [下载](../channels/simonegao/_uVT0YKp-Os4.tw.srt?raw=true) | 
 | 重磅！川普证实中美脱钩。 | [下载](https://y2mate.com/zh-cn/search/OvacAKQhc5c) | [下载](../channels/simonegao/_OvacAKQhc5c.srt?raw=true) | [下载](../channels/simonegao/_OvacAKQhc5c.tw.srt?raw=true) | 
 | 我所知道的班农和建墙项目；从川普身边人下手的用意；对川普的人是集体抹黑还是内部分化？ | [下载](https://y2mate.com/zh-cn/search/CMR-wtffU7Y) | [下载](../channels/simonegao/_CMR-wtffU7Y.srt?raw=true) | [下载](../channels/simonegao/_CMR-wtffU7Y.tw.srt?raw=true) | 
 | 中美突然取消会谈，白邦瑞详解中美实力对比；川普为贸易协议留门，是福是祸？ | [下载](https://y2mate.com/zh-cn/search/X0pEgRCXnAQ) | [下载](../channels/simonegao/_X0pEgRCXnAQ.srt?raw=true) | [下载](../channels/simonegao/_X0pEgRCXnAQ.tw.srt?raw=true) | 
