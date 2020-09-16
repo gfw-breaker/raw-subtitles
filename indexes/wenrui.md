@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中欧峰会“三打一”，习近平尴尬反击；一尊重新定义人生“真谛”，我笑了 | [下载](https://y2mate.com/zh-cn/search/9BnsIseY_1s) | [下载](../channels/wenrui/_9BnsIseY_1s.srt?raw=true) | [下载](../channels/wenrui/_9BnsIseY_1s.tw.srt?raw=true) | 
 | 紫光陷债务危机，59个足球场大的芯片厂废弃，华为专机去台湾接芯片，中共芯片产业凉凉 | [下载](https://y2mate.com/zh-cn/search/eIgcJCP4lJo) | [下载](../channels/wenrui/_eIgcJCP4lJo.srt?raw=true) | [下载](../channels/wenrui/_eIgcJCP4lJo.tw.srt?raw=true) | 
 | 李克强再次挑战一尊，习近平开始说软话，面对现实，不得不低头 | [下载](https://y2mate.com/zh-cn/search/EZVTBXfccuQ) | [下载](../channels/wenrui/_EZVTBXfccuQ.srt?raw=true) | [下载](../channels/wenrui/_EZVTBXfccuQ.tw.srt?raw=true) | 
 | “可防可控”2.0现身，经济加速恶化，习近平要豪赌 | [下载](https://y2mate.com/zh-cn/search/wuJOinoponA) | [下载](../channels/wenrui/_wuJOinoponA.srt?raw=true) | [下载](../channels/wenrui/_wuJOinoponA.tw.srt?raw=true) | 
