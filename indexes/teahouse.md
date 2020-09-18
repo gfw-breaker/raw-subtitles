@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 澳洲搜查中共外交官，汪文斌沉默90秒！美国副国务卿访台，咋整？最新加速：相声脱口秀朝鲜语！（老北京茶馆_第378集_2020_09_17） | [下载](https://y2mate.com/zh-cn/search/tJWtWSGzkhg) | [下载](../channels/teahouse/_tJWtWSGzkhg.srt?raw=true) | [下载](../channels/teahouse/_tJWtWSGzkhg.tw.srt?raw=true) | 
 | 习近平加速彻底失控，根本停不下来！闫丽梦WTO内蒙古海南台湾日本美国助力，中共咋整？（老北京茶馆_第377集_2020_09_16） | [下载](https://y2mate.com/zh-cn/search/3sWWG7oqPWM) | [下载](../channels/teahouse/_3sWWG7oqPWM.srt?raw=true) | [下载](../channels/teahouse/_3sWWG7oqPWM.tw.srt?raw=true) | 
 | 川普召回驻华大使，习近平中计？赵盛烨与外交部副部长齐泄密！中共甩锅外太空， 脱钩进行中（老北京茶馆_第376集_2020_09_15） | [下载](https://y2mate.com/zh-cn/search/JKce0WQi8rY) | [下载](../channels/teahouse/_JKce0WQi8rY.srt?raw=true) | [下载](../channels/teahouse/_JKce0WQi8rY.tw.srt?raw=true) | 
 | 习近平进了胡锡进王毅王沪宁包围圈！赵立坚挺刘亦菲；蓬佩奥主导阿富汗塔利班和谈（老北京茶馆_第375集_2020_09_13） | [下载](https://y2mate.com/zh-cn/search/tHxvaWfGRas) | [下载](../channels/teahouse/_tHxvaWfGRas.srt?raw=true) | [下载](../channels/teahouse/_tHxvaWfGRas.tw.srt?raw=true) | 
