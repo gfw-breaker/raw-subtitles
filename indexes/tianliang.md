@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 司法战争!美国大选添变数,最高法院大法官金斯伯格病逝;中美关系会受到什么影响美国是否会出现宪法危机(政论天下第230集 20200919)天亮时分 | [下载](https://y2mate.com/zh-cn/search/you146ADpqU) | [下载](../channels/tianliang/_you146ADpqU.srt?raw=true) | [下载](../channels/tianliang/_you146ADpqU.tw.srt?raw=true) | 
 | 美国国务次卿今日访台;欧盟也要通过马格尼茨基法案;天罗地网罩住中共;丧心病狂的“灭绝国师”（政论天下第229集 20200917）天亮时分 | [下载](https://y2mate.com/zh-cn/search/pHPnRG1PElw) | [下载](../channels/tianliang/_pHPnRG1PElw.srt?raw=true) | [下载](../channels/tianliang/_pHPnRG1PElw.tw.srt?raw=true) | 
 | 如果失去这个领域，我们将永远失去美国，失去繁荣和安全感；从川普停止资助教授“1619项目”学校说起 (天亮时分之哲思心语第9集20200913)天亮時分 | [下载](https://y2mate.com/zh-cn/search/ojBESouchn4) | [下载](../channels/tianliang/_ojBESouchn4.srt?raw=true) | [下载](../channels/tianliang/_ojBESouchn4.tw.srt?raw=true) | 
 | 芯片断供首日,华为等死;华为的今天就是中共的明天;美参议员提议取消中共永久最惠国待遇;答网友提问（政论天下第228集 20200915）天亮时分 | [下载](https://y2mate.com/zh-cn/search/exTjEB9TknU) | [下载](../channels/tianliang/_exTjEB9TknU.srt?raw=true) | [下载](../channels/tianliang/_exTjEB9TknU.tw.srt?raw=true) | 
