@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 台海进入尖峰时刻，习近平处境将开启自由落体模式，任志强刑期或不满18个月 | [下载](https://y2mate.com/zh-cn/search/eFiw6q-mnsg) | [下载](../channels/wenrui/_eFiw6q-mnsg.srt?raw=true) | [下载](../channels/wenrui/_eFiw6q-mnsg.tw.srt?raw=true) | 
 | 兵败如山倒，习近平的最后一张牌已经失效，体制走入关键节点 | [下载](https://y2mate.com/zh-cn/search/b2fAOsd2tvU) | [下载](../channels/wenrui/_b2fAOsd2tvU.srt?raw=true) | [下载](../channels/wenrui/_b2fAOsd2tvU.tw.srt?raw=true) | 
 | 以战止战？人民日报满纸恐惧，中共根本不懂美国 | [下载](https://y2mate.com/zh-cn/search/jk_DJ713uWw) | [下载](../channels/wenrui/_jk_DJ713uWw.srt?raw=true) | [下载](../channels/wenrui/_jk_DJ713uWw.tw.srt?raw=true) | 
 | 五件大事聚焦台湾，蔡英文强硬表态，台湾走入历史拐点 | [下载](https://y2mate.com/zh-cn/search/qlf3HNqBXtc) | [下载](../channels/wenrui/_qlf3HNqBXtc.srt?raw=true) | [下载](../channels/wenrui/_qlf3HNqBXtc.tw.srt?raw=true) | 
