@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美国一夜间发展出的决胜能力;权力的四个来源;美国也能买选票;余茂春与蓬佩奥演讲的启示(政论天下第233集 20200924)天亮时分 | [下载](https://y2mate.com/zh-cn/search/jnRCGGQiQoc) | [下载](../channels/tianliang/_jnRCGGQiQoc.srt?raw=true) | [下载](../channels/tianliang/_jnRCGGQiQoc.tw.srt?raw=true) | 
 | 任志强遭重判18年;抱着炸弹击鼓传花,现在引信已经烧到头;参议院将就最高法院大法官表决;思考的维度（政论天下第232集 20200922）天亮时分 | [下载](https://y2mate.com/zh-cn/search/sQbDTTcCd9w) | [下载](../channels/tianliang/_sQbDTTcCd9w.srt?raw=true) | [下载](../channels/tianliang/_sQbDTTcCd9w.tw.srt?raw=true) | 
 | 中美外交关系降为“代办”级;标志美台关系再度升温的三件事;中共资助“黑命贵”;川普提名大法官的胜算分析;“君子爱人以德”（政论天下第231集 20200920）天亮时分 | [下载](https://y2mate.com/zh-cn/search/7Ebjuz6N7Ok) | [下载](../channels/tianliang/_7Ebjuz6N7Ok.srt?raw=true) | [下载](../channels/tianliang/_7Ebjuz6N7Ok.tw.srt?raw=true) | 
 | 司法战争!美国大选添变数,最高法院大法官金斯伯格病逝;中美关系会受到什么影响美国是否会出现宪法危机(政论天下第230集 20200919)天亮时分 | [下载](https://y2mate.com/zh-cn/search/you146ADpqU) | [下载](../channels/tianliang/_you146ADpqU.srt?raw=true) | [下载](../channels/tianliang/_you146ADpqU.tw.srt?raw=true) | 

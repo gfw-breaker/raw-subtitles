@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 26 消化系统健康的三个秘密，十个危险信号，两个补救绝招。杨景端医生為你撥開健康迷霧。 | [下载](https://y2mate.com/zh-cn/search/NCKWwL_uLh8) | [下载](../channels/yang/_NCKWwL_uLh8.srt?raw=true) | [下载](../channels/yang/_NCKWwL_uLh8.tw.srt?raw=true) | 
 | 25 _【楊景端醫話】潰瘍性結腸炎讓人拉肚子便血，但精神壓力和類固醇才是造成安倍辭職的元兇！人竟會有第二个大脑？ 楊景端醫生為为你解密最新醫學知識！ | [下载](https://y2mate.com/zh-cn/search/_FWEtrWzy8I) | [下载](../channels/yang/__FWEtrWzy8I.srt?raw=true) | [下载](../channels/yang/__FWEtrWzy8I.tw.srt?raw=true) | 
 | 一药解百忧！ 精神醫師深入分析被黑浪吞噬的哈佛女生的抑郁人生。【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/k30fQX45TXU) | [下载](../channels/yang/_k30fQX45TXU.srt?raw=true) | [下载](../channels/yang/_k30fQX45TXU.tw.srt?raw=true) | 
 | 深度解讀｜玩遊戲為什麼容易上癮❓怎麼判斷你會不會遊戲成癮❓如何避免上癮❓【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/UKiylYBIxCU) | [下载](../channels/yang/_UKiylYBIxCU.srt?raw=true) | [下载](../channels/yang/_UKiylYBIxCU.tw.srt?raw=true) | 
