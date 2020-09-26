@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 买房欠债，卖房也欠债，卖土地还是欠债，钱都哪儿去了？ | [下载](https://y2mate.com/zh-cn/search/gcH4Fi6Pm6Q) | [下载](../channels/wenrui/_gcH4Fi6Pm6Q.srt?raw=true) | [下载](../channels/wenrui/_gcH4Fi6Pm6Q.tw.srt?raw=true) | 
 | 李克强到上海，一句话，道尽中国经济的凄惨现状 | [下载](https://y2mate.com/zh-cn/search/h5GX1XFwp8Y) | [下载](../channels/wenrui/_h5GX1XFwp8Y.srt?raw=true) | [下载](../channels/wenrui/_h5GX1XFwp8Y.tw.srt?raw=true) | 
 | 习近平开启自由落体模式，被逼进死角，但依然不忘加速 | [下载](https://y2mate.com/zh-cn/search/eFiw6q-mnsg) | [下载](../channels/wenrui/_eFiw6q-mnsg.srt?raw=true) | [下载](../channels/wenrui/_eFiw6q-mnsg.tw.srt?raw=true) | 
 | 兵败如山倒，习近平的最后一张牌已经失效，体制走入关键节点 | [下载](https://y2mate.com/zh-cn/search/b2fAOsd2tvU) | [下载](../channels/wenrui/_b2fAOsd2tvU.srt?raw=true) | [下载](../channels/wenrui/_b2fAOsd2tvU.tw.srt?raw=true) | 
