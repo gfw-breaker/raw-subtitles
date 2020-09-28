@@ -3,7 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 26 消化系统健康的三个秘密，十个危险信号，两个补救绝招。杨景端医生為你撥開健康迷霧。 | [下载](https://y2mate.com/zh-cn/search/NCKWwL_uLh8) | [下载](../channels/yang/_NCKWwL_uLh8.srt?raw=true) | [下载](../channels/yang/_NCKWwL_uLh8.tw.srt?raw=true) | 
+| 26 消化系统健康的三个秘密，十个危险信号，两个补救绝招。 | [下载](https://y2mate.com/zh-cn/search/NCKWwL_uLh8) | [下载](../channels/yang/_NCKWwL_uLh8.srt?raw=true) | [下载](../channels/yang/_NCKWwL_uLh8.tw.srt?raw=true) | 
 | 25 _安倍晋三辭職的真正原因！人的第二大脑也会溃疡？ 楊景端醫生為为你解密最新醫學知識！ | [下载](https://y2mate.com/zh-cn/search/_FWEtrWzy8I) | [下载](../channels/yang/__FWEtrWzy8I.srt?raw=true) | [下载](../channels/yang/__FWEtrWzy8I.tw.srt?raw=true) | 
 | 憂鬱症怎麼吞噬了一個哈佛才女？一药能解百忧嗎？精神科醫師深入解析電影《我的憂鬱青春》 | [下载](https://y2mate.com/zh-cn/search/k30fQX45TXU) | [下载](../channels/yang/_k30fQX45TXU.srt?raw=true) | [下载](../channels/yang/_k30fQX45TXU.tw.srt?raw=true) | 
 | 深度解讀｜玩遊戲為什麼容易上癮❓怎麼判斷你會不會遊戲成癮❓如何避免上癮❓【楊景端醫話】 | [下载](https://y2mate.com/zh-cn/search/UKiylYBIxCU) | [下载](../channels/yang/_UKiylYBIxCU.srt?raw=true) | [下载](../channels/yang/_UKiylYBIxCU.tw.srt?raw=true) | 
