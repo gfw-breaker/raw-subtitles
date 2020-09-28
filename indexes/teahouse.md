@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普、蓬佩奥、余茂春、巴雷特吹响集结号！习近平老泪纵横：秋后算账的季节，真到了（老北京茶馆_第382集_2020_09_27） | [下载](https://y2mate.com/zh-cn/search/4nXBzdKL3RQ) | [下载](../channels/teahouse/_4nXBzdKL3RQ.srt?raw=true) | [下载](../channels/teahouse/_4nXBzdKL3RQ.tw.srt?raw=true) | 
 | 驱逐第二季：蓬佩奥出手间谍窝纽约中领馆！清华公安部获潘金莲奖，中共突然宣布胜利！（老北京茶馆_第381集_2020_09_25） | [下载](https://y2mate.com/zh-cn/search/-ze6EWT0ZPA) | [下载](../channels/teahouse/_-ze6EWT0ZPA.srt?raw=true) | [下载](../channels/teahouse/_-ze6EWT0ZPA.tw.srt?raw=true) | 
 | 军头放弃武统台湾？习近平靠内循环对付最可怕敌人；川普看懵：84岁老太挂帅抗美？（老北京茶馆_第380集_2020_09_23） | [下载](https://y2mate.com/zh-cn/search/eYBmHWLcMFw) | [下载](../channels/teahouse/_eYBmHWLcMFw.srt?raw=true) | [下载](../channels/teahouse/_eYBmHWLcMFw.tw.srt?raw=true) | 
 | 美台建交做实，北京被甩！任志强遭重判18年，川普联大重磅追责，习近平躲入盗梦空间（老北京茶馆_第379集_2020_09_22） | [下载](https://y2mate.com/zh-cn/search/IAaK-zzMZJg) | [下载](../channels/teahouse/_IAaK-zzMZJg.srt?raw=true) | [下载](../channels/teahouse/_IAaK-zzMZJg.tw.srt?raw=true) | 

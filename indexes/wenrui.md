@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 红二代快速集结，习近平深度恐惧，中国就差一个偶然事件 | [下载](https://y2mate.com/zh-cn/search/eicBr0m8sDY) | [下载](../channels/wenrui/_eicBr0m8sDY.srt?raw=true) | [下载](../channels/wenrui/_eicBr0m8sDY.tw.srt?raw=true) | 
 | 百姓买房欠债，房企卖房也欠债，政府卖土地还欠债，钱都哪儿去了？ | [下载](https://y2mate.com/zh-cn/search/gcH4Fi6Pm6Q) | [下载](../channels/wenrui/_gcH4Fi6Pm6Q.srt?raw=true) | [下载](../channels/wenrui/_gcH4Fi6Pm6Q.tw.srt?raw=true) | 
 | 李克强到上海，一句话，道尽中国经济的凄惨现状 | [下载](https://y2mate.com/zh-cn/search/h5GX1XFwp8Y) | [下载](../channels/wenrui/_h5GX1XFwp8Y.srt?raw=true) | [下载](../channels/wenrui/_h5GX1XFwp8Y.tw.srt?raw=true) | 
 | 习近平开启自由落体模式，被逼进死角，但依然不忘加速 | [下载](https://y2mate.com/zh-cn/search/eFiw6q-mnsg) | [下载](../channels/wenrui/_eFiw6q-mnsg.srt?raw=true) | [下载](../channels/wenrui/_eFiw6q-mnsg.tw.srt?raw=true) | 
