@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| “十月惊奇”拉开帷幕;揭开仇恨川普的真正原因;制裁中芯国际;为何重赏之下无勇夫(政论天下第235集 20200928)天亮时分 | [下载](https://y2mate.com/zh-cn/search/kpqj4KsYPWs) | [下载](../channels/tianliang/_kpqj4KsYPWs.srt?raw=true) | [下载](../channels/tianliang/_kpqj4KsYPWs.tw.srt?raw=true) | 
 | 拜登儿子的性奴丑闻;恒大危机拉开习近平经济危机序幕;蓬佩奥是否会关闭纽约领馆美国司法部成立“剥夺国籍科”(政论天下第234集 20200926)天亮时分 | [下载](https://y2mate.com/zh-cn/search/vo4_Sv6s7gM) | [下载](../channels/tianliang/_vo4_Sv6s7gM.srt?raw=true) | [下载](../channels/tianliang/_vo4_Sv6s7gM.tw.srt?raw=true) | 
 | 美国一夜间发展出的决胜能力;权力的四个来源;美国也能买选票;余茂春与蓬佩奥演讲的启示(政论天下第233集 20200924)天亮时分 | [下载](https://y2mate.com/zh-cn/search/jnRCGGQiQoc) | [下载](../channels/tianliang/_jnRCGGQiQoc.srt?raw=true) | [下载](../channels/tianliang/_jnRCGGQiQoc.tw.srt?raw=true) | 
 | 任志强遭重判18年;抱着炸弹击鼓传花,现在引信已经烧到头;参议院将就最高法院大法官表决;思考的维度（政论天下第232集 20200922）天亮时分 | [下载](https://y2mate.com/zh-cn/search/sQbDTTcCd9w) | [下载](../channels/tianliang/_sQbDTTcCd9w.srt?raw=true) | [下载](../channels/tianliang/_sQbDTTcCd9w.tw.srt?raw=true) | 
