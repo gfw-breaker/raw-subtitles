@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 丁悅·說新聞 Live Stream | [下载](https://y2mate.com/zh-cn/search/ZSkEAOtmb2I) | [下载](../channels/yuelan/_ZSkEAOtmb2I.srt?raw=true) | [下载](../channels/yuelan/_ZSkEAOtmb2I.tw.srt?raw=true) | 
 | 丁悦說新聞暫停更新 | [下载](https://y2mate.com/zh-cn/search/YpXXBUyTPaE) | [下载](../channels/yuelan/_YpXXBUyTPaE.srt?raw=true) | [下载](../channels/yuelan/_YpXXBUyTPaE.tw.srt?raw=true) | 
 | 川普正式下令禁止微信！有哪些可替代應用？紐約中領館現關門前兆？美國公告制裁香港特首 | [下载](https://y2mate.com/zh-cn/search/JaVFvEPAsqk) | [下载](../channels/yuelan/_JaVFvEPAsqk.srt?raw=true) | [下载](../channels/yuelan/_JaVFvEPAsqk.tw.srt?raw=true) | 
 | 川普擬簽政令紓困：延失業補貼_免工資稅！迪士尼《花木蘭》改線上點播！美中媒體戰又升級？！ | [下载](https://y2mate.com/zh-cn/search/tNfobLReYJA) | [下载](../channels/yuelan/_tNfobLReYJA.srt?raw=true) | [下载](../channels/yuelan/_tNfobLReYJA.tw.srt?raw=true) | 
