@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 幸灾乐祸充斥网络，中国人醒醒吧，痛苦马上就要到了 | [下载](https://y2mate.com/zh-cn/search/vhJ9fGwRWHA) | [下载](../channels/wenrui/_vhJ9fGwRWHA.srt?raw=true) | [下载](../channels/wenrui/_vhJ9fGwRWHA.tw.srt?raw=true) | 
 | 中共外交部：蓬佩奥等不到那一天了。大话别说的太早了 | [下载](https://y2mate.com/zh-cn/search/i9HF5y4vWVM) | [下载](../channels/wenrui/_i9HF5y4vWVM.srt?raw=true) | [下载](../channels/wenrui/_i9HF5y4vWVM.tw.srt?raw=true) | 
 | 动邓小平家族利益，习近平这是怎么了？双方矛盾升级无法避免 | [下载](https://y2mate.com/zh-cn/search/MRsE3n5QP_8) | [下载](../channels/wenrui/_MRsE3n5QP_8.srt?raw=true) | [下载](../channels/wenrui/_MRsE3n5QP_8.tw.srt?raw=true) | 
 | 到处缺钱，中共的坍塌从“钱”开始，今冬明春是关键点 | [下载](https://y2mate.com/zh-cn/search/rjSUKH-0qds) | [下载](../channels/wenrui/_rjSUKH-0qds.srt?raw=true) | [下载](../channels/wenrui/_rjSUKH-0qds.tw.srt?raw=true) | 
