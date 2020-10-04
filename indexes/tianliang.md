@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普感染新冠病毒，对选情和世界局势的影响(政论天下第237集 20201002)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CoMU8_2t5RU) | [下载](../channels/tianliang/_CoMU8_2t5RU.srt?raw=true) | [下载](../channels/tianliang/_CoMU8_2t5RU.tw.srt?raw=true) | 
+| 川普住院；目前的治疗措施；国会众议员起草法案讲中共定为跨国犯罪集团(政论天下第238集 20201002)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7FiyvjCBrBY) | [下载](../channels/tianliang/_7FiyvjCBrBY.srt?raw=true) | [下载](../channels/tianliang/_7FiyvjCBrBY.tw.srt?raw=true) | 
 | 总统辩论加强川普速灭中共决心;辩论的技巧;关于选举舞弊问题;回应网友提问 -为什么能造出原子弹却造不出芯片(政论天下第236集 20200930)天亮时分 | [下载](https://y2mate.com/zh-cn/search/aJB48QDEJx8) | [下载](../channels/tianliang/_aJB48QDEJx8.srt?raw=true) | [下载](../channels/tianliang/_aJB48QDEJx8.tw.srt?raw=true) | 
 | 2020美國總統候選人首場辯論直播-中文同聲翻譯【天亮時分】 | [下载](https://y2mate.com/zh-cn/search/i4GHle-us_M) | [下载](../channels/tianliang/_i4GHle-us_M.srt?raw=true) | [下载](../channels/tianliang/_i4GHle-us_M.tw.srt?raw=true) | 
 | “十月惊奇”拉开帷幕;揭开仇恨川普的真正原因;制裁中芯国际;为何重赏之下无勇夫(政论天下第235集 20200928)天亮时分 | [下载](https://y2mate.com/zh-cn/search/kpqj4KsYPWs) | [下载](../channels/tianliang/_kpqj4KsYPWs.srt?raw=true) | [下载](../channels/tianliang/_kpqj4KsYPWs.tw.srt?raw=true) | 

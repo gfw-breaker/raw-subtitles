@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 川普和第一夫人中招！拜登和习近平谁高兴？十月惊奇开门大惊，大战会加速发生？（老北京茶馆_第384集_2020_10_02） | [下载](https://y2mate.com/zh-cn/search/Nhhmc0qt0fM) | [下载](../channels/teahouse/_Nhhmc0qt0fM.srt?raw=true) | [下载](../channels/teahouse/_Nhhmc0qt0fM.tw.srt?raw=true) | 
 | 天降拜登，川普迎来神助攻？拜登找谁当假川普实战演习？习近平害怕美国大选辩论？纽约客声明泄密，大选提前结束？（老北京茶馆_第383集_2020_09_29） | [下载](https://y2mate.com/zh-cn/search/7gfOzAbtoNE) | [下载](../channels/teahouse/_7gfOzAbtoNE.srt?raw=true) | [下载](../channels/teahouse/_7gfOzAbtoNE.tw.srt?raw=true) | 
 | 川普、蓬佩奥、余茂春、巴雷特吹响集结号！习近平老泪纵横：秋后算账的季节，真到了（老北京茶馆_第382集_2020_09_27） | [下载](https://y2mate.com/zh-cn/search/4nXBzdKL3RQ) | [下载](../channels/teahouse/_4nXBzdKL3RQ.srt?raw=true) | [下载](../channels/teahouse/_4nXBzdKL3RQ.tw.srt?raw=true) | 
 | 驱逐第二季：蓬佩奥出手间谍窝纽约中领馆！清华公安部获潘金莲奖，中共突然宣布胜利！（老北京茶馆_第381集_2020_09_25） | [下载](https://y2mate.com/zh-cn/search/-ze6EWT0ZPA) | [下载](../channels/teahouse/_-ze6EWT0ZPA.srt?raw=true) | [下载](../channels/teahouse/_-ze6EWT0ZPA.tw.srt?raw=true) | 
