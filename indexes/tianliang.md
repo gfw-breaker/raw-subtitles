@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 【直播】川普病情更新，或许五天内出院; 大选民调更有利于川普; 美国移民局禁止中共党员申请绿卡（政论天下第239集 20201003）天亮时分 | [下载](https://y2mate.com/zh-cn/search/X7Ln98YCRCg) | [下载](../channels/tianliang/_X7Ln98YCRCg.srt?raw=true) | [下载](../channels/tianliang/_X7Ln98YCRCg.tw.srt?raw=true) | 
 | 川普感染新冠病毒，对选情和世界局势的影响(政论天下第237集 20201002)天亮时分 | [下载](https://y2mate.com/zh-cn/search/CoMU8_2t5RU) | [下载](../channels/tianliang/_CoMU8_2t5RU.srt?raw=true) | [下载](../channels/tianliang/_CoMU8_2t5RU.tw.srt?raw=true) | 
 | 川普住院；目前的治疗措施；国会众议员起草法案讲中共定为跨国犯罪集团(政论天下第238集 20201002)天亮时分 | [下载](https://y2mate.com/zh-cn/search/7FiyvjCBrBY) | [下载](../channels/tianliang/_7FiyvjCBrBY.srt?raw=true) | [下载](../channels/tianliang/_7FiyvjCBrBY.tw.srt?raw=true) | 
 | 总统辩论加强川普速灭中共决心;辩论的技巧;关于选举舞弊问题;回应网友提问 -为什么能造出原子弹却造不出芯片(政论天下第236集 20200930)天亮时分 | [下载](https://y2mate.com/zh-cn/search/aJB48QDEJx8) | [下载](../channels/tianliang/_aJB48QDEJx8.srt?raw=true) | [下载](../channels/tianliang/_aJB48QDEJx8.tw.srt?raw=true) | 
