@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 中日关系紧张，习近平不把人得罪光了不算完，蓬佩奥笑了 | [下载](https://y2mate.com/zh-cn/search/mAIr2lKwXrQ) | [下载](../channels/wenrui/_mAIr2lKwXrQ.srt?raw=true) | [下载](../channels/wenrui/_mAIr2lKwXrQ.tw.srt?raw=true) | 
 | 北京再出大事儿，习近平章法大乱，多事之秋落叶飘零 | [下载](https://y2mate.com/zh-cn/search/ocBnC4fwg9Y) | [下载](../channels/wenrui/_ocBnC4fwg9Y.srt?raw=true) | [下载](../channels/wenrui/_ocBnC4fwg9Y.tw.srt?raw=true) | 
 | 幸灾乐祸充斥网络，中国人醒醒吧，痛苦马上就要到了 | [下载](https://y2mate.com/zh-cn/search/vhJ9fGwRWHA) | [下载](../channels/wenrui/_vhJ9fGwRWHA.srt?raw=true) | [下载](../channels/wenrui/_vhJ9fGwRWHA.tw.srt?raw=true) | 
 | 中共外交部：蓬佩奥等不到那一天了。大话别说的太早了 | [下载](https://y2mate.com/zh-cn/search/i9HF5y4vWVM) | [下载](../channels/wenrui/_i9HF5y4vWVM.srt?raw=true) | [下载](../channels/wenrui/_i9HF5y4vWVM.tw.srt?raw=true) | 
