@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 美国不断强势出击，崔天凯认怂只争朝夕，大戏渐入佳境 | [下载](https://y2mate.com/zh-cn/search/anLbXkLEx_A) | [下载](../channels/wenrui/_anLbXkLEx_A.srt?raw=true) | [下载](../channels/wenrui/_anLbXkLEx_A.tw.srt?raw=true) | 
 | 中日关系紧张，习近平不把人得罪光了不算完，蓬佩奥笑了 | [下载](https://y2mate.com/zh-cn/search/mAIr2lKwXrQ) | [下载](../channels/wenrui/_mAIr2lKwXrQ.srt?raw=true) | [下载](../channels/wenrui/_mAIr2lKwXrQ.tw.srt?raw=true) | 
 | 北京再出大事儿，习近平章法大乱，多事之秋落叶飘零 | [下载](https://y2mate.com/zh-cn/search/ocBnC4fwg9Y) | [下载](../channels/wenrui/_ocBnC4fwg9Y.srt?raw=true) | [下载](../channels/wenrui/_ocBnC4fwg9Y.tw.srt?raw=true) | 
 | 幸灾乐祸充斥网络，中国人醒醒吧，痛苦马上就要到了 | [下载](https://y2mate.com/zh-cn/search/vhJ9fGwRWHA) | [下载](../channels/wenrui/_vhJ9fGwRWHA.srt?raw=true) | [下载](../channels/wenrui/_vhJ9fGwRWHA.tw.srt?raw=true) | 
