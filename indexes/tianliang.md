@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 2020美國副總統大選辯論｜同聲傳譯+嘉賓點評【天亮時分】 | [下载](https://y2mate.com/zh-cn/search/ULzLKvXL4VU) | [下载](../channels/tianliang/_ULzLKvXL4VU.srt?raw=true) | [下载](../channels/tianliang/_ULzLKvXL4VU.tw.srt?raw=true) | 
 | 川普已经出院；最高法院生变；美国进入加紧灭共期（政论天下第241集 20201005）天亮时分 | [下载](https://y2mate.com/zh-cn/search/xMha8b0ip6c) | [下载](../channels/tianliang/_xMha8b0ip6c.srt?raw=true) | [下载](../channels/tianliang/_xMha8b0ip6c.tw.srt?raw=true) | 
 | 川普刚刚到医院外给支持者一个惊喜，最早将于周一出院；中国芯片落后二十年；TikTok真正的问题是什么？（政论天下第240集 20201004）天亮时分 | [下载](https://y2mate.com/zh-cn/search/rwES9gaEAd4) | [下载](../channels/tianliang/_rwES9gaEAd4.srt?raw=true) | [下载](../channels/tianliang/_rwES9gaEAd4.tw.srt?raw=true) | 
 | 【直播】川普病情更新，或许五天内出院; 大选民调更有利于川普; 美国移民局禁止中共党员申请绿卡（政论天下第239集 20201003）天亮时分 | [下载](https://y2mate.com/zh-cn/search/X7Ln98YCRCg) | [下载](../channels/tianliang/_X7Ln98YCRCg.srt?raw=true) | [下载](../channels/tianliang/_X7Ln98YCRCg.tw.srt?raw=true) | 
