@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 总统辩论取消！围绕宪法第25修正案的立法争端；诺贝尔和平奖的遗憾；中共篡改《圣经》；（政论天下第245集 20201009） | [下载](https://y2mate.com/zh-cn/search/2r_N1YhdNb4) | [下载](../channels/tianliang/_2r_N1YhdNb4.srt?raw=true) | [下载](../channels/tianliang/_2r_N1YhdNb4.tw.srt?raw=true) | 
 | 突发：佩洛西明天或提议免除川普总统职务，方式为动用宪法第25修正案；地球人爱习近平多于川普？（政论天下第244集 20201008）天亮时分 | [下载](https://y2mate.com/zh-cn/search/iCwYpCoFp6U) | [下载](../channels/tianliang/_iCwYpCoFp6U.srt?raw=true) | [下载](../channels/tianliang/_iCwYpCoFp6U.tw.srt?raw=true) | 
 | 2020美國副總統大選辯論｜同聲傳譯+嘉賓點評【天亮時分】 | [下载](https://y2mate.com/zh-cn/search/ULzLKvXL4VU) | [下载](../channels/tianliang/_ULzLKvXL4VU.srt?raw=true) | [下载](../channels/tianliang/_ULzLKvXL4VU.tw.srt?raw=true) | 
 | 川普已经出院；最高法院生变；美国进入加紧灭共期（政论天下第241集 20201005）天亮时分 | [下载](https://y2mate.com/zh-cn/search/xMha8b0ip6c) | [下载](../channels/tianliang/_xMha8b0ip6c.srt?raw=true) | [下载](../channels/tianliang/_xMha8b0ip6c.tw.srt?raw=true) | 
