@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 王岐山要出事儿？乱世残局，体制内人人自危，谁都不安全 | [下载](https://y2mate.com/zh-cn/search/aS5QU3l8VGc) | [下载](../channels/wenrui/_aS5QU3l8VGc.srt?raw=true) | [下载](../channels/wenrui/_aS5QU3l8VGc.tw.srt?raw=true) | 
 | 美国已全面摆出开打的阵势，一切从拆除南海人工岛礁开始 | [下载](https://y2mate.com/zh-cn/search/8KpVS4V2zXU) | [下载](../channels/wenrui/_8KpVS4V2zXU.srt?raw=true) | [下载](../channels/wenrui/_8KpVS4V2zXU.tw.srt?raw=true) | 
 | 美国嫉妒中国，害怕被中国超越，中国一枝独秀，真的假的？ | [下载](https://y2mate.com/zh-cn/search/auwK4BNs9es) | [下载](../channels/wenrui/_auwK4BNs9es.srt?raw=true) | [下载](../channels/wenrui/_auwK4BNs9es.tw.srt?raw=true) | 
 | 美国不断强势出击，崔天凯认怂只争朝夕，大戏渐入佳境 | [下载](https://y2mate.com/zh-cn/search/anLbXkLEx_A) | [下载](../channels/wenrui/_anLbXkLEx_A.srt?raw=true) | [下载](../channels/wenrui/_anLbXkLEx_A.tw.srt?raw=true) | 
