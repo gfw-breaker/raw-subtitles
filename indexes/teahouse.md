@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平喊“我们”让广西大学生石可激动写公开信，胡锡进、金灿荣紧急泼冷水：“我们”里没有你！（老北京茶馆_第388集_2020_10_11） | [下载](https://y2mate.com/zh-cn/search/0BXjAfPKPSk) | [下载](../channels/teahouse/_0BXjAfPKPSk.srt?raw=true) | [下载](../channels/teahouse/_0BXjAfPKPSk.tw.srt?raw=true) | 
 | 双十惊奇！川普对习近平政权喊讨厌！佩洛西罢免川普？国民党大转向！于谦老师删光油管（老北京茶馆_第387集_2020_10_09） | [下载](https://y2mate.com/zh-cn/search/V7IQV_7vlYs) | [下载](../channels/teahouse/_V7IQV_7vlYs.srt?raw=true) | [下载](../channels/teahouse/_V7IQV_7vlYs.tw.srt?raw=true) | 
 | 川普王者归来，习近平搬起最大石头！胡锡进华春莹唱二人转，以“人民”的名义高级黑式叛逃？（老北京茶馆_第386集_2020_10_06） | [下载](https://y2mate.com/zh-cn/search/Kg95qrTMID0) | [下载](../channels/teahouse/_Kg95qrTMID0.srt?raw=true) | [下载](../channels/teahouse/_Kg95qrTMID0.tw.srt?raw=true) | 
 | 川普闪电出院？全美川普祈祷展神迹？习近平30小时不问候，出啥事了？十月惊奇之习总接招！（老北京茶馆_第385集_2020_10_04） | [下载](https://y2mate.com/zh-cn/search/x8Ka92d0rtk) | [下载](../channels/teahouse/_x8Ka92d0rtk.srt?raw=true) | [下载](../channels/teahouse/_x8Ka92d0rtk.tw.srt?raw=true) | 
