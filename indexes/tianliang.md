@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 习近平南巡走死路；三个好时机全错过，内循环恶果已凸现；川普会突袭访台？（政论天下第248集 20201013） | [下载](https://y2mate.com/zh-cn/search/PFF7roiZS1o) | [下载](../channels/tianliang/_PFF7roiZS1o.srt?raw=true) | [下载](../channels/tianliang/_PFF7roiZS1o.tw.srt?raw=true) | 
 | 川普与UFO;美国高院听证最新进展与什么是人的权利;世卫警告各国不要再封城（政论天下第247集 20201012） | [下载](https://y2mate.com/zh-cn/search/PR3pkVCHlUM) | [下载](../channels/tianliang/_PR3pkVCHlUM.srt?raw=true) | [下载](../channels/tianliang/_PR3pkVCHlUM.tw.srt?raw=true) | 
 | 蓬佩奥将公布希拉里电邮；民主党所获选票超过共和党一倍！拜登蔑视选民；川普愿捐血！（政论天下第246集 20201010） | [下载](https://y2mate.com/zh-cn/search/CfgFcYZquH4) | [下载](../channels/tianliang/_CfgFcYZquH4.srt?raw=true) | [下载](../channels/tianliang/_CfgFcYZquH4.tw.srt?raw=true) | 
 | 总统辩论取消！围绕宪法第25修正案的立法争端；诺贝尔和平奖的遗憾；中共篡改《圣经》；（政论天下第245集 20201009） | [下载](https://y2mate.com/zh-cn/search/2r_N1YhdNb4) | [下载](../channels/tianliang/_2r_N1YhdNb4.srt?raw=true) | [下载](../channels/tianliang/_2r_N1YhdNb4.tw.srt?raw=true) | 
