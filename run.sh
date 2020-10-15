@@ -27,7 +27,7 @@ while read line; do
 
 	youtube-dl --ignore-errors -f 18 \
 		--max-downloads 3 --playlist-end 10 \
-		-o "$name-%(id)s.%(ext)s" -i $ytUrl/$channel
+		-o "$name-%(upload_date)s-%(id)s.%(ext)s" -i $ytUrl/$channel
 		#-o "%(title)s-%(id)s.%(ext)s" -i $ytUrl/$channel
 
 	
@@ -74,7 +74,7 @@ while read line; do
 	while read line; do
 		vid=$(echo $line | rev | cut -c5-15 | rev )
 		nvid=_$vid
-		title=$(echo $line | rev | cut -c17- | rev)
+		title=$(echo $line) #| rev | cut -c17- | rev)
 		echo "| $title | [下载](https://y2mate.com/zh-cn/search/$vid) | [下载](../channels/$folder/$nvid.srt?raw=true) | [下载](../channels/$folder/$nvid.tw.srt?raw=true) | " >> $index
 	done < $curDir/names.txt
 
