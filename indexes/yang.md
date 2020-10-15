@@ -4,7 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 楊景端醫話-20201010-lUWGvQeOxeM.mp4 | [下载](https://y2mate.com/zh-cn/search/lUWGvQeOxeM) | [下载](../channels/yang/_lUWGvQeOxeM.srt?raw=true) | [下载](../channels/yang/_lUWGvQeOxeM.tw.srt?raw=true) | 
-| 28 解密川普戰胜新冠肺炎的法寶，川普被類固醇激素過度治療了嗎？ 閃電出院是喜是憂？他的免疫功能夠好嗎？-dm1-1jzRQGY.mp4 | [下载](https://y2mate.com/zh-cn/search/dm1-1jzRQGY) | [下载](../channels/yang/_dm1-1jzRQGY.srt?raw=true) | [下载](../channels/yang/_dm1-1jzRQGY.tw.srt?raw=true) | 
+| 楊景端醫話-20201005-dm1-1jzRQGY.mp4 | [下载](https://y2mate.com/zh-cn/search/dm1-1jzRQGY) | [下载](../channels/yang/_dm1-1jzRQGY.srt?raw=true) | [下载](../channels/yang/_dm1-1jzRQGY.tw.srt?raw=true) | 
 | 楊景端醫話-20201002-K6BomZZUJwo.mp4 | [下载](https://y2mate.com/zh-cn/search/K6BomZZUJwo) | [下载](../channels/yang/_K6BomZZUJwo.srt?raw=true) | [下载](../channels/yang/_K6BomZZUJwo.tw.srt?raw=true) | 
 | 26 消化系统健康的三个秘密，十个危险信号，两个补救绝招。-NCKWwL_uLh8.mp4 | [下载](https://y2mate.com/zh-cn/search/NCKWwL_uLh8) | [下载](../channels/yang/_NCKWwL_uLh8.srt?raw=true) | [下载](../channels/yang/_NCKWwL_uLh8.tw.srt?raw=true) | 
 | 25 _安倍晋三辭職的真正原因！人的第二大脑也会溃疡？ 楊景端醫生為为你解密最新醫學知識！-_FWEtrWzy8I.mp4 | [下载](https://y2mate.com/zh-cn/search/_FWEtrWzy8I) | [下载](../channels/yang/__FWEtrWzy8I.srt?raw=true) | [下载](../channels/yang/__FWEtrWzy8I.tw.srt?raw=true) | 

@@ -5,7 +5,7 @@
 |---|---|---|---|
 | 拜登大脑断片连续发作！佩洛西突然面临被罢免？川普集会跳舞，左派和中共到底啥关系？（老北京茶馆_第390集_2020_10_14）-8Jd8AuKbpzc.mp4 | [下载](https://y2mate.com/zh-cn/search/8Jd8AuKbpzc) | [下载](../channels/teahouse/_8Jd8AuKbpzc.srt?raw=true) | [下载](../channels/teahouse/_8Jd8AuKbpzc.tw.srt?raw=true) | 
 | 老北京茶馆-20201011-0BXjAfPKPSk.mp4 | [下载](https://y2mate.com/zh-cn/search/0BXjAfPKPSk) | [下载](../channels/teahouse/_0BXjAfPKPSk.srt?raw=true) | [下载](../channels/teahouse/_0BXjAfPKPSk.tw.srt?raw=true) | 
-| 川普全面转阴！希拉里悬了？青岛全民开检！耿爽现眼联合国！（老北京茶馆_第389集_2020_10_12）-OpmqW6pmobc.mp4 | [下载](https://y2mate.com/zh-cn/search/OpmqW6pmobc) | [下载](../channels/teahouse/_OpmqW6pmobc.srt?raw=true) | [下载](../channels/teahouse/_OpmqW6pmobc.tw.srt?raw=true) | 
+| 老北京茶馆-20201012-OpmqW6pmobc.mp4 | [下载](https://y2mate.com/zh-cn/search/OpmqW6pmobc) | [下载](../channels/teahouse/_OpmqW6pmobc.srt?raw=true) | [下载](../channels/teahouse/_OpmqW6pmobc.tw.srt?raw=true) | 
 | 双十惊奇！川普对习近平政权喊讨厌！佩洛西罢免川普？国民党大转向！于谦老师删光油管（老北京茶馆_第387集_2020_10_09）-V7IQV_7vlYs.mp4 | [下载](https://y2mate.com/zh-cn/search/V7IQV_7vlYs) | [下载](../channels/teahouse/_V7IQV_7vlYs.srt?raw=true) | [下载](../channels/teahouse/_V7IQV_7vlYs.tw.srt?raw=true) | 
 | 川普王者归来，习近平搬起最大石头！胡锡进华春莹唱二人转，以“人民”的名义高级黑式叛逃？（老北京茶馆_第386集_2020_10_06）-Kg95qrTMID0.mp4 | [下载](https://y2mate.com/zh-cn/search/Kg95qrTMID0) | [下载](../channels/teahouse/_Kg95qrTMID0.srt?raw=true) | [下载](../channels/teahouse/_Kg95qrTMID0.tw.srt?raw=true) | 
 | 川普闪电出院？全美川普祈祷展神迹？习近平30小时不问候，出啥事了？十月惊奇之习总接招！（老北京茶馆_第385集_2020_10_04）-x8Ka92d0rtk.mp4 | [下载](https://y2mate.com/zh-cn/search/x8Ka92d0rtk) | [下载](../channels/teahouse/_x8Ka92d0rtk.srt?raw=true) | [下载](../channels/teahouse/_x8Ka92d0rtk.tw.srt?raw=true) | 
