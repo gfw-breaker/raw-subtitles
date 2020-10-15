@@ -3,8 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| 运气似乎站到了中共这一边，很多人煎熬沮丧，从三方面分析实情 | [下载](https://y2mate.com/zh-cn/search/WXly2iAqUWw) | [下载](../channels/wenrui/_WXly2iAqUWw.srt?raw=true) | [下载](../channels/wenrui/_WXly2iAqUWw.tw.srt?raw=true) | 
-| 王岐山出事儿了？帮过习近平又如何，乱世残局，谁都不安全 | [下载](https://y2mate.com/zh-cn/search/aS5QU3l8VGc) | [下载](../channels/wenrui/_aS5QU3l8VGc.srt?raw=true) | [下载](../channels/wenrui/_aS5QU3l8VGc.tw.srt?raw=true) | 
+| 文睿空间 | [下载](https://y2mate.com/zh-cn/search/WXly2iAqUWw) | [下载](../channels/wenrui/_WXly2iAqUWw.srt?raw=true) | [下载](../channels/wenrui/_WXly2iAqUWw.tw.srt?raw=true) | 
+| 文睿空间 | [下载](https://y2mate.com/zh-cn/search/aS5QU3l8VGc) | [下载](../channels/wenrui/_aS5QU3l8VGc.srt?raw=true) | [下载](../channels/wenrui/_aS5QU3l8VGc.tw.srt?raw=true) | 
 | 不敢得罪美国人，“一尊”拿台湾百姓出气，中共已虚弱至此 | [下载](https://y2mate.com/zh-cn/search/Ev-ZHkKYM1I) | [下载](../channels/wenrui/_Ev-ZHkKYM1I.srt?raw=true) | [下载](../channels/wenrui/_Ev-ZHkKYM1I.tw.srt?raw=true) | 
 | 美国已全面摆出开打的阵势，一切从拆除南海人工岛礁开始 | [下载](https://y2mate.com/zh-cn/search/8KpVS4V2zXU) | [下载](../channels/wenrui/_8KpVS4V2zXU.srt?raw=true) | [下载](../channels/wenrui/_8KpVS4V2zXU.tw.srt?raw=true) | 
 | 美国嫉妒中国，害怕被中国超越，中国一枝独秀，真的假的？ | [下载](https://y2mate.com/zh-cn/search/auwK4BNs9es) | [下载](../channels/wenrui/_auwK4BNs9es.srt?raw=true) | [下载](../channels/wenrui/_auwK4BNs9es.tw.srt?raw=true) | 

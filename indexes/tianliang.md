@@ -5,7 +5,7 @@
 |---|---|---|---|
 | 吸毒、腐败、乱性，硬盘曝光，拜登儿子坑爹始末；参议院介入调查；媒体与左派的串谋（政论天下第249集 20201014） | [下载](https://y2mate.com/zh-cn/search/F_c4eAMxEnc) | [下载](../channels/tianliang/_F_c4eAMxEnc.srt?raw=true) | [下载](../channels/tianliang/_F_c4eAMxEnc.tw.srt?raw=true) | 
 | 习近平南巡走死路；三个好时机全错过，内循环恶果已凸现；川普会突袭访台？（政论天下第248集 20201013） | [下载](https://y2mate.com/zh-cn/search/PFF7roiZS1o) | [下载](../channels/tianliang/_PFF7roiZS1o.srt?raw=true) | [下载](../channels/tianliang/_PFF7roiZS1o.tw.srt?raw=true) | 
-| 川普与UFO;美国高院听证最新进展与什么是人的权利;世卫警告各国不要再封城（政论天下第247集 20201012） | [下载](https://y2mate.com/zh-cn/search/PR3pkVCHlUM) | [下载](../channels/tianliang/_PR3pkVCHlUM.srt?raw=true) | [下载](../channels/tianliang/_PR3pkVCHlUM.tw.srt?raw=true) | 
+| 天亮时分 | [下载](https://y2mate.com/zh-cn/search/PR3pkVCHlUM) | [下载](../channels/tianliang/_PR3pkVCHlUM.srt?raw=true) | [下载](../channels/tianliang/_PR3pkVCHlUM.tw.srt?raw=true) | 
 | 蓬佩奥将公布希拉里电邮；民主党所获选票超过共和党一倍！拜登蔑视选民；川普愿捐血！（政论天下第246集 20201010） | [下载](https://y2mate.com/zh-cn/search/CfgFcYZquH4) | [下载](../channels/tianliang/_CfgFcYZquH4.srt?raw=true) | [下载](../channels/tianliang/_CfgFcYZquH4.tw.srt?raw=true) | 
 | 总统辩论取消！围绕宪法第25修正案的立法争端；诺贝尔和平奖的遗憾；中共篡改《圣经》；（政论天下第245集 20201009） | [下载](https://y2mate.com/zh-cn/search/2r_N1YhdNb4) | [下载](../channels/tianliang/_2r_N1YhdNb4.srt?raw=true) | [下载](../channels/tianliang/_2r_N1YhdNb4.tw.srt?raw=true) | 
 | 突发：佩洛西明天或提议免除川普总统职务，方式为动用宪法第25修正案；地球人爱习近平多于川普？（政论天下第244集 20201008）天亮时分 | [下载](https://y2mate.com/zh-cn/search/iCwYpCoFp6U) | [下载](../channels/tianliang/_iCwYpCoFp6U.srt?raw=true) | [下载](../channels/tianliang/_iCwYpCoFp6U.tw.srt?raw=true) | 

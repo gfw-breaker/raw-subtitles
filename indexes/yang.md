@@ -3,9 +3,9 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
-| ㊙️頭髮是健康的風向標！三類常見的脫髮！三個快速自我診斷的方法！！七個護髮美髮的㊙️訣！！！ | [下载](https://y2mate.com/zh-cn/search/lUWGvQeOxeM) | [下载](../channels/yang/_lUWGvQeOxeM.srt?raw=true) | [下载](../channels/yang/_lUWGvQeOxeM.tw.srt?raw=true) | 
+| 楊景端醫話 | [下载](https://y2mate.com/zh-cn/search/lUWGvQeOxeM) | [下载](../channels/yang/_lUWGvQeOxeM.srt?raw=true) | [下载](../channels/yang/_lUWGvQeOxeM.tw.srt?raw=true) | 
 | 28 解密川普戰胜新冠肺炎的法寶，川普被類固醇激素過度治療了嗎？ 閃電出院是喜是憂？他的免疫功能夠好嗎？ | [下载](https://y2mate.com/zh-cn/search/dm1-1jzRQGY) | [下载](../channels/yang/_dm1-1jzRQGY.srt?raw=true) | [下载](../channels/yang/_dm1-1jzRQGY.tw.srt?raw=true) | 
-| 27 ㊙️ 全家須知产后抑郁症的危害！一秒钟判定产后抑郁症 ！！四个防治产后抑郁症的自然疗法！！！ | [下载](https://y2mate.com/zh-cn/search/K6BomZZUJwo) | [下载](../channels/yang/_K6BomZZUJwo.srt?raw=true) | [下载](../channels/yang/_K6BomZZUJwo.tw.srt?raw=true) | 
+| 楊景端醫話 | [下载](https://y2mate.com/zh-cn/search/K6BomZZUJwo) | [下载](../channels/yang/_K6BomZZUJwo.srt?raw=true) | [下载](../channels/yang/_K6BomZZUJwo.tw.srt?raw=true) | 
 | 26 消化系统健康的三个秘密，十个危险信号，两个补救绝招。 | [下载](https://y2mate.com/zh-cn/search/NCKWwL_uLh8) | [下载](../channels/yang/_NCKWwL_uLh8.srt?raw=true) | [下载](../channels/yang/_NCKWwL_uLh8.tw.srt?raw=true) | 
 | 25 _安倍晋三辭職的真正原因！人的第二大脑也会溃疡？ 楊景端醫生為为你解密最新醫學知識！ | [下载](https://y2mate.com/zh-cn/search/_FWEtrWzy8I) | [下载](../channels/yang/__FWEtrWzy8I.srt?raw=true) | [下载](../channels/yang/__FWEtrWzy8I.tw.srt?raw=true) | 
 | 憂鬱症怎麼吞噬了一個哈佛才女？一药能解百忧嗎？精神科醫師深入解析電影《我的憂鬱青春》 | [下载](https://y2mate.com/zh-cn/search/k30fQX45TXU) | [下载](../channels/yang/_k30fQX45TXU.srt?raw=true) | [下载](../channels/yang/_k30fQX45TXU.tw.srt?raw=true) | 

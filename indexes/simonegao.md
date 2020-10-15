@@ -4,8 +4,8 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 川普中招：塞翁失马？ | [下载](https://y2mate.com/zh-cn/search/L6RNtl6DdIY) | [下载](../channels/simonegao/_L6RNtl6DdIY.srt?raw=true) | [下载](../channels/simonegao/_L6RNtl6DdIY.tw.srt?raw=true) | 
-| 三峡大坝会成为核攻击目标吗？ | [下载](https://y2mate.com/zh-cn/search/uVT0YKp-Os4) | [下载](../channels/simonegao/_uVT0YKp-Os4.srt?raw=true) | [下载](../channels/simonegao/_uVT0YKp-Os4.tw.srt?raw=true) | 
-| 重磅！川普证实中美脱钩。 | [下载](https://y2mate.com/zh-cn/search/OvacAKQhc5c) | [下载](../channels/simonegao/_OvacAKQhc5c.srt?raw=true) | [下载](../channels/simonegao/_OvacAKQhc5c.tw.srt?raw=true) | 
+| 蕭茗看世界 | [下载](https://y2mate.com/zh-cn/search/uVT0YKp-Os4) | [下载](../channels/simonegao/_uVT0YKp-Os4.srt?raw=true) | [下载](../channels/simonegao/_uVT0YKp-Os4.tw.srt?raw=true) | 
+| 蕭茗看世界 | [下载](https://y2mate.com/zh-cn/search/OvacAKQhc5c) | [下载](../channels/simonegao/_OvacAKQhc5c.srt?raw=true) | [下载](../channels/simonegao/_OvacAKQhc5c.tw.srt?raw=true) | 
 | 我所知道的班农和建墙项目；从川普身边人下手的用意；对川普的人是集体抹黑还是内部分化？ | [下载](https://y2mate.com/zh-cn/search/CMR-wtffU7Y) | [下载](../channels/simonegao/_CMR-wtffU7Y.srt?raw=true) | [下载](../channels/simonegao/_CMR-wtffU7Y.tw.srt?raw=true) | 
 | 中美突然取消会谈，白邦瑞详解中美实力对比；川普为贸易协议留门，是福是祸？ | [下载](https://y2mate.com/zh-cn/search/X0pEgRCXnAQ) | [下载](../channels/simonegao/_X0pEgRCXnAQ.srt?raw=true) | [下载](../channels/simonegao/_X0pEgRCXnAQ.tw.srt?raw=true) | 
 | 蕭茗採訪袁弓夷：川普行政令將做一件前所未有的事；中美會在南中國海開戰嗎？會在台海開戰嗎？香港接下來會如何？ | [下载](https://y2mate.com/zh-cn/search/SSXG6Jhob48) | [下载](../channels/simonegao/_SSXG6Jhob48.srt?raw=true) | [下载](../channels/simonegao/_SSXG6Jhob48.tw.srt?raw=true) | 

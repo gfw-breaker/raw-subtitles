@@ -4,7 +4,7 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 你不知道的美國名校【美國教育】22 | [下载](https://y2mate.com/zh-cn/search/THzTVaIY9TM) | [下载](../channels/us-stories/_THzTVaIY9TM.srt?raw=true) | [下载](../channels/us-stories/_THzTVaIY9TM.tw.srt?raw=true) | 
-| 美國的特許學校 【美國教育】21 | [下载](https://y2mate.com/zh-cn/search/Uf2UqCQU5OQ) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.srt?raw=true) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.tw.srt?raw=true) | 
+| 清聊美国 | [下载](https://y2mate.com/zh-cn/search/Uf2UqCQU5OQ) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.srt?raw=true) | [下载](../channels/us-stories/_Uf2UqCQU5OQ.tw.srt?raw=true) | 
 | 九岁女孩筑梦之路 【美国教育】20 | [下载](https://y2mate.com/zh-cn/search/tQ1ChIos1wk) | [下载](../channels/us-stories/_tQ1ChIos1wk.srt?raw=true) | [下载](../channels/us-stories/_tQ1ChIos1wk.tw.srt?raw=true) | 
 | 孩子在公共場所哭鬧 家長怎麼辦？【老美怎麼辦】7 | [下载](https://y2mate.com/zh-cn/search/8C2ltGn0vS4) | [下载](../channels/us-stories/_8C2ltGn0vS4.srt?raw=true) | [下载](../channels/us-stories/_8C2ltGn0vS4.tw.srt?raw=true) | 
 | 學習超前的孩子需要跳级吗？【美國教育】3 | [下载](https://y2mate.com/zh-cn/search/mj9SPzzrr5Y) | [下载](../channels/us-stories/_mj9SPzzrr5Y.srt?raw=true) | [下载](../channels/us-stories/_mj9SPzzrr5Y.tw.srt?raw=true) | 

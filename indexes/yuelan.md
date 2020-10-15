@@ -6,7 +6,7 @@
 | 丁悅·說新聞 Live Stream | [下载](https://y2mate.com/zh-cn/search/ZSkEAOtmb2I) | [下载](../channels/yuelan/_ZSkEAOtmb2I.srt?raw=true) | [下载](../channels/yuelan/_ZSkEAOtmb2I.tw.srt?raw=true) | 
 | 丁悦說新聞暫停更新 | [下载](https://y2mate.com/zh-cn/search/YpXXBUyTPaE) | [下载](../channels/yuelan/_YpXXBUyTPaE.srt?raw=true) | [下载](../channels/yuelan/_YpXXBUyTPaE.tw.srt?raw=true) | 
 | 川普正式下令禁止微信！有哪些可替代應用？紐約中領館現關門前兆？美國公告制裁香港特首 | [下载](https://y2mate.com/zh-cn/search/JaVFvEPAsqk) | [下载](../channels/yuelan/_JaVFvEPAsqk.srt?raw=true) | [下载](../channels/yuelan/_JaVFvEPAsqk.tw.srt?raw=true) | 
-| 川普擬簽政令紓困：延失業補貼_免工資稅！迪士尼《花木蘭》改線上點播！美中媒體戰又升級？！ | [下载](https://y2mate.com/zh-cn/search/tNfobLReYJA) | [下载](../channels/yuelan/_tNfobLReYJA.srt?raw=true) | [下载](../channels/yuelan/_tNfobLReYJA.tw.srt?raw=true) | 
+| 悦览新闻 | [下载](https://y2mate.com/zh-cn/search/tNfobLReYJA) | [下载](../channels/yuelan/_tNfobLReYJA.srt?raw=true) | [下载](../channels/yuelan/_tNfobLReYJA.tw.srt?raw=true) | 
 | 新紓困案有進展！Zoom停售中國區服務！美限期45天解決抖音TikTok，不收購就封殺？！ | [下载](https://y2mate.com/zh-cn/search/iuj07sEiPsg) | [下载](../channels/yuelan/_iuj07sEiPsg.srt?raw=true) | [下载](../channels/yuelan/_iuj07sEiPsg.tw.srt?raw=true) | 
 | 防疫戴口罩還不夠？美移民局又漲價！蘋果推遲新品發佈！中國寄來的“神秘種子”怎麼回事？美國染疫者可向中共索賠 | [下载](https://y2mate.com/zh-cn/search/qAHb5K1_-Uc) | [下载](../channels/yuelan/_qAHb5K1_-Uc.srt?raw=true) | [下载](../channels/yuelan/_qAHb5K1_-Uc.tw.srt?raw=true) | 
 | 美高校6300例感染新冠！當心！有毒乾洗手液！柯達Kodak股價瘋漲600%？美立法禁中共間諜入境？！ | [下载](https://y2mate.com/zh-cn/search/czSPdS4k5qg) | [下载](../channels/yuelan/_czSPdS4k5qg.srt?raw=true) | [下载](../channels/yuelan/_czSPdS4k5qg.tw.srt?raw=true) | 
