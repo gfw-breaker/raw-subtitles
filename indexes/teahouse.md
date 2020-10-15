@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 拜登大脑断片连续发作！佩洛西突然面临被罢免？川普集会跳舞，左派和中共到底啥关系？（老北京茶馆_第390集_2020_10_14） | [下载](https://y2mate.com/zh-cn/search/8Jd8AuKbpzc) | [下载](../channels/teahouse/_8Jd8AuKbpzc.srt?raw=true) | [下载](../channels/teahouse/_8Jd8AuKbpzc.tw.srt?raw=true) | 
 | 川普全面转阴！希拉里悬了？青岛全民开检！耿爽现眼联合国！（老北京茶馆_第389集_2020_10_12） | [下载](https://y2mate.com/zh-cn/search/OpmqW6pmobc) | [下载](../channels/teahouse/_OpmqW6pmobc.srt?raw=true) | [下载](../channels/teahouse/_OpmqW6pmobc.tw.srt?raw=true) | 
 | 习近平喊“我们”让广西大学生石可激动写公开信，胡锡进、金灿荣紧急泼冷水：“我们”里没有你！（老北京茶馆_第388集_2020_10_11） | [下载](https://y2mate.com/zh-cn/search/0BXjAfPKPSk) | [下载](../channels/teahouse/_0BXjAfPKPSk.srt?raw=true) | [下载](../channels/teahouse/_0BXjAfPKPSk.tw.srt?raw=true) | 
 | 双十惊奇！川普对习近平政权喊讨厌！佩洛西罢免川普？国民党大转向！于谦老师删光油管（老北京茶馆_第387集_2020_10_09） | [下载](https://y2mate.com/zh-cn/search/V7IQV_7vlYs) | [下载](../channels/teahouse/_V7IQV_7vlYs.srt?raw=true) | [下载](../channels/teahouse/_V7IQV_7vlYs.tw.srt?raw=true) | 
