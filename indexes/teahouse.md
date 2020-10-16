@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 老北京茶馆-20201015-zLltn-rM91I.mp4 | [下载](https://y2mate.com/zh-cn/search/zLltn-rM91I) | [下载](../channels/teahouse/_zLltn-rM91I.srt?raw=true) | [下载](../channels/teahouse/_zLltn-rM91I.tw.srt?raw=true) | 
 | 老北京茶馆-20201012-OpmqW6pmobc.mp4 | [下载](https://y2mate.com/zh-cn/search/OpmqW6pmobc) | [下载](../channels/teahouse/_OpmqW6pmobc.srt?raw=true) | [下载](../channels/teahouse/_OpmqW6pmobc.tw.srt?raw=true) | 
 | 拜登大脑断片连续发作！佩洛西突然面临被罢免？川普集会跳舞，左派和中共到底啥关系？（老北京茶馆_第390集_2020_10_14）-8Jd8AuKbpzc.mp4 | [下载](https://y2mate.com/zh-cn/search/8Jd8AuKbpzc) | [下载](../channels/teahouse/_8Jd8AuKbpzc.srt?raw=true) | [下载](../channels/teahouse/_8Jd8AuKbpzc.tw.srt?raw=true) | 
 | 老北京茶馆-20201011-0BXjAfPKPSk.mp4 | [下载](https://y2mate.com/zh-cn/search/0BXjAfPKPSk) | [下载](../channels/teahouse/_0BXjAfPKPSk.srt?raw=true) | [下载](../channels/teahouse/_0BXjAfPKPSk.tw.srt?raw=true) | 
