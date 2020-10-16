@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 江峰时刻-20201016-XJXc4nBgxfQ.mp4 | [下载](https://y2mate.com/zh-cn/search/XJXc4nBgxfQ) | [下载](../channels/jiangfeng/_XJXc4nBgxfQ.srt?raw=true) | [下载](../channels/jiangfeng/_XJXc4nBgxfQ.tw.srt?raw=true) | 
 | 江峰时刻-20201015-WQGURKyJPMk.mp4 | [下载](https://y2mate.com/zh-cn/search/WQGURKyJPMk) | [下载](../channels/jiangfeng/_WQGURKyJPMk.srt?raw=true) | [下载](../channels/jiangfeng/_WQGURKyJPMk.tw.srt?raw=true) | 
 | 江峰时刻-20201013-FR-tgl7jbjA.mp4 | [下载](https://y2mate.com/zh-cn/search/FR-tgl7jbjA) | [下载](../channels/jiangfeng/_FR-tgl7jbjA.srt?raw=true) | [下载](../channels/jiangfeng/_FR-tgl7jbjA.tw.srt?raw=true) | 
 | 江峰时刻-20201015-pjiUIq6lRJ0.mp4 | [下载](https://y2mate.com/zh-cn/search/pjiUIq6lRJ0) | [下载](../channels/jiangfeng/_pjiUIq6lRJ0.srt?raw=true) | [下载](../channels/jiangfeng/_pjiUIq6lRJ0.tw.srt?raw=true) | 
