@@ -4,8 +4,8 @@
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
 | 天亮时分-20201016-Ckxy-jMNQ04.mp4 | [下载](https://y2mate.com/zh-cn/search/Ckxy-jMNQ04) | [下载](../channels/tianliang/_Ckxy-jMNQ04.srt?raw=true) | [下载](../channels/tianliang/_Ckxy-jMNQ04.tw.srt?raw=true) | 
+| 天亮时分-20201014-F_c4eAMxEnc.mp4 | [下载](https://y2mate.com/zh-cn/search/F_c4eAMxEnc) | [下载](../channels/tianliang/_F_c4eAMxEnc.srt?raw=true) | [下载](../channels/tianliang/_F_c4eAMxEnc.tw.srt?raw=true) | 
 | 天亮时分-20201015-RMim8SV3ieI.mp4 | [下载](https://y2mate.com/zh-cn/search/RMim8SV3ieI) | [下载](../channels/tianliang/_RMim8SV3ieI.srt?raw=true) | [下载](../channels/tianliang/_RMim8SV3ieI.tw.srt?raw=true) | 
-| 吸毒、腐败、乱性，硬盘曝光，拜登儿子坑爹始末；参议院介入调查；媒体与左派的串谋（政论天下第249集 20201014）-F_c4eAMxEnc.mp4 | [下载](https://y2mate.com/zh-cn/search/F_c4eAMxEnc) | [下载](../channels/tianliang/_F_c4eAMxEnc.srt?raw=true) | [下载](../channels/tianliang/_F_c4eAMxEnc.tw.srt?raw=true) | 
 | 天亮时分-20201013-PFF7roiZS1o.mp4 | [下载](https://y2mate.com/zh-cn/search/PFF7roiZS1o) | [下载](../channels/tianliang/_PFF7roiZS1o.srt?raw=true) | [下载](../channels/tianliang/_PFF7roiZS1o.tw.srt?raw=true) | 
 | 天亮时分-20201012-PR3pkVCHlUM.mp4 | [下载](https://y2mate.com/zh-cn/search/PR3pkVCHlUM) | [下载](../channels/tianliang/_PR3pkVCHlUM.srt?raw=true) | [下载](../channels/tianliang/_PR3pkVCHlUM.tw.srt?raw=true) | 
 | 蓬佩奥将公布希拉里电邮；民主党所获选票超过共和党一倍！拜登蔑视选民；川普愿捐血！（政论天下第246集 20201010）-CfgFcYZquH4.mp4 | [下载](https://y2mate.com/zh-cn/search/CfgFcYZquH4) | [下载](../channels/tianliang/_CfgFcYZquH4.srt?raw=true) | [下载](../channels/tianliang/_CfgFcYZquH4.tw.srt?raw=true) | 
