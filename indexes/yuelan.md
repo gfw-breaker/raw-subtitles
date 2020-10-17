@@ -6,9 +6,9 @@
 | 丁悅·說新聞 Live Stream-ZSkEAOtmb2I.mp4 | [下载](https://y2mate.com/zh-cn/search/ZSkEAOtmb2I) | [下载](../channels/yuelan/_ZSkEAOtmb2I.srt?raw=true) | [下载](../channels/yuelan/_ZSkEAOtmb2I.tw.srt?raw=true) | 
 | 丁悦說新聞暫停更新-YpXXBUyTPaE.mp4 | [下载](https://y2mate.com/zh-cn/search/YpXXBUyTPaE) | [下载](../channels/yuelan/_YpXXBUyTPaE.srt?raw=true) | [下载](../channels/yuelan/_YpXXBUyTPaE.tw.srt?raw=true) | 
 | 悦览新闻-20200807-JaVFvEPAsqk.mp4 | [下载](https://y2mate.com/zh-cn/search/JaVFvEPAsqk) | [下载](../channels/yuelan/_JaVFvEPAsqk.srt?raw=true) | [下载](../channels/yuelan/_JaVFvEPAsqk.tw.srt?raw=true) | 
+| 悦览新闻-20200731-qAHb5K1_-Uc.mp4 | [下载](https://y2mate.com/zh-cn/search/qAHb5K1_-Uc) | [下载](../channels/yuelan/_qAHb5K1_-Uc.srt?raw=true) | [下载](../channels/yuelan/_qAHb5K1_-Uc.tw.srt?raw=true) | 
 | 悦览新闻-20200805-tNfobLReYJA.mp4 | [下载](https://y2mate.com/zh-cn/search/tNfobLReYJA) | [下载](../channels/yuelan/_tNfobLReYJA.srt?raw=true) | [下载](../channels/yuelan/_tNfobLReYJA.tw.srt?raw=true) | 
 | 新紓困案有進展！Zoom停售中國區服務！美限期45天解決抖音TikTok，不收購就封殺？！-iuj07sEiPsg.mp4 | [下载](https://y2mate.com/zh-cn/search/iuj07sEiPsg) | [下载](../channels/yuelan/_iuj07sEiPsg.srt?raw=true) | [下载](../channels/yuelan/_iuj07sEiPsg.tw.srt?raw=true) | 
-| 防疫戴口罩還不夠？美移民局又漲價！蘋果推遲新品發佈！中國寄來的“神秘種子”怎麼回事？美國染疫者可向中共索賠-qAHb5K1_-Uc.mp4 | [下载](https://y2mate.com/zh-cn/search/qAHb5K1_-Uc) | [下载](../channels/yuelan/_qAHb5K1_-Uc.srt?raw=true) | [下载](../channels/yuelan/_qAHb5K1_-Uc.tw.srt?raw=true) | 
 | 美高校6300例感染新冠！當心！有毒乾洗手液！柯達Kodak股價瘋漲600%？美立法禁中共間諜入境？！-czSPdS4k5qg.mp4 | [下载](https://y2mate.com/zh-cn/search/czSPdS4k5qg) | [下载](../channels/yuelan/_czSPdS4k5qg.srt?raw=true) | [下载](../channels/yuelan/_czSPdS4k5qg.tw.srt?raw=true) | 
 | 美國新一輪紓困案正式公佈！每人再發$1200何時到帳？失業補助縮水！中領館藏匿女軍官唐娟開庭受審-jt06Uii5s8g.mp4 | [下载](https://y2mate.com/zh-cn/search/jt06Uii5s8g) | [下载](../channels/yuelan/_jt06Uii5s8g.srt?raw=true) | [下载](../channels/yuelan/_jt06Uii5s8g.tw.srt?raw=true) | 
 | 美或關閉更多中領館！嚴打中共間諜！呼籲中國人“改變”中共-1YVo93AFsHI.mp4 | [下载](https://y2mate.com/zh-cn/search/1YVo93AFsHI) | [下载](../channels/yuelan/_1YVo93AFsHI.srt?raw=true) | [下载](../channels/yuelan/_1YVo93AFsHI.tw.srt?raw=true) | 
