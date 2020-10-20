@@ -26,7 +26,7 @@ while read line; do
 	rm -fr tmp && mkdir tmp
 
 	youtube-dl --ignore-errors -f 18 \
-		--max-downloads 3 --playlist-end 10 \
+		--max-downloads 2 --playlist-end 4 \
 		-o "$name-%(upload_date)s-%(id)s.%(ext)s" -i $ytUrl/$channel
 		#-o "%(title)s-%(id)s.%(ext)s" -i $ytUrl/$channel
 
