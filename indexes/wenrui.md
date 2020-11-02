@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 文睿空间-20201101-BKRbxJ60vdw.mp4 | [下载](https://y2mate.com/zh-cn/search/BKRbxJ60vdw) | [下载](../channels/wenrui/_BKRbxJ60vdw.srt?raw=true) | [下载](../channels/wenrui/_BKRbxJ60vdw.tw.srt?raw=true) | 
 | 文睿空间-20201030-JUndpfHRDXY.mp4 | [下载](https://y2mate.com/zh-cn/search/JUndpfHRDXY) | [下载](../channels/wenrui/_JUndpfHRDXY.srt?raw=true) | [下载](../channels/wenrui/_JUndpfHRDXY.tw.srt?raw=true) | 
 | 文睿空间-20201027-MJQ6PbuKY7c.mp4 | [下载](https://y2mate.com/zh-cn/search/MJQ6PbuKY7c) | [下载](../channels/wenrui/_MJQ6PbuKY7c.srt?raw=true) | [下载](../channels/wenrui/_MJQ6PbuKY7c.tw.srt?raw=true) | 
 | 文睿空间-20201026-AtJ_fystAkQ.mp4 | [下载](https://y2mate.com/zh-cn/search/AtJ_fystAkQ) | [下载](../channels/wenrui/_AtJ_fystAkQ.srt?raw=true) | [下载](../channels/wenrui/_AtJ_fystAkQ.tw.srt?raw=true) | 
