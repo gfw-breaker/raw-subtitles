@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蕭茗看世界-20201103-7MRBJxL6cLQ.mp4 | [下载](https://y2mate.com/zh-cn/search/7MRBJxL6cLQ) | [下载](../channels/simonegao/_7MRBJxL6cLQ.srt?raw=true) | [下载](../channels/simonegao/_7MRBJxL6cLQ.tw.srt?raw=true) | 
 | 蕭茗看世界-20201101-I73uSXOCGp0.mp4 | [下载](https://y2mate.com/zh-cn/search/I73uSXOCGp0) | [下载](../channels/simonegao/_I73uSXOCGp0.srt?raw=true) | [下载](../channels/simonegao/_I73uSXOCGp0.tw.srt?raw=true) | 
 | 蕭茗看世界-20201101-0cyBfQ7TrPQ.mp4 | [下载](https://y2mate.com/zh-cn/search/0cyBfQ7TrPQ) | [下载](../channels/simonegao/_0cyBfQ7TrPQ.srt?raw=true) | [下载](../channels/simonegao/_0cyBfQ7TrPQ.tw.srt?raw=true) | 
 | 川普中招：塞翁失马？-L6RNtl6DdIY.mp4 | [下载](https://y2mate.com/zh-cn/search/L6RNtl6DdIY) | [下载](../channels/simonegao/_L6RNtl6DdIY.srt?raw=true) | [下载](../channels/simonegao/_L6RNtl6DdIY.tw.srt?raw=true) | 
