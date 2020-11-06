@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 文睿空间-20201105-WvEN_zFYjZs.mp4 | [下载](https://y2mate.com/zh-cn/search/WvEN_zFYjZs) | [下载](../channels/wenrui/_WvEN_zFYjZs.srt?raw=true) | [下载](../channels/wenrui/_WvEN_zFYjZs.tw.srt?raw=true) | 
 | 文睿空间-20201103-p8FqfwJdP7U.mp4 | [下载](https://y2mate.com/zh-cn/search/p8FqfwJdP7U) | [下载](../channels/wenrui/_p8FqfwJdP7U.srt?raw=true) | [下载](../channels/wenrui/_p8FqfwJdP7U.tw.srt?raw=true) | 
 | 文睿空间-20201103-Tyc-S-Wj1eE.mp4 | [下载](https://y2mate.com/zh-cn/search/Tyc-S-Wj1eE) | [下载](../channels/wenrui/_Tyc-S-Wj1eE.srt?raw=true) | [下载](../channels/wenrui/_Tyc-S-Wj1eE.tw.srt?raw=true) | 
 | 文睿空间-20201101-BKRbxJ60vdw.mp4 | [下载](https://y2mate.com/zh-cn/search/BKRbxJ60vdw) | [下载](../channels/wenrui/_BKRbxJ60vdw.srt?raw=true) | [下载](../channels/wenrui/_BKRbxJ60vdw.tw.srt?raw=true) | 
