@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 江峰时刻-20201125-CVwzc4i5V1M.mp4 | [下载](https://y2mate.com/zh-cn/search/CVwzc4i5V1M) | [下载](../channels/jiangfeng/_CVwzc4i5V1M.srt?raw=true) | [下载](../channels/jiangfeng/_CVwzc4i5V1M.tw.srt?raw=true) | 
 | 江峰时刻-20201118-wnE-s_dHqvc.mp4 | [下载](https://y2mate.com/zh-cn/search/wnE-s_dHqvc) | [下载](../channels/jiangfeng/_wnE-s_dHqvc.srt?raw=true) | [下载](../channels/jiangfeng/_wnE-s_dHqvc.tw.srt?raw=true) | 
 | 江峰时刻-20201114-hXgbCzJr6tk.mp4 | [下载](https://y2mate.com/zh-cn/search/hXgbCzJr6tk) | [下载](../channels/jiangfeng/_hXgbCzJr6tk.srt?raw=true) | [下载](../channels/jiangfeng/_hXgbCzJr6tk.tw.srt?raw=true) | 
 | 江峰时刻-20201111-E50sOk_DFr0.mp4 | [下载](https://y2mate.com/zh-cn/search/E50sOk_DFr0) | [下载](../channels/jiangfeng/_E50sOk_DFr0.srt?raw=true) | [下载](../channels/jiangfeng/_E50sOk_DFr0.tw.srt?raw=true) | 
