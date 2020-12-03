@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 老北京茶馆-20201202-ETmYbgugEB0.mp4 | [下载](https://y2mate.com/zh-cn/search/ETmYbgugEB0) | [下载](../channels/teahouse/_ETmYbgugEB0.srt?raw=true) | [下载](../channels/teahouse/_ETmYbgugEB0.tw.srt?raw=true) | 
 | 老北京茶馆-20201201-SJ1JdCyNezw.mp4 | [下载](https://y2mate.com/zh-cn/search/SJ1JdCyNezw) | [下载](../channels/teahouse/_SJ1JdCyNezw.srt?raw=true) | [下载](../channels/teahouse/_SJ1JdCyNezw.tw.srt?raw=true) | 
 | 老北京茶馆-20201129-_dzCD-TIZKQ.mp4 | [下载](https://y2mate.com/zh-cn/search/_dzCD-TIZKQ) | [下载](../channels/teahouse/__dzCD-TIZKQ.srt?raw=true) | [下载](../channels/teahouse/__dzCD-TIZKQ.tw.srt?raw=true) | 
 | 老北京茶馆-20201127-32aOgqJTaxM.mp4 | [下载](https://y2mate.com/zh-cn/search/32aOgqJTaxM) | [下载](../channels/teahouse/_32aOgqJTaxM.srt?raw=true) | [下载](../channels/teahouse/_32aOgqJTaxM.tw.srt?raw=true) | 
