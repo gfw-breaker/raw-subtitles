@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蕭茗看世界-20201203-zgUsJERTNvM.mp4 | [下载](https://y2mate.com/zh-cn/search/zgUsJERTNvM) | [下载](../channels/simonegao/_zgUsJERTNvM.srt?raw=true) | [下载](../channels/simonegao/_zgUsJERTNvM.tw.srt?raw=true) | 
 | 蕭茗看世界-20201127-zhZu1x8zHbQ.mp4 | [下载](https://y2mate.com/zh-cn/search/zhZu1x8zHbQ) | [下载](../channels/simonegao/_zhZu1x8zHbQ.srt?raw=true) | [下载](../channels/simonegao/_zhZu1x8zHbQ.tw.srt?raw=true) | 
 | 蕭茗看世界-20201127-znDy5RU_sKk.mp4 | [下载](https://y2mate.com/zh-cn/search/znDy5RU_sKk) | [下载](../channels/simonegao/_znDy5RU_sKk.srt?raw=true) | [下载](../channels/simonegao/_znDy5RU_sKk.tw.srt?raw=true) | 
 | 蕭茗看世界-20201124-qiKRRJlYEuc.mp4 | [下载](https://y2mate.com/zh-cn/search/qiKRRJlYEuc) | [下载](../channels/simonegao/_qiKRRJlYEuc.srt?raw=true) | [下载](../channels/simonegao/_qiKRRJlYEuc.tw.srt?raw=true) | 
