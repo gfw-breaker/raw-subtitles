@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20201208-d9EQy6WKxJw.mp4 | [下载](https://y2mate.com/zh-cn/search/d9EQy6WKxJw) | [下载](../channels/tianliang/_d9EQy6WKxJw.srt?raw=true) | [下载](../channels/tianliang/_d9EQy6WKxJw.tw.srt?raw=true) | 
 | 天亮时分-20201207-HIFCuL-tvPw.mp4 | [下载](https://y2mate.com/zh-cn/search/HIFCuL-tvPw) | [下载](../channels/tianliang/_HIFCuL-tvPw.srt?raw=true) | [下载](../channels/tianliang/_HIFCuL-tvPw.tw.srt?raw=true) | 
 | 天亮时分-20201206-xFfu_StokoU.mp4 | [下载](https://y2mate.com/zh-cn/search/xFfu_StokoU) | [下载](../channels/tianliang/_xFfu_StokoU.srt?raw=true) | [下载](../channels/tianliang/_xFfu_StokoU.tw.srt?raw=true) | 
 | 天亮时分-20201205-WtMcTWhFKp4.mp4 | [下载](https://y2mate.com/zh-cn/search/WtMcTWhFKp4) | [下载](../channels/tianliang/_WtMcTWhFKp4.srt?raw=true) | [下载](../channels/tianliang/_WtMcTWhFKp4.tw.srt?raw=true) | 
