@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 楊景端醫話-20210105-Pk81liF81aw.mp4 | [下载](https://y2mate.com/zh-cn/search/Pk81liF81aw) | [下载](../channels/yang/_Pk81liF81aw.srt?raw=true) | [下载](../channels/yang/_Pk81liF81aw.tw.srt?raw=true) | 
 | 楊景端醫話-20210101-mwa63ADN8P4.mp4 | [下载](https://y2mate.com/zh-cn/search/mwa63ADN8P4) | [下载](../channels/yang/_mwa63ADN8P4.srt?raw=true) | [下载](../channels/yang/_mwa63ADN8P4.tw.srt?raw=true) | 
 | 楊景端醫話-20201229-gya70e1Jgzk.mp4 | [下载](https://y2mate.com/zh-cn/search/gya70e1Jgzk) | [下载](../channels/yang/_gya70e1Jgzk.srt?raw=true) | [下载](../channels/yang/_gya70e1Jgzk.tw.srt?raw=true) | 
 | 楊景端醫話-20201225-tPfyX0PIYo0.mp4 | [下载](https://y2mate.com/zh-cn/search/tPfyX0PIYo0) | [下载](../channels/yang/_tPfyX0PIYo0.srt?raw=true) | [下载](../channels/yang/_tPfyX0PIYo0.tw.srt?raw=true) | 
