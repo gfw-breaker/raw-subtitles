@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210106-gSZJsDTWbFM.mp4 | [下载](https://y2mate.com/zh-cn/search/gSZJsDTWbFM) | [下载](../channels/tianliang/_gSZJsDTWbFM.srt?raw=true) | [下载](../channels/tianliang/_gSZJsDTWbFM.tw.srt?raw=true) | 
+| 天亮时分-20210106-t6mgl91DRPY.mp4 | [下载](https://y2mate.com/zh-cn/search/t6mgl91DRPY) | [下载](../channels/tianliang/_t6mgl91DRPY.srt?raw=true) | [下载](../channels/tianliang/_t6mgl91DRPY.tw.srt?raw=true) | 
 | 天亮时分-20210105-84uFkXDeZSk.mp4 | [下载](https://y2mate.com/zh-cn/search/84uFkXDeZSk) | [下载](../channels/tianliang/_84uFkXDeZSk.srt?raw=true) | [下载](../channels/tianliang/_84uFkXDeZSk.tw.srt?raw=true) | 
 | 天亮时分-20210104-dE6LnSPEprc.mp4 | [下载](https://y2mate.com/zh-cn/search/dE6LnSPEprc) | [下载](../channels/tianliang/_dE6LnSPEprc.srt?raw=true) | [下载](../channels/tianliang/_dE6LnSPEprc.tw.srt?raw=true) | 
 | 天亮时分-20210103-bAh9yvk1gx8.mp4 | [下载](https://y2mate.com/zh-cn/search/bAh9yvk1gx8) | [下载](../channels/tianliang/_bAh9yvk1gx8.srt?raw=true) | [下载](../channels/tianliang/_bAh9yvk1gx8.tw.srt?raw=true) | 
