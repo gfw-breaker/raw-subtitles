@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210123-L1vw-BogKRE.mp4 | [下载](https://y2mate.com/zh-cn/search/L1vw-BogKRE) | [下载](../channels/tianliang/_L1vw-BogKRE.srt?raw=true) | [下载](../channels/tianliang/_L1vw-BogKRE.tw.srt?raw=true) | 
 | 天亮时分-20210122-A5-K7KS7yyw.mp4 | [下载](https://y2mate.com/zh-cn/search/A5-K7KS7yyw) | [下载](../channels/tianliang/_A5-K7KS7yyw.srt?raw=true) | [下载](../channels/tianliang/_A5-K7KS7yyw.tw.srt?raw=true) | 
 | 天亮时分-20210121-z9-V2QbzNXI.mp4 | [下载](https://y2mate.com/zh-cn/search/z9-V2QbzNXI) | [下载](../channels/tianliang/_z9-V2QbzNXI.srt?raw=true) | [下载](../channels/tianliang/_z9-V2QbzNXI.tw.srt?raw=true) | 
 | 天亮时分-20210120-HcjpOlz780w.mp4 | [下载](https://y2mate.com/zh-cn/search/HcjpOlz780w) | [下载](../channels/tianliang/_HcjpOlz780w.srt?raw=true) | [下载](../channels/tianliang/_HcjpOlz780w.tw.srt?raw=true) | 
