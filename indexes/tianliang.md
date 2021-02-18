@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210217-ggRUvr-gVog.mp4 | [下载](https://y2mate.com/zh-cn/search/ggRUvr-gVog) | [下载](../channels/tianliang/_ggRUvr-gVog.srt?raw=true) | [下载](../channels/tianliang/_ggRUvr-gVog.tw.srt?raw=true) | 
 | 天亮时分-20210216-P9IEFFtIzU8.mp4 | [下载](https://y2mate.com/zh-cn/search/P9IEFFtIzU8) | [下载](../channels/tianliang/_P9IEFFtIzU8.srt?raw=true) | [下载](../channels/tianliang/_P9IEFFtIzU8.tw.srt?raw=true) | 
 | 天亮时分-20210215-R-TFl9m1XRc.mp4 | [下载](https://y2mate.com/zh-cn/search/R-TFl9m1XRc) | [下载](../channels/tianliang/_R-TFl9m1XRc.srt?raw=true) | [下载](../channels/tianliang/_R-TFl9m1XRc.tw.srt?raw=true) | 
 | 天亮时分-20210214-Q-7fvSloMfE.mp4 | [下载](https://y2mate.com/zh-cn/search/Q-7fvSloMfE) | [下载](../channels/tianliang/_Q-7fvSloMfE.srt?raw=true) | [下载](../channels/tianliang/_Q-7fvSloMfE.tw.srt?raw=true) | 
