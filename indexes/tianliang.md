@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210220-WXdokaScQtI.mp4 | [下载](https://y2mate.com/zh-cn/search/WXdokaScQtI) | [下载](../channels/tianliang/_WXdokaScQtI.srt?raw=true) | [下载](../channels/tianliang/_WXdokaScQtI.tw.srt?raw=true) | 
 | 天亮时分-20210219-X1AmujFWctg.mp4 | [下载](https://y2mate.com/zh-cn/search/X1AmujFWctg) | [下载](../channels/tianliang/_X1AmujFWctg.srt?raw=true) | [下载](../channels/tianliang/_X1AmujFWctg.tw.srt?raw=true) | 
 | 天亮时分-20210218-bOz0ixwhMKY.mp4 | [下载](https://y2mate.com/zh-cn/search/bOz0ixwhMKY) | [下载](../channels/tianliang/_bOz0ixwhMKY.srt?raw=true) | [下载](../channels/tianliang/_bOz0ixwhMKY.tw.srt?raw=true) | 
 | 天亮时分-20210217-ggRUvr-gVog.mp4 | [下载](https://y2mate.com/zh-cn/search/ggRUvr-gVog) | [下载](../channels/tianliang/_ggRUvr-gVog.srt?raw=true) | [下载](../channels/tianliang/_ggRUvr-gVog.tw.srt?raw=true) | 
