@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 文睿空间-20210227-I8xILWlkLlo.mp4 | [下载](https://y2mate.com/zh-cn/search/I8xILWlkLlo) | [下载](../channels/wenrui/_I8xILWlkLlo.srt?raw=true) | [下载](../channels/wenrui/_I8xILWlkLlo.tw.srt?raw=true) | 
 | 文睿空间-20210227-R23c4Uta2bo.mp4 | [下载](https://y2mate.com/zh-cn/search/R23c4Uta2bo) | [下载](../channels/wenrui/_R23c4Uta2bo.srt?raw=true) | [下载](../channels/wenrui/_R23c4Uta2bo.tw.srt?raw=true) | 
 | 文睿空间-20201116-86mswRCd0t8.mp4 | [下载](https://y2mate.com/zh-cn/search/86mswRCd0t8) | [下载](../channels/wenrui/_86mswRCd0t8.srt?raw=true) | [下载](../channels/wenrui/_86mswRCd0t8.tw.srt?raw=true) | 
 | 文睿空间-20201109-lh7PGExIQ1w.mp4 | [下载](https://y2mate.com/zh-cn/search/lh7PGExIQ1w) | [下载](../channels/wenrui/_lh7PGExIQ1w.srt?raw=true) | [下载](../channels/wenrui/_lh7PGExIQ1w.tw.srt?raw=true) | 
