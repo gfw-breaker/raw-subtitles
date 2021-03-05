@@ -1,4 +1,4 @@
-### 《 楊景端醫話》原始字幕/文字稿
+### 《楊景端醫話》原始字幕/文字稿
 ---
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
