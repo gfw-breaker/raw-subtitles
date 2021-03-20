@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 江峰时刻-20210319-CmRN5BqaNyg.mp4 | [下载](https://y2mate.com/zh-cn/search/CmRN5BqaNyg) | [下载](../channels/jiangfeng/_CmRN5BqaNyg.srt?raw=true) | [下载](../channels/jiangfeng/_CmRN5BqaNyg.tw.srt?raw=true) | 
 | 江峰时刻-20210318-9CwcpEvoXc0.mp4 | [下载](https://y2mate.com/zh-cn/search/9CwcpEvoXc0) | [下载](../channels/jiangfeng/_9CwcpEvoXc0.srt?raw=true) | [下载](../channels/jiangfeng/_9CwcpEvoXc0.tw.srt?raw=true) | 
 | 江峰时刻-20210317-mnAKXqtf5Rs.mp4 | [下载](https://y2mate.com/zh-cn/search/mnAKXqtf5Rs) | [下载](../channels/jiangfeng/_mnAKXqtf5Rs.srt?raw=true) | [下载](../channels/jiangfeng/_mnAKXqtf5Rs.tw.srt?raw=true) | 
 | 江峰时刻-20210316-wcJeRFnSIDA.mp4 | [下载](https://y2mate.com/zh-cn/search/wcJeRFnSIDA) | [下载](../channels/jiangfeng/_wcJeRFnSIDA.srt?raw=true) | [下载](../channels/jiangfeng/_wcJeRFnSIDA.tw.srt?raw=true) | 
