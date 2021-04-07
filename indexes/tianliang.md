@@ -3,6 +3,8 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210405-Mpv2aIuIO5E.mp4 | [下载](https://y2mate.com/zh-cn/search/Mpv2aIuIO5E) | [下载](../channels/tianliang/_Mpv2aIuIO5E.srt?raw=true) | [下载](../channels/tianliang/_Mpv2aIuIO5E.tw.srt?raw=true) | 
+| 天亮时分-20210404-Y6S2StFW9Pg.mp4 | [下载](https://y2mate.com/zh-cn/search/Y6S2StFW9Pg) | [下载](../channels/tianliang/_Y6S2StFW9Pg.srt?raw=true) | [下载](../channels/tianliang/_Y6S2StFW9Pg.tw.srt?raw=true) | 
 | 天亮时分-20210330-8JzwerI77l4.mp4 | [下载](https://y2mate.com/zh-cn/search/8JzwerI77l4) | [下载](../channels/tianliang/_8JzwerI77l4.srt?raw=true) | [下载](../channels/tianliang/_8JzwerI77l4.tw.srt?raw=true) | 
 | 天亮时分-20210328-Rd_sAhBKTHY.mp4 | [下载](https://y2mate.com/zh-cn/search/Rd_sAhBKTHY) | [下载](../channels/tianliang/_Rd_sAhBKTHY.srt?raw=true) | [下载](../channels/tianliang/_Rd_sAhBKTHY.tw.srt?raw=true) | 
 | 天亮时分-20210326-AECKOqpJmcU.mp4 | [下载](https://y2mate.com/zh-cn/search/AECKOqpJmcU) | [下载](../channels/tianliang/_AECKOqpJmcU.srt?raw=true) | [下载](../channels/tianliang/_AECKOqpJmcU.tw.srt?raw=true) | 
