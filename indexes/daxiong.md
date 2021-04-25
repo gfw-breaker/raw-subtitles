@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 畫裡話外-20210423-SVCh8EDn37U.mp4 | [下载](https://y2mate.com/zh-cn/search/SVCh8EDn37U) | [下载](../channels/daxiong/_SVCh8EDn37U.srt?raw=true) | [下载](../channels/daxiong/_SVCh8EDn37U.tw.srt?raw=true) | 
 | 畫裡話外-20210418-Bjwl9WlSSRE.mp4 | [下载](https://y2mate.com/zh-cn/search/Bjwl9WlSSRE) | [下载](../channels/daxiong/_Bjwl9WlSSRE.srt?raw=true) | [下载](../channels/daxiong/_Bjwl9WlSSRE.tw.srt?raw=true) | 
 | 畫裡話外-20210417-8ShvzTbqqSY.mp4 | [下载](https://y2mate.com/zh-cn/search/8ShvzTbqqSY) | [下载](../channels/daxiong/_8ShvzTbqqSY.srt?raw=true) | [下载](../channels/daxiong/_8ShvzTbqqSY.tw.srt?raw=true) | 
 | 畫裡話外-20210407-7zHkYdsqs0A.mp4 | [下载](https://y2mate.com/zh-cn/search/7zHkYdsqs0A) | [下载](../channels/daxiong/_7zHkYdsqs0A.srt?raw=true) | [下载](../channels/daxiong/_7zHkYdsqs0A.tw.srt?raw=true) | 
