@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 江峰时刻-20210430-3NIfaEtIcFk.mp4 | [下载](https://y2mate.com/zh-cn/search/3NIfaEtIcFk) | [下载](../channels/jiangfeng/_3NIfaEtIcFk.srt?raw=true) | [下载](../channels/jiangfeng/_3NIfaEtIcFk.tw.srt?raw=true) | 
 | 江峰时刻-20210429-ga3u3wxZDDc.mp4 | [下载](https://y2mate.com/zh-cn/search/ga3u3wxZDDc) | [下载](../channels/jiangfeng/_ga3u3wxZDDc.srt?raw=true) | [下载](../channels/jiangfeng/_ga3u3wxZDDc.tw.srt?raw=true) | 
 | 江峰时刻-20210427-nGaKgndgw8o.mp4 | [下载](https://y2mate.com/zh-cn/search/nGaKgndgw8o) | [下载](../channels/jiangfeng/_nGaKgndgw8o.srt?raw=true) | [下载](../channels/jiangfeng/_nGaKgndgw8o.tw.srt?raw=true) | 
 | 江峰时刻-20210426-sF4rdCkrZWc.mp4 | [下载](https://y2mate.com/zh-cn/search/sF4rdCkrZWc) | [下载](../channels/jiangfeng/_sF4rdCkrZWc.srt?raw=true) | [下载](../channels/jiangfeng/_sF4rdCkrZWc.tw.srt?raw=true) | 
