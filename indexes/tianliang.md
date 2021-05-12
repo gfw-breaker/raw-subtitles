@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210511-ZchAghlzH7k.mp4 | [下载](https://y2mate.com/zh-cn/search/ZchAghlzH7k) | [下载](../channels/tianliang/_ZchAghlzH7k.srt?raw=true) | [下载](../channels/tianliang/_ZchAghlzH7k.tw.srt?raw=true) | 
 | 天亮时分-20210510-H5MeNlat46Y.mp4 | [下载](https://y2mate.com/zh-cn/search/H5MeNlat46Y) | [下载](../channels/tianliang/_H5MeNlat46Y.srt?raw=true) | [下载](../channels/tianliang/_H5MeNlat46Y.tw.srt?raw=true) | 
 | 天亮时分-20210509-R9HaE9W9bhs.mp4 | [下载](https://y2mate.com/zh-cn/search/R9HaE9W9bhs) | [下载](../channels/tianliang/_R9HaE9W9bhs.srt?raw=true) | [下载](../channels/tianliang/_R9HaE9W9bhs.tw.srt?raw=true) | 
 | 天亮时分-20210507-DI2iDTQjxvI.mp4 | [下载](https://y2mate.com/zh-cn/search/DI2iDTQjxvI) | [下载](../channels/tianliang/_DI2iDTQjxvI.srt?raw=true) | [下载](../channels/tianliang/_DI2iDTQjxvI.tw.srt?raw=true) | 
