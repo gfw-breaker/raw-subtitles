@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210530-VlLDQ27oe68.mp4 | [下载](https://y2mate.com/zh-cn/search/VlLDQ27oe68) | [下载](../channels/tianliang/_VlLDQ27oe68.srt?raw=true) | [下载](../channels/tianliang/_VlLDQ27oe68.tw.srt?raw=true) | 
 | 天亮时分-20210528-S9s9JlMy4VY.mp4 | [下载](https://y2mate.com/zh-cn/search/S9s9JlMy4VY) | [下载](../channels/tianliang/_S9s9JlMy4VY.srt?raw=true) | [下载](../channels/tianliang/_S9s9JlMy4VY.tw.srt?raw=true) | 
 | 天亮时分-20210527-aP4mMNN9ztU.mp4 | [下载](https://y2mate.com/zh-cn/search/aP4mMNN9ztU) | [下载](../channels/tianliang/_aP4mMNN9ztU.srt?raw=true) | [下载](../channels/tianliang/_aP4mMNN9ztU.tw.srt?raw=true) | 
 | 天亮时分-20210525-2ppOcd-EclA.mp4 | [下载](https://y2mate.com/zh-cn/search/2ppOcd-EclA) | [下载](../channels/tianliang/_2ppOcd-EclA.srt?raw=true) | [下载](../channels/tianliang/_2ppOcd-EclA.tw.srt?raw=true) | 
