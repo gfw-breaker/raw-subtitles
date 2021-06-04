@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 蕭茗看世界-20210604-tgD48p4ZWmA.mp4 | [下载](https://y2mate.com/zh-cn/search/tgD48p4ZWmA) | [下载](../channels/simonegao/_tgD48p4ZWmA.srt?raw=true) | [下载](../channels/simonegao/_tgD48p4ZWmA.tw.srt?raw=true) | 
 | 蕭茗看世界-20210510--Waq2DI4Tdw.mp4 | [下载](https://y2mate.com/zh-cn/search/-Waq2DI4Tdw) | [下载](../channels/simonegao/_-Waq2DI4Tdw.srt?raw=true) | [下载](../channels/simonegao/_-Waq2DI4Tdw.tw.srt?raw=true) | 
 | 蕭茗看世界-20210502-KTB0EK_1KME.mp4 | [下载](https://y2mate.com/zh-cn/search/KTB0EK_1KME) | [下载](../channels/simonegao/_KTB0EK_1KME.srt?raw=true) | [下载](../channels/simonegao/_KTB0EK_1KME.tw.srt?raw=true) | 
 | 蕭茗看世界-20210303-Xyu2PQ4_Mcs.mp4 | [下载](https://y2mate.com/zh-cn/search/Xyu2PQ4_Mcs) | [下载](../channels/simonegao/_Xyu2PQ4_Mcs.srt?raw=true) | [下载](../channels/simonegao/_Xyu2PQ4_Mcs.tw.srt?raw=true) | 
