@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 天亮时分-20210629-B5IzoKqQkMk.mp4 | [下载](https://y2mate.com/zh-cn/search/B5IzoKqQkMk) | [下载](../channels/tianliang/_B5IzoKqQkMk.srt?raw=true) | [下载](../channels/tianliang/_B5IzoKqQkMk.tw.srt?raw=true) | 
 | 天亮时分-20210628-hDNyy5pPBPc.mp4 | [下载](https://y2mate.com/zh-cn/search/hDNyy5pPBPc) | [下载](../channels/tianliang/_hDNyy5pPBPc.srt?raw=true) | [下载](../channels/tianliang/_hDNyy5pPBPc.tw.srt?raw=true) | 
 | 天亮时分-20210626-sOrtkY1gBKE.mp4 | [下载](https://y2mate.com/zh-cn/search/sOrtkY1gBKE) | [下载](../channels/tianliang/_sOrtkY1gBKE.srt?raw=true) | [下载](../channels/tianliang/_sOrtkY1gBKE.tw.srt?raw=true) | 
 | 天亮时分-20210625-kpr1i6oMfzk.mp4 | [下载](https://y2mate.com/zh-cn/search/kpr1i6oMfzk) | [下载](../channels/tianliang/_kpr1i6oMfzk.srt?raw=true) | [下载](../channels/tianliang/_kpr1i6oMfzk.tw.srt?raw=true) | 
