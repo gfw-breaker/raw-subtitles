@@ -3,6 +3,7 @@
 ##### 友情链接：[禁闻聚合](https://github.com/gfw-breaker/banned-news) &nbsp;&nbsp;|&nbsp;&nbsp; [明慧期刊](https://github.com/gfw-breaker/mh-qikan) 
 | 节目名称 | 视频/音频 | 简体字幕 | 正体字幕 |
 |---|---|---|---|
+| 江峰时刻-20210702-TvchH-o6vLA.mp4 | [下载](https://y2mate.com/zh-cn/search/TvchH-o6vLA) | [下载](../channels/jiangfeng/_TvchH-o6vLA.srt?raw=true) | [下载](../channels/jiangfeng/_TvchH-o6vLA.tw.srt?raw=true) | 
 | 江峰时刻-20210701-FM6e3A8zGzc.mp4 | [下载](https://y2mate.com/zh-cn/search/FM6e3A8zGzc) | [下载](../channels/jiangfeng/_FM6e3A8zGzc.srt?raw=true) | [下载](../channels/jiangfeng/_FM6e3A8zGzc.tw.srt?raw=true) | 
 | 江峰时刻-20210630-TM6LjMfY1P4.mp4 | [下载](https://y2mate.com/zh-cn/search/TM6LjMfY1P4) | [下载](../channels/jiangfeng/_TM6LjMfY1P4.srt?raw=true) | [下载](../channels/jiangfeng/_TM6LjMfY1P4.tw.srt?raw=true) | 
 | 江峰时刻-20210628-yJuP6dpqbWk.mp4 | [下载](https://y2mate.com/zh-cn/search/yJuP6dpqbWk) | [下载](../channels/jiangfeng/_yJuP6dpqbWk.srt?raw=true) | [下载](../channels/jiangfeng/_yJuP6dpqbWk.tw.srt?raw=true) | 
